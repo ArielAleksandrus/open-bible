@@ -14,7 +14,7 @@ Pablo deseaba que él los acompañara en el viaje, así que lo circuncidó por c
 
 ## Hechos 16:4
 
-Mientras viajaban por las ciudades, entregaban los decretos decididos por los apóstoles y ancianos en Jerusalén para que los pueblos los observaran.
+Mientras viajaban por las ciudades, entregaban los decretos decididos por los apóstoles y ancianos en Jerusalén para que los observaran.
 
 ## Hechos 16:5
 
@@ -40,13 +40,13 @@ Durante la noche, Pablo tuvo una visión de un hombre de Macedonia que estaba de
 
 ## Hechos 16:10
 
-Después de ver la visión, inmediatamente hicimos esfuerzos para ir a Macedonia, concluyendo que Dios nos había llamado para proclamarles el evangelio.
+Después de ver la visión, inmediatamente procuramos ir a Macedonia, concluyendo que Dios nos había llamado para proclamarles el evangelio.
 
 ---
 
 ## Hechos 16:11
 
-Zarpando de Troas, hicimos un curso directo a Samotracia, y al día siguiente a Neápolis.
+Zarpando de Troas, navegamos directamente a Samotracia, y al día siguiente a Neápolis.
 
 ## Hechos 16:12
 
@@ -138,7 +138,7 @@ Ellos respondieron: “Cree en el Señor Jesús, y serás salvo, tú y tu casa.�
 
 ## Hechos 16:32
 
-Compartieron el mensaje del Señor con él y con todos los que estaban en su casa.
+Le anunciaron el mensaje del Señor a él y a todos los que estaban en su casa.
 
 ## Hechos 16:33
 
@@ -156,7 +156,7 @@ Cuando amaneció, los magistrados enviaron a sus oficiales con la orden: “Deja
 
 ## Hechos 16:36
 
-El carcelero informó esto a Pablo, diciendo: “Los magistrados han enviado palabra de que podéis ser liberados. Ahora pues, salid y marchad en paz.”
+El carcelero informó esto a Pablo, diciendo: “Los magistrados han mandado decir que podéis ser liberados. Ahora pues, salid y marchad en paz.”
 
 ## Hechos 16:37
 

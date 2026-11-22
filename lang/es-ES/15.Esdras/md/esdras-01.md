@@ -48,8 +48,8 @@ Este fue el inventario:
 
 > treinta tazones de oro,
 >  cuatrocientos diez tazones de plata a juego,
->  y mil otros artículos.
+>  y otros mil artículos.
 
 ## Esdras 1:11
 
-En total, había 5,400 artículos de oro y plata. Sesbasar llevó todos estos junto con los exiliados cuando subieron de Babilonia a Jerusalén.
+En total, había 5 400 artículos de oro y plata. Sesbasar llevó todos estos junto con los exiliados cuando subieron de Babilonia a Jerusalén.

@@ -159,7 +159,7 @@ Entonces David llegó a Mahanaim.
 
 Y Absalón había puesto a Amasa sobre el ejército en lugar de Joab.  
  Ahora Amasa era hijo de un hombre llamado Jitra el israelita,  
- que había entrado a Abigail, hija de Nahas, hermana de Sarvia, madre de Joab.
+ que se había unido a Abigail, hija de Nahas, hermana de Sarvia, madre de Joab.
 
 ## 2 Samuel 17:26
 

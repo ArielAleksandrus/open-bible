@@ -36,7 +36,7 @@ Les dije: “En la medida de lo posible, hemos redimido a nuestros hermanos jud�
 
 ## Nehemías 5:9
 
-Así que continué, “Lo que estáis haciendo no es correcto. ¿No deberíais andar en el temor de nuestro Dios para evitar el reproche de nuestros enemigos gentiles?
+Así que continué: “Lo que estáis haciendo no es correcto. ¿No deberíais andar en el temor de nuestro Dios para evitar el reproche de nuestros enemigos gentiles?
 
 ## Nehemías 5:10
 
@@ -48,11 +48,11 @@ Por favor, devolvedles hoy mismo sus campos, viñas, olivares y casas, junto con
 
 ## Nehemías 5:12
 
-Respondieron, “Lo devolveremos y no exigiremos nada más de ellos; haremos como dices.” Entonces convoqué a los sacerdotes e hice que los nobles y oficiales juraran hacer lo que habían prometido.
+Respondieron: “Lo devolveremos y no exigiremos nada más de ellos; haremos como dices.” Entonces convoqué a los sacerdotes e hice que los nobles y oficiales juraran hacer lo que habían prometido.
 
 ## Nehemías 5:13
 
-También sacudí los pliegues de mi vestidura y declaré, “De esta manera, que Dios sacuda de su casa y posesiones a cualquiera que no cumpla esta promesa. ¡Así sea sacudido y vaciado!” Toda la asamblea dijo, “Amén,” y alabó al Señor. Y el pueblo hizo como había prometido.
+También sacudí los pliegues de mi vestidura y declaré: “De esta manera, que Dios sacuda de su casa y posesiones a cualquiera que no cumpla esta promesa. ¡Así sea sacudido y vaciado!” Toda la asamblea dijo: “Amén,” y alabó al Señor. Y el pueblo hizo como había prometido.
 
 ## Nehemías 5:14
 

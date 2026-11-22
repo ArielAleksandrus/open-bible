@@ -1,10 +1,10 @@
 # Ezequiel Capítulo 46
 
 ## Ezequiel 46:1
-‘Esto es lo que dice el Señor Soberano: La puerta del atrio interior que mira al este estará cerrada los seis días laborables, pero se abrirá el día de sábado y el día de la Luna Nueva.
+‘Esto es lo que dice el Señor Dios: La puerta del atrio interior que mira al este estará cerrada los seis días laborables, pero se abrirá el día de sábado y el día de la Luna Nueva.
 
 ## Ezequiel 46:2
-El príncipe entrará por el pórtico de la puerta desde fuera y se quedará junto al poste de la puerta. Los sacerdotes prepararán su holocausto y sus ofrendas de comunión. Se inclinará en adoración en el umbral de la puerta y luego saldrá, pero la puerta no se cerrará hasta la tarde.
+El príncipe entrará por el pórtico de la puerta desde fuera y se quedará junto al poste de la puerta. Los sacerdotes prepararán su holocausto y sus ofrendas de paz. Se inclinará en adoración en el umbral de la puerta y luego saldrá, pero la puerta no se cerrará hasta la tarde.
 
 ## Ezequiel 46:3
 El pueblo de la tierra adorará en la entrada de esa puerta delante del Señor en los sábados y las lunas nuevas.
@@ -34,7 +34,7 @@ El príncipe estará entre ellos, entrando cuando ellos entren y saliendo cuando
 En las fiestas y festivales señalados, la ofrenda de cereal será un efa con un novillo, un efa con un carnero, y con los corderos tanto como uno desee dar, junto con un hin de aceite por cada efa.
 
 ## Ezequiel 46:12
-Cuando el príncipe ofrezca una ofrenda voluntaria al Señor —ya sea un holocausto o ofrendas de comunión— la puerta que mira al este se abrirá para él. Ofrecerá su holocausto o sus ofrendas de comunión como lo hace en el día de sábado. Luego saldrá, y después de que haya salido, la puerta se cerrará.
+Cuando el príncipe ofrezca una ofrenda voluntaria al Señor —ya sea un holocausto u ofrendas de paz— la puerta que mira al este se abrirá para él. Ofrecerá su holocausto o sus ofrendas de paz como lo hace en el día de sábado. Luego saldrá, y después de que haya salido, la puerta se cerrará.
 
 ## Ezequiel 46:13
 Cada día proveerás un cordero de un año sin defecto para un holocausto al Señor; mañana tras mañana lo proveerás.
@@ -46,13 +46,13 @@ También proveerás con él mañana tras mañana una ofrenda de cereal, que cons
 Así el cordero, la ofrenda de cereal, y el aceite se proveerán mañana tras mañana para un holocausto regular.
 
 ## Ezequiel 46:16
-Esto es lo que dice el Señor Soberano: Si el príncipe da un regalo de su herencia a cualquiera de sus hijos, pertenecerá a sus descendientes; será su propiedad por herencia.
+Esto es lo que dice el Señor Dios: Si el príncipe da un regalo de su herencia a cualquiera de sus hijos, pertenecerá a sus descendientes; será su propiedad por herencia.
 
 ## Ezequiel 46:17
 Pero si da un regalo de su herencia a uno de sus siervos, será suyo hasta el año de liberación; entonces volverá al príncipe. Su herencia pertenece solo a sus hijos; es de ellos.
 
 ## Ezequiel 46:18
-El príncipe no debe tomar ninguna de las herencias del pueblo, expulsándolos de su propiedad. Dará a sus hijos su herencia de su propia propiedad, para que ninguno de mi pueblo sea separado de su propiedad.’
+El príncipe no debe tomar ninguna de las herencias del pueblo, expulsándolos de su propiedad. Dará a sus hijos su herencia de su propia propiedad, para que ninguno de mi pueblo sea separado de su propiedad.’”
 
 ## Ezequiel 46:19
 Luego me llevó por la entrada al lado de la puerta a las cámaras sagradas que miran al norte, que pertenecen a los sacerdotes, y me mostró un lugar en el extremo occidental.

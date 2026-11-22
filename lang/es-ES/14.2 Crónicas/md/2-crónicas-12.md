@@ -14,7 +14,7 @@ En el quinto año del reinado del rey Roboam, porque habían sido infieles al Se
 
 ## 2 Crónicas 12:3
 
-Vino con 1,200 carros, 60,000 jinetes, y un pueblo incontable que lo acompañaba desde Egipto: los libios, los suquitas y los etíopes.
+Vino con 1 200 carros, 60 000 jinetes, y un pueblo incontable que lo acompañaba desde Egipto: los libios, los suquitas y los etíopes.
 
 ---
 

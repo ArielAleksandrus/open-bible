@@ -18,7 +18,7 @@ Esto sucedió para que se cumpliera lo dicho por el profeta:
 
 ## Mateo 21:5
 
-“Decid a la hija de Sión: ‘He aquí, tu rey viene a ti, manso y montado en un asno, en un pollino, hijo de animal de carga.’”
+“Decid a la hija de Sion: ‘Mira, tu rey viene hacia ti, humilde y montado en un burro, en un burrito, la cría de una burra.’”
 
 ## Mateo 21:6
 
@@ -52,7 +52,7 @@ Jesús entró en el templo y echó fuera a todos los que compraban y vendían al
 
 ## Mateo 21:13
 
-Y les dijo: “Está escrito: ‘Mi casa será llamada casa de oración,’ pero vosotros la habéis hecho una ‘cueva de ladrones.’”
+Y les dijo: “Está escrito: ‘Mi casa será conocida como casa de oración,’ pero vosotros la habéis convertido en una ‘guarida de bandidos.’”
 
 ## Mateo 21:14
 
@@ -64,7 +64,7 @@ Pero cuando los principales sacerdotes y los escribas vieron las maravillas que 
 
 ## Mateo 21:16
 
-“¿Oyes lo que estos niños dicen?” le preguntaron. “Sí,” respondió Jesús, “¿nunca habéis leído, ‘De la boca de los niños y de los que maman preparaste alabanza’?”
+“¿Oyes lo que dicen estos niños?” le preguntaron. “Sí,” respondió Jesús, “¿nunca habéis leído: ‘De la boca de los pequeños y de los bebés de pecho te has preparado alabanza’?”
 
 ## Mateo 21:17
 
@@ -90,7 +90,7 @@ Jesús respondió: “En verdad os digo que si tenéis fe y no dudáis, no solo 
 
 ## Mateo 21:22
 
-Y todo lo que pidáis en oración, creyendo, lo recibiréis.”
+Todo lo que pidáis en oración, si creéis, lo recibiréis.”
 
 ---
 
@@ -176,7 +176,7 @@ Ellos respondieron: “Llevará a esos miserables a un fin miserable y arrendar�
 
 ## Mateo 21:42
 
-Jesús les dijo: “¿Nunca habéis leído en las Escrituras: ‘La piedra que desecharon los constructores ha venido a ser la piedra angular; esto es obra del Señor, y es maravilloso a nuestros ojos’?
+Jesús les dijo: “¿Nunca habéis leído en las Escrituras: ‘La piedra que los constructores rechazaron se ha convertido en la piedra angular; el Señor lo ha hecho, y nos parece maravilloso’?
 
 ## Mateo 21:43
 
@@ -184,7 +184,7 @@ Por eso os digo que el reino de Dios os será quitado y será dado a un pueblo q
 
 ## Mateo 21:44
 
-Cualquiera que tropiece con esta piedra será quebrantado, y sobre quien ella caiga será triturado.”
+Quien tropiece con esta piedra se hará pedazos, y aquel sobre quien ella caiga quedará aplastado.”
 
 ## Mateo 21:45
 

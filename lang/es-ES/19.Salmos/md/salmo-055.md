@@ -4,8 +4,8 @@
 
 ## Salmo 55:1
 
-> Escucha mi oración, Dios;  
->  Y no te escondas de mi súplica.
+> Dios, escucha mi oración;  
+>  no te escondas cuando te suplico.
 
 ## Salmo 55:2
 
@@ -15,62 +15,62 @@
 ## Salmo 55:3
 
 > A causa de la voz del adversario,  
->  A causa de la opresión del malvado;  
->  Porque amontonan problemas sobre mí Y con ira guardan rencor contra mí.
+>  a causa de la opresión del malvado;  
+>  porque amontonan problemas sobre mí Y con ira guardan rencor contra mí.
 
 ---
 
 ## Salmo 55:4
 
-> Mi corazón está profundamente dolorido dentro de mí,  
->  Y los terrores de la muerte me han asaltado.
+> Siento un dolor muy hondo en el corazón,  
+>  y me ha invadido el terror de la muerte.
 
 ## Salmo 55:5
 
-> El miedo y el temblor me han sobrecogido,  
->  Y el horror me ha envuelto.
+> El miedo y los temblores se han apoderado de mí,  
+>  y el pánico me tiene envuelto.
 
 ## Salmo 55:6
 
-> Dije: “¡Oh, si tuviera alas como una paloma!  
->  Volaría lejos y encontraría descanso.
+> Dije: “¡Quién tuviera alas como las de una paloma!  
+>  Me iría volando a un lugar donde descansar.
 
 ## Salmo 55:7
 
-> He aquí, escaparía lejos,  
->  Pasaría la noche en el desierto.
+> Me escaparía muy lejos,  
+>  Me quedaría a pasar la noche en el desierto.
 
 >  Selah
 
 ## Salmo 55:8
 
-> Me apresuraría a mi lugar de refugio Del viento tempestuoso y el vendaval feroz.  
+> Correría a buscar un refugio Contra el viento de la tormenta y el vendaval furioso.  
 > ”
 
 ---
 
 ## Salmo 55:9
 
-> Confúndelos, Señor, divide sus lenguas,  
->  Porque he presenciado violencia y contienda en la ciudad.
+> Señor, siembra confusión entre ellos,  
+>  haz que no se entiendan al hablar, porque he visto violencia y peleas en la ciudad.
 
 ## Salmo 55:10
 
-> Día y noche la rodean sobre sus muros,  
->  Y la maldad y el daño están dentro de ella.
+> Día y noche recorren sus murallas,  
+>  y dentro de ella no hay más que maldad y daño.
 
 ## Salmo 55:11
 
-> La ruina está dentro de ella;  
->  La opresión y el engaño no se apartan de sus calles.
+> La destrucción está dentro de ella;  
+>  la opresión y el engaño nunca faltan en sus calles.
 
 ---
 
 ## Salmo 55:12
 
-> Porque no es un enemigo quien se burla de mí, entonces podría soportarlo;  
->  Ni es uno que me desprecia quien se ha levantado contra mí,  
->  Entonces podría esconderme de él.
+> Porque no es un enemigo el que me insulta, eso podría aguantarlo;  
+>  ni es alguien que me odia el que se ha puesto en mi contra,  
+>  de él podría esconderme.
 
 ## Salmo 55:13
 
@@ -86,26 +86,26 @@
 
 ## Salmo 55:15
 
-> Que la muerte venga sobre ellos inesperadamente;  
->  Que desciendan vivos al Seol,  
->  Porque la maldad está en su morada, entre ellos.
+> Que la muerte los sorprenda; que bajen vivos al Seol,  
+>  porque la maldad vive en sus casas,  
+>  en medio de ellos.
 
 ---
 
 ## Salmo 55:16
 
-> En cuanto a mí, llamaré a Dios,  
->  Y el Señor me librará.
+> Pero yo llamaré a Dios,  
+>  y el Señor me salvará.
 
 ## Salmo 55:17
 
-> Tarde, mañana y al mediodía, lamentaré y gemiré,  
->  Y Él escuchará mi voz.
+> Por la tarde, por la mañana y a mediodía me quejaré y gemiré,  
+>  y Él oirá mi voz.
 
 ## Salmo 55:18
 
-> Él rescatará mi alma en paz de la batalla contra mí,  
->  Porque muchos son los que se oponen a mí.
+> Él me sacará sano y salvo de la batalla que hay contra mí,  
+>  porque son muchos los que se me oponen.
 
 ## Salmo 55:19
 
@@ -121,25 +121,25 @@
 
 ## Salmo 55:20
 
-> Ha extendido sus manos contra los que estaban en paz con él;  
->  Ha roto su pacto.
+> Ese hombre levantó la mano contra los que vivían en paz con él;  
+>  No cumplió su pacto.
 
 ## Salmo 55:21
 
-> Sus palabras eran más suaves que la mantequilla,  
->  Pero su corazón estaba puesto en la guerra;  
->  Sus palabras eran más suaves que el aceite,  
->  Sin embargo, eran espadas desenvainadas.
+> Hablaba con palabras más suaves que la mantequilla,  
+>  pero en el corazón llevaba la guerra;  
+>  Sus palabras eran más finas que el aceite,  
+>  pero eran puñales listos para herir.
 
 ---
 
 ## Salmo 55:22
 
-> Echa tu carga sobre el Señor y Él te sostendrá;  
->  Nunca permitirá que el justo sea movido.
+> Deja tus preocupaciones en manos del Señor y Él te sostendrá;  
+>  nunca dejará que el justo se venga abajo.
 
 ## Salmo 55:23
 
-> Pero tú, Dios, los llevarás al pozo de la destrucción;  
->  Los hombres de derramamiento de sangre y engaño no vivirán la mitad de sus días.  
+> Pero tú, Dios, los hundirás en la fosa de la destrucción;  
+>  los asesinos y los mentirosos no llegarán a vivir ni la mitad de sus días.  
 >  Pero yo pondré mi confianza en ti.

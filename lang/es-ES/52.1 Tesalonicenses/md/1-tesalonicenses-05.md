@@ -6,35 +6,35 @@ En cuanto a los tiempos y las ocasiones, queridos amigos, no tenéis necesidad d
 
 ## 1 Tesalonicenses 5:2
 
-Porque sabéis perfectamente que el día del Señor llegará inesperadamente, como un ladrón en la noche.
+porque vosotros mismos sabéis muy bien que el día del Señor llegará sin avisar, como un ladrón que viene de noche.
 
 ## 1 Tesalonicenses 5:3
 
-Cuando digan: “¡Paz y seguridad!”, entonces vendrá sobre ellos destrucción repentina, como los dolores de parto a la mujer encinta, y no escaparán.
+Cuando la gente esté diciendo: “¡Hay paz y seguridad!”, les llegará de repente la destrucción, como le llegan los dolores de parto a una mujer embarazada, y no podrán escapar.
 
 ## 1 Tesalonicenses 5:4
 
-Pero vosotros, queridos amigos, no estáis en tinieblas, para que ese día os sorprenda como un ladrón;
+Pero vosotros, queridos amigos, no vivís en la oscuridad, para que ese día os pille por sorpresa como un ladrón;
 
 ## 1 Tesalonicenses 5:5
 
-porque todos vosotros sois hijos de la luz e hijos del día. No pertenecemos a la noche ni a las tinieblas;
+porque todos vosotros sois hijos de la luz y del día. No pertenecemos a la noche ni a la oscuridad;
 
 ## 1 Tesalonicenses 5:6
 
-por tanto, no durmamos como los demás, sino permanezcamos alerta y con la mente clara.
+así que no vivamos dormidos como los demás, sino estemos atentos y con la mente despejada.
 
 ## 1 Tesalonicenses 5:7
 
-Porque los que duermen, de noche duermen, y los que se embriagan, de noche se embriagan.
+Los que duermen lo hacen de noche, y los que se emborrachan, también de noche.
 
 ## 1 Tesalonicenses 5:8
 
-Pero como pertenecemos al día, permanezcamos con la mente clara, habiéndonos puesto la coraza de la fe y del amor, y como casco, la esperanza de la salvación.
+Pero nosotros, que pertenecemos al día, mantengamos la mente despejada, protegidos por la fe y el amor como por una coraza, y por la esperanza de la salvación como por un casco.
 
 ## 1 Tesalonicenses 5:9
 
-Porque Dios no nos ha destinado a sufrir ira, sino a recibir salvación por medio de nuestro Señor Jesucristo,
+Porque Dios no nos ha destinado a sufrir su castigo, sino a recibir la salvación por medio de nuestro Señor Jesucristo,
 
 ## 1 Tesalonicenses 5:10
 
@@ -78,11 +78,11 @@ No intentéis extinguir el Espíritu,
 
 ## 1 Tesalonicenses 5:20
 
-no despreciéis las profecías.
+no tratéis con desprecio las profecías.
 
 ## 1 Tesalonicenses 5:21
 
-En cambio, examinadlo todo; retened lo bueno,
+Al contrario, examinadlo todo y quedaos con lo bueno,
 
 ## 1 Tesalonicenses 5:22
 
@@ -90,11 +90,11 @@ rechazad toda forma de mal.
 
 ## 1 Tesalonicenses 5:23
 
-Y que el mismo Dios de paz os santifique completamente; y que todo vuestro espíritu, alma y cuerpo se mantenga irreprochable en la venida de nuestro Señor Jesucristo.
+Que el mismo Dios de paz os haga completamente santos, y que todo vuestro ser, espíritu, alma y cuerpo, se mantenga sin falta hasta la venida de nuestro Señor Jesucristo.
 
 ## 1 Tesalonicenses 5:24
 
-El que os llama es fiel, y ciertamente lo hará.
+El que os llama es fiel, y sin duda lo hará.
 
 ## 1 Tesalonicenses 5:25
 

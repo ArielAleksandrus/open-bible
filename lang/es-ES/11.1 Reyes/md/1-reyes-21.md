@@ -78,7 +78,7 @@ Cuando Acab oyó que Nabot estaba muerto, se levantó y bajó para tomar posesi�
 
 ## 1 Reyes 21:17
 
-La palabra del Señor vino a Elías el tisbita y fue:
+La palabra del Señor vino a Elías el tisbita, diciendo:
 
 ## 1 Reyes 21:18
 
@@ -87,7 +87,7 @@ La palabra del Señor vino a Elías el tisbita y fue:
 ## 1 Reyes 21:19
 
 Dile: ‘Esto es lo que dice el Señor: ¿Has asesinado y también tomado posesión?’  
- Luego dile: ‘Esto es lo que dice el Señor: En el lugar donde los perros lamieron la sangre de Nabot, los perros también lamerán tu sangre —sí, la tuya—!’”
+ Luego dile: ‘Esto es lo que dice el Señor: En el lugar donde los perros lamieron la sangre de Nabot, los perros también lamerán tu sangre, ¡sí, la tuya!’”
 
 ## 1 Reyes 21:20
 

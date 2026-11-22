@@ -81,7 +81,7 @@ La costumbre de los sacerdotes con el pueblo era que cuando alguien ofrecía un 
 
 ## 1 Samuel 2:14
 
-Y lo metía en la olla, caldero, sartén o marmita. Todo lo que el tenedor sacaba, el sacerdote lo tomaba para sí. Así hacían con todos los israelitas que venían a Silo.
+y lo metía en la olla, caldero, sartén o marmita. Todo lo que el tenedor sacaba, el sacerdote lo tomaba para sí. Así hacían con todos los israelitas que venían a Silo.
 
 ## 1 Samuel 2:15
 
@@ -153,7 +153,7 @@ Escogí a tu padre de entre todas las tribus de Israel para que fuera mi sacerdo
 
 ## 1 Samuel 2:30
 
-“Por tanto, el Señor, el Dios de Israel, declara: Prometí que tu familia y la familia de tu padre ministrarían ante mí para siempre. Pero ahora,” declara el Señor, “¡lejos de mí! Porque honraré a los que me honran, pero los que me desprecian serán tenidos en poco.
+“Por eso el Señor, el Dios de Israel, declara: Yo prometí que tu familia y la familia de tu antepasado estarían a mi servicio para siempre. Pero ahora,” declara el Señor, “¡lejos de mí! Porque a los que me honran, yo los honraré; pero los que me desprecian serán despreciados.
 
 ## 1 Samuel 2:31
 
@@ -177,4 +177,4 @@ Entonces levantaré para mí un sacerdote fiel, que hará conforme a mi corazón
 
 ## 1 Samuel 2:36
 
-Entonces cualquiera que quede en tu familia vendrá y se postrará ante él por una moneda de plata y un pedazo de pan, diciendo: ‘Por favor, asígneme a alguna función sacerdotal para que pueda tener algo de comer.’”
+Entonces cualquiera que quede en tu familia vendrá y se postrará ante él por una moneda de plata y un pedazo de pan, diciendo: ‘Por favor, asígname a alguna función sacerdotal para que pueda tener algo de comer.’”

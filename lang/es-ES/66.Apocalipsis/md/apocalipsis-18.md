@@ -6,11 +6,11 @@ Después de esto vi a otro ángel descender del cielo, poseyendo gran autoridad,
 
 ## Apocalipsis 18:2
 
-Clamó con potente voz, diciendo:
+Y gritó con voz potente: “¡Ha caído,
 
->  “¡Caída, caída es Babilonia la Grande!
->  Se ha convertido en morada de demonios y en prisión de todo espíritu impuro,
->  en prisión de toda ave inmunda y detestable.
+>  ha caído la gran Babilonia!
+>  Se ha convertido en guarida de demonios,
+>  en refugio de toda clase de espíritus impuros y en nido de toda clase de aves impuras y repugnantes.
 
 ## Apocalipsis 18:3
 
@@ -40,7 +40,7 @@ Entonces oí otra voz del cielo, diciendo:
 
 > En la medida en que ella se glorificó a sí misma y vivió en lujo,
 >  dadle tormento y luto en igual medida.
->  Porque dice en su corazón: ‘Me siento como reina, no soy viuda, y nunca veré luto.’
+>  Porque dice en su corazón: ‘Estoy sentada como reina, no soy viuda, y nunca veré luto.’
 
 ## Apocalipsis 18:8
 
@@ -62,11 +62,11 @@ permaneciendo a distancia por el temor de su tormento, diciendo:
 
 ## Apocalipsis 18:11
 
-“Y los mercaderes de la tierra llorarán y se lamentarán por ella, porque nadie compra más su cargamento—
+“Y los mercaderes de la tierra llorarán y se lamentarán por ella, porque nadie compra más su cargamento:
 
 ## Apocalipsis 18:12
 
-cargamento de oro, plata, piedras preciosas y perlas; lino fino, púrpura, seda y escarlata; toda clase de madera de cedro, todo artículo de marfil, y todo artículo hecho de madera costosa, bronce, hierro y mármol;
+cargamento de oro, plata, piedras preciosas y perlas; lino fino, púrpura, seda y escarlata; toda clase de madera aromática, todo artículo de marfil, y todo artículo hecho de madera costosa, bronce, hierro y mármol;
 
 ## Apocalipsis 18:13
 
@@ -90,7 +90,7 @@ y diciendo:
 
 ## Apocalipsis 18:17
 
-porque en una hora tal gran riqueza ha sido desolada!’ Todo capitán de barco, todo pasajero, marinero, y todos los que hacen su vida en el mar se mantendrán a distancia,
+porque en una hora tanta riqueza ha sido desolada!’ Todo capitán de barco, todo pasajero, marinero, y todos los que se ganan la vida en el mar se mantendrán a distancia,
 
 ## Apocalipsis 18:18
 
@@ -106,7 +106,7 @@ Echarán polvo sobre sus cabezas y gritarán, llorando y lamentándose, diciendo
 
 ## Apocalipsis 18:20
 
-> “Regocíjate sobre ella, oh cielos, y vosotros santos, apóstoles y profetas,
+> “Regocijaos sobre ella, oh cielos, y vosotros santos, apóstoles y profetas,
 >  porque Dios ha pronunciado juicio por vosotros contra ella.”
 
 ## Apocalipsis 18:21
@@ -119,7 +119,7 @@ Entonces un ángel poderoso levantó una piedra como una gran piedra de molino y
 ## Apocalipsis 18:22
 
 > El sonido de arpistas, músicos, flautistas y trompetistas nunca más se oirá en ti.
->  Ningún artesano de cualquier oficio se encontrará más en ti.
+>  Ningún artesano de ningún oficio se encontrará más en ti.
 >  El sonido de una piedra de molino nunca más se oirá en ti.
 
 ## Apocalipsis 18:23

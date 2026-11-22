@@ -30,15 +30,15 @@ Pero algunos de los maestros de la ley estaban sentados allí, pensando para sí
 
 ## Marcos 2:8
 
-Inmediatamente Jesús, consciente en su espíritu de que pensaban de esta manera dentro de sí mismos, les dijo: “¿Por qué están pensando estas cosas en sus corazones?
+Inmediatamente Jesús, consciente en su espíritu de que pensaban de esta manera dentro de sí mismos, les dijo: “¿Por qué pensáis estas cosas en vuestros corazones?
 
 ## Marcos 2:9
 
-¿Qué creen que es más sencillo: decir a este hombre paralítico, ‘Tus pecados son perdonados,’ o decir, ‘Levántate, toma tu camilla y anda’?
+¿Qué creéis que es más sencillo: decir a este hombre paralítico, ‘Tus pecados son perdonados,’ o decir, ‘Levántate, toma tu camilla y anda’?
 
 ## Marcos 2:10
 
-Pero para que sepan que el Hijo del Hombre tiene autoridad en la tierra para perdonar pecados” —dijo al hombre paralítico,—
+Pero para que sepáis que el Hijo del Hombre tiene autoridad en la tierra para perdonar pecados”, dijo al hombre paralítico:
 
 ## Marcos 2:11
 
@@ -106,11 +106,11 @@ Los fariseos le cuestionaron: “Dinos, ¿por qué están haciendo lo que se con
 
 ## Marcos 2:25
 
-Él les dijo: “¿Nunca han leído lo que hizo David cuando tuvo necesidad y sus compañeros tuvieron hambre;
+Él les dijo: “¿Nunca habéis leído lo que hizo David cuando tuvo necesidad y sus compañeros tuvieron hambre;
 
 ## Marcos 2:26
 
-cómo entró en la casa de Dios en el tiempo de Abiatar, el sumo sacerdote, y comió el pan consagrado, que es lícito solo para los sacerdotes comer, y también dio a sus compañeros?”
+cómo entró en la casa de Dios en el tiempo de Abiatar, el sumo sacerdote, y comió el pan consagrado, que solo a los sacerdotes les es lícito comer, y también dio a sus compañeros?”
 
 ## Marcos 2:27
 

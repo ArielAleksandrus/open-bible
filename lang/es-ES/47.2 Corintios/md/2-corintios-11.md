@@ -26,7 +26,7 @@ Pero aunque carezca de habilidad para hablar, no carezco de conocimiento; de hec
 
 ## 2 Corintios 11:7
 
-¿O cometí un error al rebajarme para que vosotros fuerais elevados, porque os prediqué el evangelio de Dios gratuitamente?
+¿O cometí una falta al rebajarme para que vosotros fuerais elevados, porque os prediqué el evangelio de Dios gratuitamente?
 
 ## 2 Corintios 11:8
 
@@ -34,7 +34,7 @@ Despojé a otras iglesias, aceptando su ayuda para serviros;
 
 ## 2 Corintios 11:9
 
-Y cuando estuve con vosotros y necesité, no fui una carga para nadie; porque cuando los hermanos vinieron de Macedonia, suplieron plenamente mi necesidad, y en todo me mantuve sin ser una carga para vosotros, y continuaré haciéndolo.
+Y cuando estuve con vosotros y pasé necesidad, no fui una carga para nadie; porque cuando los hermanos vinieron de Macedonia, suplieron plenamente mi necesidad, y en todo me mantuve sin ser una carga para vosotros, y continuaré haciéndolo.
 
 ## 2 Corintios 11:10
 
@@ -102,11 +102,11 @@ En tres ocasiones fui golpeado con varas, una vez fui apedreado, y tres veces na
 
 ## 2 Corintios 11:26
 
-He estado en frecuentes viajes, en peligros de ríos, peligros de ladrones, peligros de mi propio pueblo, peligros de los gentiles, peligros en la ciudad, peligros en el desierto, peligros en el mar, peligros entre falsos hermanos;
+He viajado muchas veces; he pasado peligros en los ríos y peligros con los ladrones, peligros de parte de mi propio pueblo y de parte de los gentiles, peligros en la ciudad, en el desierto y en el mar, y peligros entre falsos hermanos;
 
 ## 2 Corintios 11:27
 
-He estado en trabajo y dificultad, a través de muchas noches sin dormir, en hambre y sed, a menudo sin comida, en frío y exposición.
+He pasado por trabajos y fatigas, por muchas noches sin dormir, por hambre y sed, a menudo sin comida, por frío y desnudez.
 
 ## 2 Corintios 11:28
 

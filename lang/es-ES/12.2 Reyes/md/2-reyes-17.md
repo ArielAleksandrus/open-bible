@@ -42,12 +42,12 @@ Esto sucedió porque los hijos de Israel habían pecado contra el Señor su Dios
 
 ## 2 Reyes 17:8
 
-y siguieron las prácticas de las naciones que el Señor había expulsado de delante de los hijos de Israel,  
+y anduvieron en las prácticas de las naciones que el Señor había expulsado de delante de los hijos de Israel,  
  y en los caminos de los reyes de Israel que ellos habían introducido.
 
 ## 2 Reyes 17:9
 
-Y los hijos de Israel hicieron cosas secretas que no eran correctas contra el Señor su Dios.  
+Y los hijos de Israel hicieron en secreto cosas que no eran rectas contra el Señor su Dios.  
  Además, se construyeron lugares altos en todas sus ciudades,  
  desde la torre de vigilancia hasta la ciudad fortificada.
 
@@ -58,7 +58,7 @@ Levantaron para sí estelas y Aseras en toda colina alta y debajo de todo árbol
 ## 2 Reyes 17:11
 
 y allí quemaron incienso en todos los lugares altos,  
- como lo hicieron las naciones que el Señor había llevado antes de ellos;  
+ como lo hicieron las naciones que el Señor había desterrado delante de ellos;  
  e hicieron cosas malas, provocando al Señor.
 
 ## 2 Reyes 17:12
@@ -166,7 +166,7 @@ Así que uno de los sacerdotes que había sido llevado al exilio de Samaria vino
 
 ## 2 Reyes 17:29
 
-Pero cada nación todavía hizo dioses propios y los pusieron en las casas de los lugares altos que el pueblo de Samaria había hecho,  
+Pero cada nación se hizo sus propios dioses y los puso en las casas de los lugares altos que el pueblo de Samaria había hecho,  
  cada nación en sus ciudades donde vivían.
 
 ## 2 Reyes 17:30
@@ -201,7 +201,7 @@ Hasta el día de hoy actúan de acuerdo con las costumbres anteriores:
 
 ## 2 Reyes 17:35
 
-con quien el Señor hizo un pacto y les mandó, diciendo,  
+con quienes el Señor hizo un pacto y les mandó, diciendo,  
  “No temeréis a otros dioses, ni os inclinaréis ante ellos, ni les serviréis, ni les sacrificaréis.
 
 ## 2 Reyes 17:36

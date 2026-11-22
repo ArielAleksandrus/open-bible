@@ -2,11 +2,11 @@
 
 ## Filemón 1:1
 
-Pablo, prisionero de Cristo Jesús, y el hermano Timoteo, a Filemón, nuestro amado amigo y colaborador—
+Pablo, prisionero de Cristo Jesús, y el hermano Timoteo, a Filemón, nuestro amado amigo y colaborador,
 
 ## Filemón 1:2
 
-a la hermana Apia, y a Arquipo, nuestro compañero de milicia, y a la iglesia que se reúne en tu casa:
+a nuestra hermana Apia, a Arquipo, que lucha a nuestro lado como un soldado, y a la iglesia que se reúne en tu casa:
 
 ## Filemón 1:3
 
@@ -14,35 +14,35 @@ Que recibáis gracia y paz de Dios nuestro Padre y del Señor Jesucristo.
 
 ## Filemón 1:4
 
-Siempre doy gracias a mi Dios, haciendo mención de ti en mis oraciones,
+Siempre que oro, te recuerdo y doy gracias a mi Dios por ti,
 
 ## Filemón 1:5
 
-porque oigo de tu amor y fe que tienes hacia el Señor Jesús y hacia todos los santos.
+porque me hablan del amor y de la fe que tienes hacia el Señor Jesús y hacia todo el pueblo santo.
 
 ## Filemón 1:6
 
-Ruego que la comunión de tu fe sea eficaz en el conocimiento de todo el bien que compartimos por amor a Cristo.
+Pido que la fe que compartes con nosotros dé fruto, y que así llegues a entender todo el bien que tenemos por causa de Cristo.
 
 ## Filemón 1:7
 
-Tu amor me ha dado gran gozo y consuelo, porque tú, hermano, has confortado el corazón de los santos.
+Tu amor me ha llenado de alegría y de ánimo, porque tú, hermano, has reconfortado el corazón del pueblo santo.
 
 ## Filemón 1:8
 
-Por tanto, aunque tengo mucha confianza en Cristo para mandarte lo que conviene,
+Por eso, aunque en Cristo tengo confianza suficiente para ordenarte lo que debes hacer,
 
 ## Filemón 1:9
 
-sin embargo, por amor prefiero rogarte —siendo como soy Pablo, anciano y ahora también prisionero de Cristo Jesús—
+prefiero pedírtelo por amor, yo, Pablo, que ya soy un anciano y ahora estoy también preso por Cristo Jesús;
 
 ## Filemón 1:10
 
-te ruego por mi hijo Onésimo, a quien he engendrado en mis prisiones.
+te pido un favor por Onésimo, que se ha convertido en hijo mío aquí en la cárcel.
 
 ## Filemón 1:11
 
-Él en otro tiempo te fue inútil, pero ahora es útil tanto para ti como para mí.
+Antes no te servía de nada, pero ahora nos es de mucha utilidad, tanto a ti como a mí.
 
 ## Filemón 1:12
 
@@ -50,23 +50,23 @@ Te lo envío de vuelta, enviando una parte de mi propio corazón.
 
 ## Filemón 1:13
 
-Hubiera querido retenerlo conmigo, para que en tu lugar me sirviera durante mi prisión por el evangelio.
+Me hubiera gustado quedarme con él, para que me ayudara en tu lugar mientras estoy preso por el evangelio.
 
 ## Filemón 1:14
 
-Pero no quise hacer nada sin tu consentimiento, para que tu bondad no fuera por obligación sino de tu propia voluntad.
+Pero no he querido hacer nada sin que tú estés de acuerdo, para que el favor que me hagas no sea por obligación, sino porque tú quieres.
 
 ## Filemón 1:15
 
-Quizás por esto se separó de ti por un tiempo, para que lo recibieras para siempre—
+Puede que se haya alejado de ti por un tiempo precisamente para que lo recuperes para siempre,
 
 ## Filemón 1:16
 
-ya no como un siervo, sino más que eso, como un hermano amado, especialmente para mí, pero cuánto más para ti, tanto en la carne como en el Señor.
+ya no solo como un servidor, sino como algo mucho mejor: como un hermano querido, que lo es mucho para mí, pero mucho más para ti, como persona y como hermano en el Señor.
 
 ## Filemón 1:17
 
-Si me consideras compañero, recíbelo como a mí mismo.
+Así que, si me consideras tu compañero, recíbelo como me recibirías a mí.
 
 ## Filemón 1:18
 
@@ -74,11 +74,11 @@ Si te ha causado algún daño o te debe algo, considéralo mi responsabilidad.
 
 ## Filemón 1:19
 
-Yo, Pablo, lo escribo con mi propia mano —lo pagaré— sin mencionar que tú me debes aún tu propia persona.
+Yo, Pablo, te lo escribo de mi puño y letra: yo te lo pagaré. Y eso sin recordarte que tú mismo me debes tu propia vida.
 
 ## Filemón 1:20
 
-Sí, hermano, déjame recibir algún beneficio de ti en el Señor; refresca mi corazón en Cristo.
+Sí, hermano, hazme este favor en el Señor; reconforta mi corazón en Cristo.
 
 ## Filemón 1:21
 

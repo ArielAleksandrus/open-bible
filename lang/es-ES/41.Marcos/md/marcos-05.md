@@ -82,11 +82,11 @@ Cuando Jesús subía a la barca, el hombre que había sido liberado de los demon
 
 ## Marcos 5:19
 
-Jesús no se lo permitió, sino que le dijo: “Vuelve a tu casa, a los tuyos, y cuéntales cuán grandes cosas ha hecho el Señor por ti, y cómo ha tenido misericordia de ti.”
+Jesús no se lo permitió, sino que le dijo: “Vete a casa, con tu gente, y cuéntales todo lo que el Señor ha hecho por ti y cómo ha tenido compasión de ti.”
 
 ## Marcos 5:20
 
-Así que el hombre se fue y comenzó a proclamar en Decápolis cuán grandes cosas había hecho Jesús por él. Y toda la gente se maravilló.
+Así que el hombre se fue y comenzó a contar por la región de Decápolis todo lo que Jesús había hecho por él. Y toda la gente quedaba asombrada.
 
 ---
 
@@ -160,7 +160,7 @@ Al oír lo que decían, Jesús le dijo: “No temas; solo cree.”
 
 ## Marcos 5:37
 
-No permitió que nadie lo siguiera excepto Pedro, Jacobo y Juan, el hermano de Jacobo.
+No permitió que nadie lo siguiera excepto Pedro, Santiago y Juan, el hermano de Santiago.
 
 ## Marcos 5:38
 

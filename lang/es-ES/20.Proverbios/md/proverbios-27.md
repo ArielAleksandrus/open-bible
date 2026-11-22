@@ -52,7 +52,7 @@ El prudente ve el peligro y se esconde, pero los simples siguen adelante y sufre
 
 ## Proverbios 27:13
 
-Toma la prenda del que sale fiador por un extraño; reténla en prenda cuando sea por un extranjero.
+Toma la prenda del que sale fiador por un extraño; retenla en prenda cuando sea por un extranjero.
 
 ## Proverbios 27:14
 
@@ -82,7 +82,7 @@ Como el agua refleja el rostro, así el corazón de una persona refleja a la per
 
 ## Proverbios 27:20
 
-El Seol y el Abadón nunca se sacian, y tampoco los ojos de una persona.
+El Seol y el Abadón nunca se llenan, y los ojos del ser humano tampoco.
 
 ## Proverbios 27:21
 

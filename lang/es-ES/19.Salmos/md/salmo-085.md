@@ -9,8 +9,8 @@
 
 ## Salmo 85:2
 
-> Perdonaste la iniquidad de Tu pueblo;  
->  Cubriste todos sus pecados.
+> Perdonaste la culpa de Tu pueblo;  
+>  tapaste todos sus pecados.
 
 >  Selah
 
@@ -24,7 +24,7 @@
 ## Salmo 85:4
 
 > Renuévanos, Dios de nuestra salvación,  
->  Y haz que Tu indignación hacia nosotros llegue a su fin.
+>  y haz que Tu indignación hacia nosotros llegue a su fin.
 
 ## Salmo 85:5
 
@@ -33,43 +33,43 @@
 
 ## Salmo 85:6
 
-> ¿No nos darás vida de nuevo,  
->  Para que Tu pueblo se regocije en Ti?
+> ¿No vas a devolvernos la vida,  
+>  para que Tu pueblo se alegre en Ti?
 
 ## Salmo 85:7
 
-> Revela Tu misericordia a nosotros, Señor,  
->  Y concédenos Tu salvación.
+> Señor,  
+>  déjanos ver Tu misericordia y regálanos Tu salvación.
 
 ---
 
 ## Salmo 85:8
 
-> Escucharé lo que Dios el Señor dirá;  
->  Porque hablará paz a Su pueblo, a Sus fieles;  
->  Y que no vuelvan a la necedad.
+> Voy a escuchar lo que dice Dios, el Señor:  
+>  Él promete paz a Su pueblo, a los que Le son fieles;  
+>  que no vuelvan a caer en la locura.
 
 ## Salmo 85:9
 
-> Ciertamente Su salvación está cerca de los que Le reverencian,  
->  Para que la gloria resida en nuestra tierra.
+> Sí, Su salvación está cerca de los que Le honran,  
+>  para que la gloria viva en nuestra tierra.
 
 ---
 
 ## Salmo 85:10
 
-> La misericordia y la verdad se han encontrado;  
->  La justicia y la paz se han abrazado.
+> La misericordia y la verdad se han dado cita;  
+>  la justicia y la paz se abrazan.
 
 ## Salmo 85:11
 
-> La verdad brota de la tierra,  
->  Y la justicia mira desde el cielo.
+> De la tierra brota la verdad,  
+>  y desde el cielo se asoma la justicia.
 
 ## Salmo 85:12
 
 > En verdad, el Señor proveerá lo que es bueno,  
->  Y nuestra tierra dará su cosecha.
+>  y nuestra tierra dará su cosecha.
 
 ## Salmo 85:13
 

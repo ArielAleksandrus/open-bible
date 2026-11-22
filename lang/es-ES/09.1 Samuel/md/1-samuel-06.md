@@ -6,38 +6,38 @@ El arca del Señor estuvo en territorio filisteo durante siete meses.
 
 ## 1 Samuel 6:2
 
-Entonces los filisteos llamaron a los sacerdotes y adivinos y dijeron: “¿Qué debemos hacer con el arca del Señor? Dígannos cómo debemos enviarla de vuelta a su lugar.”
+Entonces los filisteos llamaron a los sacerdotes y adivinos y dijeron: “¿Qué debemos hacer con el arca del Señor? Decidnos cómo debemos enviarla de vuelta a su lugar.”
 
 ## 1 Samuel 6:3
 
-Ellos respondieron: “Si devuelven el arca del Dios de Israel, no la envíen vacía, sino asegúrense de enviar con ella una ofrenda por el pecado. Entonces serán sanados, y comprenderán por qué Su mano no se ha apartado de ustedes.”
+Ellos respondieron: “Si devolvéis el arca del Dios de Israel, no la enviéis vacía, sino aseguraos de enviar con ella una ofrenda por la culpa. Entonces seréis sanados, y comprenderéis por qué Su mano no se ha apartado de vosotros.”
 
 ## 1 Samuel 6:4
 
-Los filisteos preguntaron: “¿Qué ofrenda por el pecado debemos enviarle?”  
- Ellos respondieron: “Cinco tumores de oro y cinco ratas de oro, conforme al número de los gobernantes filisteos, porque la misma plaga los ha golpeado a todos ustedes y a sus gobernantes.
+Los filisteos preguntaron: “¿Qué ofrenda por la culpa debemos enviarle?”  
+ Ellos respondieron: “Cinco tumores de oro y cinco ratas de oro, conforme al número de los gobernantes filisteos, porque la misma plaga os ha golpeado a todos vosotros y a vuestros gobernantes.
 
 ## 1 Samuel 6:5
 
-Así que hagan modelos de los tumores y de las ratas que están devastando su tierra, y den honor al Dios de Israel. Tal vez Él levante Su mano de ustedes, de sus dioses y de su tierra.
+Así que haced modelos de los tumores y de las ratas que están devastando vuestra tierra, y dad honor al Dios de Israel. Tal vez Él levante Su mano de vosotros, de vuestros dioses y de vuestra tierra.
 
 ## 1 Samuel 6:6
 
-¿Por qué endurecen sus corazones como lo hicieron los egipcios y el faraón? Después de que Él trató duramente con ellos, ¿no dejaron ir al pueblo, y ellos se fueron?
+¿Por qué endurecéis vuestros corazones como lo hicieron los egipcios y el faraón? Después de que Él trató duramente con ellos, ¿no dejaron ir al pueblo, y ellos se fueron?
 
 ---
 
 ## 1 Samuel 6:7
 
-Ahora bien, hagan un carro nuevo y tomen dos vacas que han parido recientemente y que nunca han sido uncidas. Enganchen las vacas al carro, pero lleven a sus terneros y enciérrenlos.
+Ahora bien, haced un carro nuevo y tomad dos vacas que hayan parido recientemente y que nunca hayan sido uncidas. Enganchad las vacas al carro, pero apartad a sus terneros y encerradlos.
 
 ## 1 Samuel 6:8
 
-Luego pongan el arca del Señor en el carro y coloquen en una caja al lado los objetos de oro que están enviando como ofrenda por el pecado. Envíenlo, y déjenlo ir por su camino.
+Luego poned el arca del Señor en el carro y colocad en una caja a su lado los objetos de oro que enviáis como ofrenda por la culpa. Enviadlo, y dejadlo ir por su camino.
 
 ## 1 Samuel 6:9
 
-Observen para ver qué hace. Si sube hacia su propia tierra, a Bet-semes, entonces el Señor ha traído este desastre sobre nosotros. Pero si no lo hace, entonces sabremos que no fue Su mano la que nos golpeó, sino que sucedió por casualidad.”
+Observad para ver qué hace. Si sube hacia su propia tierra, a Bet-semes, entonces el Señor ha traído este desastre sobre nosotros. Pero si no lo hace, entonces sabremos que no fue Su mano la que nos golpeó, sino que sucedió por casualidad.”
 
 ---
 
@@ -77,7 +77,7 @@ Cuando los cinco gobernantes de los filisteos vieron esto, regresaron a Ecrón e
 
 ## 1 Samuel 6:17
 
-Estos son los tumores de oro que los filisteos enviaron como ofrenda por el pecado al Señor: uno por Asdod, Gaza, Ascalón, Gat y Ecrón.
+Estos son los tumores de oro que los filisteos enviaron como ofrenda por la culpa al Señor: uno por Asdod, Gaza, Ascalón, Gat y Ecrón.
 
 ## 1 Samuel 6:18
 
@@ -95,4 +95,4 @@ Y los hombres de Bet-semes dijeron: “¿Quién puede estar en la presencia del 
 
 ## 1 Samuel 6:21
 
-Así que enviaron mensajeros al pueblo de Quiriat-jearim, diciendo: “Los filisteos han devuelto el arca del Señor. Bajen y llévenla con ustedes.”
+Así que enviaron mensajeros al pueblo de Quiriat-jearim, diciendo: “Los filisteos han devuelto el arca del Señor. Bajad y llevadla con vosotros.”

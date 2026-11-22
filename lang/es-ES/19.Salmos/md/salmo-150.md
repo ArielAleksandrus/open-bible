@@ -4,31 +4,31 @@
 
 > ¡Alabad al Señor!
 
->  Alabad a Dios en su santuario;  
->  Alabadle en la magnificencia de su firmamento.
+>  Dad honra a Dios en su santo templo;  
+>  alabadlo en la inmensidad de su cielo.
 
 ## Salmo 150:2
 
-> Alabadle por sus proezas;  
->  Alabadle conforme a la muchedumbre de su grandeza.
+> Dadle honra por sus grandes proezas;  
+>  alabadlo por su grandeza sin igual.
 
 ## Salmo 150:3
 
-> Alabadle a son de bocina;  
->  Alabadle con salterio y arpa.
+> Dadle honra con el toque de la trompeta;  
+>  alabadlo con el arpa y la lira.
 
 ## Salmo 150:4
 
-> Alabadle con pandero y danza;  
->  Alabadle con cuerdas y flauta.
+> Dadle honra con panderos y danzas;  
+>  alabadlo con instrumentos de cuerda y con flautas.
 
 ## Salmo 150:5
 
-> Alabadle con címbalos resonantes;  
->  Alabadle con címbalos de júbilo.
+> Dadle honra con platillos sonoros;  
+>  alabadlo con platillos que retumban.
 
 ## Salmo 150:6
 
-> Todo lo que respira alabe al Señor.
+> ¡Que todo lo que respira alabe al Señor!
 
 >  ¡Alabad al Señor!

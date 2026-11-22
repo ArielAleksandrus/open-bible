@@ -162,7 +162,7 @@ Aquellos que queden se consumirán en las tierras de sus enemigos por causa de s
 
 ## Levítico 26:41
 
-que me hicieron hostil hacia ellos de modo que los envié a la tierra de sus enemigos —entonces cuando sus corazones incircuncisos se humillen y hagan enmiendas por su maldad,—
+que me hicieron hostil hacia ellos de modo que los envié a la tierra de sus enemigos, entonces, cuando sus corazones incircuncisos se humillen y paguen por su maldad,
 
 ## Levítico 26:42
 
@@ -170,7 +170,7 @@ recordaré mi pacto con Jacob, mi pacto con Isaac, y mi pacto con Abraham, y rec
 
 ## Levítico 26:43
 
-Porque la tierra será abandonada por ellos y disfrutará de sus sábados mientras yace desolada sin ellos. Harán enmiendas por sus pecados porque rechazaron mis ordenanzas y aborrecieron mis estatutos.
+Porque la tierra será abandonada por ellos y disfrutará de sus sábados mientras yace desolada sin ellos. Pagarán por sus pecados porque rechazaron mis ordenanzas y aborrecieron mis estatutos.
 
 ## Levítico 26:44
 

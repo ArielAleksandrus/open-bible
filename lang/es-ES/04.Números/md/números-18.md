@@ -34,7 +34,7 @@ Entonces el Señor dijo a Aarón: “Te he puesto a cargo de mis ofrendas; todos
 
 ## Números 18:9
 
-Esto será tuyo de las ofrendas más sagradas, reservadas del fuego; de todos sus dones, ya sean ofrendas de grano, de pecado o de culpa, son muy sagradas para ti y para tus hijos.
+Esto será tuyo de las ofrendas más sagradas, reservadas del fuego; de todos sus dones, ya sean ofrendas de cereal, por el pecado o por la culpa, son muy sagradas para ti y para tus hijos.
 
 ## Números 18:10
 
@@ -42,7 +42,7 @@ Cómetelo como algo muy sagrado; todo varón lo comerá. Considéralo como sagra
 
 ## Números 18:11
 
-Esto también es tuyo: lo que se aparta de los dones de todas las ofrendas mecedoras de los israelitas. Te los doy a ti y a tus hijos e hijas como una parte perpetua. Todos en tu casa que estén ceremonialmente limpios pueden comerlo.
+Esto también es tuyo: lo que se aparta de los dones de todas las ofrendas mecidas de los israelitas. Te los doy a ti y a tus hijos e hijas como una parte perpetua. Todos en tu casa que estén ceremonialmente limpios pueden comerlo.
 
 ## Números 18:12
 
@@ -70,7 +70,7 @@ Pero el primogénito de una vaca, una oveja o una cabra no lo redimirás; son sa
 
 ## Números 18:18
 
-Su carne será tuya, así como el pecho de la ofrenda mecedora y el muslo derecho son tuyos.
+Su carne será tuya, así como el pecho de la ofrenda mecida y el muslo derecho son tuyos.
 
 ## Números 18:19
 
@@ -106,7 +106,7 @@ El Señor luego habló a Moisés, diciendo,
 
 ## Números 18:27
 
-Vuestra ofrenda será acreditada a vosotros como grano del suelo de trilla o jugo del lagar.
+Vuestra ofrenda será acreditada a vosotros como grano de la era o jugo del lagar.
 
 ## Números 18:28
 
@@ -118,7 +118,7 @@ Debéis ofrecer la parte más fina y sagrada de todo lo que se os dé como la po
 
 ## Números 18:30
 
-Diles, ‘Cuando presentéis la mejor parte, se os acreditará como el producto del suelo de trilla o del lagar.
+Diles, ‘Cuando presentéis la mejor parte, se os acreditará como el producto de la era o del lagar.
 
 ## Números 18:31
 

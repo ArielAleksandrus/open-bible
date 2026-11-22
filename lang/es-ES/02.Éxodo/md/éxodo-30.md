@@ -22,7 +22,7 @@ Las varas serán de madera de acacia y recubiertas de oro.
 
 ## Éxodo 30:6
 
-Coloca el altar delante del velo que está cerca del arca del pacto, frente a la cubierta de expiación que está sobre el arca donde me encontraré contigo.
+Coloca el altar delante del velo que está cerca del arca del pacto, frente al propiciatorio que está sobre el arca, donde me encontraré contigo.
 
 ## Éxodo 30:7
 
@@ -30,11 +30,11 @@ Aarón quemará incienso aromático sobre él cada mañana cuando atienda las l�
 
 ## Éxodo 30:8
 
-Cuando Aarón encienda las lámparas al anochecer, quemará incienso de nuevo. Este incienso arderá perpetuamente ante el Señor a lo largo de sus generaciones.
+Cuando Aarón encienda las lámparas al anochecer, quemará incienso de nuevo. Este incienso arderá perpetuamente ante el Señor a lo largo de vuestras generaciones.
 
 ## Éxodo 30:9
 
-No ofrezcan ningún incienso extraño, holocausto, ofrenda de grano ni derramen una ofrenda de bebida sobre este altar.
+No ofrezcáis ningún incienso extraño, holocausto ni ofrenda de cereal, ni derraméis una libación sobre este altar.
 
 ## Éxodo 30:10
 
@@ -58,11 +58,11 @@ Todos los que tengan veinte años o más y sean contados darán esta ofrenda al 
 
 ## Éxodo 30:15
 
-El rico no contribuirá más, ni el pobre menos, que el medio siclo al dar la ofrenda al Señor para hacer expiación por sus vidas.
+El rico no contribuirá más, ni el pobre menos, que el medio siclo al dar la ofrenda al Señor para hacer expiación por vuestras vidas.
 
 ## Éxodo 30:16
 
-Recojan el dinero de la expiación de los israelitas y destínenlo para el servicio de la tienda de reunión. Será un memorial para los israelitas ante el Señor, haciendo expiación por sus vidas.”
+Recoge el dinero de la expiación de los israelitas y destínalo para el servicio de la tienda de reunión. Será un memorial para los israelitas ante el Señor, haciendo expiación por vuestras vidas.”
 
 ## Éxodo 30:17
 
@@ -118,7 +118,7 @@ Conságralos para que sean santísimos; todo lo que los toque será santo.
 
 ## Éxodo 30:30
 
-Uge a Aarón y a sus hijos, consagrándolos para que me sirvan como sacerdotes.
+Unge a Aarón y a sus hijos, consagrándolos para que me sirvan como sacerdotes.
 
 ## Éxodo 30:31
 
@@ -126,7 +126,7 @@ Habla a los israelitas, diciendo: ‘Este será mi aceite sagrado de unción par
 
 ## Éxodo 30:32
 
-No se derramará sobre el cuerpo de nadie más, ni harán otro aceite usando la misma fórmula. Es sagrado, y deben considerarlo sagrado.
+No se derramará sobre el cuerpo de nadie más, ni haréis otro aceite usando la misma fórmula. Es sagrado, y debéis considerarlo sagrado.
 
 ## Éxodo 30:33
 
@@ -134,7 +134,7 @@ Quien haga un perfume como este o lo ponga sobre alguien que no sea sacerdote se
 
 ## Éxodo 30:34
 
-Entonces el Señor dijo a Moisés: “Toma especias aromáticas —estacte, ónice, gálbano e incienso puro— todas en partes iguales,
+Entonces el Señor dijo a Moisés: “Toma especias aromáticas —estacte, uña aromática, gálbano e incienso puro— todas en partes iguales,
 
 ## Éxodo 30:35
 
@@ -146,7 +146,7 @@ Muele un poco de ella hasta convertirla en polvo y colócala delante del arca de
 
 ## Éxodo 30:37
 
-No hagas ningún incienso con esta fórmula para uso personal; considérelo sagrado para el Señor.
+No hagas ningún incienso con esta fórmula para uso personal; considéralo sagrado para el Señor.
 
 ## Éxodo 30:38
 

@@ -31,10 +31,10 @@ Pero los comandantes de los filisteos se enojaron con él,
 
 ## 1 Samuel 29:5
 
-¿No es este David, de quien cantan en las danzas, diciendo,
+¿No es este David, de quien cantan en las danzas, diciendo:
 
 >  ‘Saúl mató a sus miles,  
->  Y David a sus diez miles’?”
+>  y David a sus decenas de miles’?”
 
 ---
 

@@ -49,4 +49,4 @@ y los dos riñones con la grasa que está sobre ellos cerca de los lomos, y el l
 El sacerdote los quemará sobre el altar como alimento, una ofrenda por fuego, un aroma agradable. Toda la grasa es del Señor.
 
 ## Levítico 3:17
-Este es un estatuto perpetuo para todas sus generaciones dondequiera que vivan: no comerán ninguna grasa ni ninguna sangre.’
+Este es un estatuto perpetuo para todas vuestras generaciones dondequiera que habitéis: no comeréis ninguna grasa ni ninguna sangre.’”

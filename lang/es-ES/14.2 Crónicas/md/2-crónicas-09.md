@@ -56,7 +56,7 @@ Entonces ella dio al rey ciento veinte talentos de oro, y una cantidad muy grand
 
 ## 2 Crónicas 9:10
 
-Y los siervos de Huram y los siervos de Salomón, que trajeron oro de Ofir, también trajeron madera de algum y piedras preciosas.
+Y los siervos de Hiram y los siervos de Salomón, que trajeron oro de Ofir, también trajeron madera de algum y piedras preciosas.
 
 ---
 
@@ -122,7 +122,7 @@ Todos los vasos para beber del rey Salomón eran de oro, y todos los utensilios 
 
 ## 2 Crónicas 9:21
 
-Porque los barcos del rey iban a Tarsis con los siervos de Huram; una vez cada tres años los barcos de Tarsis venían trayendo oro, plata, marfil, monos y pavos reales.
+Porque los barcos del rey iban a Tarsis con los siervos de Hiram; una vez cada tres años los barcos de Tarsis venían trayendo oro, plata, marfil, monos y pavos reales.
 
 ---
 
@@ -140,7 +140,7 @@ Y todos los reyes de la tierra buscaban la presencia de Salomón, para oír la s
 
 ## 2 Crónicas 9:24
 
-Traían, cada uno su regalo: artículos de plata y oro, vestiduras, armas, especias, caballos y mulas, tanto año tras año.
+Traían, cada uno su regalo: artículos de plata y oro, vestiduras, armas, especias, caballos y mulas, y así año tras año.
 
 ---
 

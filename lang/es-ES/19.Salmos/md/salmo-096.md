@@ -2,74 +2,74 @@
 
 ## Salmo 96:1
 
-> Cantad al Señor un cántico nuevo;  
->  Cantad al Señor, toda la tierra.
+> Cantadle al Señor una canción nueva;  
+>  cantadle al Señor, habitantes de toda la tierra.
 
 ## Salmo 96:2
 
-> Cantad al Señor, bendecid su nombre;  
->  Anunciad de día en día su salvación.
+> Cantadle al Señor, alabad su nombre;  
+>  cada día dad la buena noticia de que Él salva.
 
 ## Salmo 96:3
 
-> Proclamad su gloria entre las naciones,  
->  Sus maravillas entre todos los pueblos.
+> Contad a las naciones lo glorioso que es,  
+>  y a todos los pueblos las maravillas que hace.
 
 ---
 
 ## Salmo 96:4
 
-> Porque grande es el Señor y digno de suprema alabanza;  
->  Temible sobre todos los dioses.
+> Porque el Señor es grande y merece toda alabanza;  
+>  hay que temerlo más que a todos los dioses.
 
 ## Salmo 96:5
 
-> Porque todos los dioses de los pueblos son ídolos,  
->  Pero el Señor hizo los cielos.
+> Porque todos los dioses de los pueblos no son más que ídolos,  
+>  pero el Señor creó los cielos.
 
 ## Salmo 96:6
 
-> Honor y majestad están delante de Él,  
->  Poder y hermosura en su santuario.
+> Esplendor y majestad lo rodean;  
+>  fuerza y belleza llenan su santuario.
 
 ---
 
 ## Salmo 96:7
 
-> Atribuid al Señor, familias de los pueblos,  
->  Atribuid al Señor la gloria y el poder.
+> Reconoced al Señor, familias de las naciones;  
+>  reconoced que el Señor es glorioso y fuerte.
 
 ## Salmo 96:8
 
-> Atribuid al Señor la gloria debida a su nombre;  
->  Traed ofrendas y entrad en sus atrios.
+> Dadle al Señor la gloria que merece su nombre;  
+>  traed una ofrenda y entrad en sus patios.
 
 ## Salmo 96:9
 
-> Adorad al Señor en la hermosura de la santidad;  
->  Temblad ante Él, toda la tierra.
+> Adorad al Señor vestidos de santidad;  
+>  ¡que tiemble ante Él toda la tierra!
 
 ## Salmo 96:10
 
-> Decid entre las naciones: “El Señor reina;  
->  Ciertamente, el mundo está bien establecido, no será conmovido;  
->  Él juzgará a los pueblos con equidad.”
+> Anunciad a las naciones: “¡El Señor es Rey!  
+>  El mundo está firme y nada lo hará tambalear;  
+>  Él juzgará a los pueblos con rectitud.”
 
 ---
 
 ## Salmo 96:11
 
-> Alégrense los cielos, y gócese la tierra;  
->  Brame el mar y su plenitud;
+> ¡Que se alegren los cielos y salte de gozo la tierra!  
+>  ¡Que retumbe el mar con todo lo que hay en él!
 
 ## Salmo 96:12
 
-> Regocíjese el campo y todo lo que hay en él;  
->  Entonces todos los árboles del bosque cantarán de júbilo
+> ¡Que hagan fiesta los campos con todo lo que contienen!  
+>  Entonces todos los árboles del bosque gritarán de alegría
 
 ## Salmo 96:13
 
-> Delante del Señor, porque Él viene,  
->  Porque Él viene a juzgar la tierra.  
+> ante el Señor, porque viene, sí,  
+>  viene a juzgar la tierra.  
 >  Juzgará al mundo con justicia,  
->  Y a los pueblos con su fidelidad.
+>  y a los pueblos con su fidelidad.

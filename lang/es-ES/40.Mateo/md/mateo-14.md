@@ -42,7 +42,7 @@ El rey se entristeció, pero debido a sus juramentos y a sus invitados, ordenó 
 
 ## Mateo 14:10
 
-Envió órdenes y decapitó a Juan en la prisión.
+Envió órdenes e hizo decapitar a Juan en la prisión.
 
 ## Mateo 14:11
 

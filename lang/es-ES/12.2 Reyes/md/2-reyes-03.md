@@ -67,7 +67,7 @@ Josafat dijo, “La palabra del Señor está con él.”
 
 Eliseo dijo al rey de Israel,  
  “¿Qué tengo yo que ver contigo? Ve a los profetas de tu padre y a los profetas de tu madre.”  
- Pero el rey de Israel le dijo, “No, porque es el Señor quien ha convocado a estos tres reyes para entregarnos en manos de Moab.”
+ Pero el rey de Israel le dijo, “No, porque es el Señor quien nos ha convocado a los tres reyes para entregarnos en manos de Moab.”
 
 ## 2 Reyes 3:14
 
@@ -78,30 +78,30 @@ Eliseo dijo,
 
 ## 2 Reyes 3:15
 
-Pero ahora tráiganme un músico.”  
+Pero ahora traedme un músico.”  
  Y mientras el músico tocaba, la mano del Señor vino sobre Eliseo.
 
 ## 2 Reyes 3:16
 
-Él dijo, “Así dice el Señor: Hagan en este valle muchas zanjas.
+Él dijo, “Así dice el Señor: Haced en este valle muchas zanjas.
 
 ## 2 Reyes 3:17
 
 Porque así dice el Señor:  
- No verán viento ni lluvia,
+ No veréis viento ni lluvia,
 
 >  pero este valle se llenará de agua,  
->  y ustedes, su ganado y sus animales beberán.
+>  y beberéis vosotros, vuestro ganado y vuestros animales.
 
 ## 2 Reyes 3:18
 
 Esto es cosa sencilla a los ojos del Señor.  
- Él también entregará a Moab en sus manos.
+ Él también entregará a Moab en vuestras manos.
 
 ## 2 Reyes 3:19
 
-Conquistarán toda ciudad fortificada y toda ciudad principal.  
- Derribarán todo buen árbol, taparán todos los manantiales y cubrirán de piedras todos los buenos campos.
+Conquistaréis toda ciudad fortificada y toda ciudad principal.  
+ Derribaréis todo buen árbol, taparéis todos los manantiales y cubriréis de piedras todos los buenos campos.
 
 ---
 
@@ -137,7 +137,7 @@ Pero cuando los moabitas llegaron al campamento de Israel, los israelitas se lev
 Destruyeron las ciudades,  
  y cada hombre arrojó piedras sobre cada buen campo hasta que fue cubierto.  
  Taparon todos los manantiales y cortaron todos los buenos árboles.  
- Solo quedó Kir-hareset, pero incluso eso fue rodeado y atacado por honderos.
+ Solo quedó Kir-hareset, pero incluso esa fue rodeada y atacada por honderos.
 
 ---
 

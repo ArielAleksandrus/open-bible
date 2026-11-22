@@ -26,7 +26,7 @@ Tomé a mi concubina, la corté en pedazos, y los envié por todo el territorio 
 
 ## Jueces 20:7
 
-Ahora, todos ustedes, israelitas, den su veredicto y consejo aquí.”
+Ahora, todos vosotros, israelitas, dad vuestro veredicto y consejo aquí.”
 
 ---
 
@@ -48,11 +48,11 @@ Así que todos los hombres de Israel se unieron como uno solo contra la ciudad.
 
 ## Jueces 20:12
 
-Las tribus de Israel enviaron mensajeros por toda la tribu de Benjamín, diciendo: “¿Qué es esta maldad que ha ocurrido entre ustedes?
+Las tribus de Israel enviaron mensajeros por toda la tribu de Benjamín, diciendo: “¿Qué es esta maldad que ha ocurrido entre vosotros?
 
 ## Jueces 20:13
 
-Ahora entreguen a esos hombres malvados de Guibeá para que los matemos y purguemos el mal de Israel.” Pero los benjaminitas se negaron a escuchar a sus hermanos israelitas.
+Ahora entregad a esos hombres malvados de Guibeá para que los matemos y purguemos el mal de Israel.” Pero los benjaminitas se negaron a escuchar a sus hermanos israelitas.
 
 ## Jueces 20:14
 
@@ -92,7 +92,7 @@ Pero los israelitas se animaron mutuamente y retomaron sus posiciones como lo ha
 
 ## Jueces 20:23
 
-Los israelitas subieron y lloraron ante el Señor hasta la tarde, y consultaron al Señor, “¿Debemos subir de nuevo a luchar contra los benjaminitas, nuestros hermanos?” El Señor respondió, “Suban contra ellos.”
+Los israelitas subieron y lloraron ante el Señor hasta la tarde, y consultaron al Señor, “¿Debemos subir de nuevo a luchar contra los benjaminitas, nuestros hermanos?” El Señor respondió, “Subid contra ellos.”
 
 ## Jueces 20:24
 
@@ -112,7 +112,7 @@ Los israelitas consultaron al Señor. (En esos días, el arca del pacto de Dios 
 
 ## Jueces 20:28
 
-con Finees, hijo de Eleazar, hijo de Aarón, ministrando delante de ella.) Preguntaron, “¿Debemos subir de nuevo a luchar contra los benjaminitas, nuestros hermanos, o debemos cesar?” El Señor respondió, “Vayan, porque mañana los entregaré en sus manos.”
+con Finees, hijo de Eleazar, hijo de Aarón, ministrando delante de ella.) Preguntaron, “¿Debemos subir de nuevo a luchar contra los benjaminitas, nuestros hermanos, o debemos cesar?” El Señor respondió, “Id, porque mañana los entregaré en vuestras manos.”
 
 ## Jueces 20:29
 
@@ -140,7 +140,7 @@ Diez mil hombres escogidos de Israel lanzaron un ataque frontal sobre Guibeá. L
 
 ## Jueces 20:35
 
-El Señor derrotó a Benjamín ante Israel, y los israelitas abatieron a 25,100 benjaminitas ese día, todos armados con espadas.
+El Señor derrotó a Benjamín ante Israel, y los israelitas abatieron a veinticinco mil cien benjaminitas ese día, todos armados con espadas.
 
 ## Jueces 20:36
 
@@ -156,7 +156,7 @@ Los israelitas habían acordado con la emboscada que enviarían una gran columna
 
 ## Jueces 20:39
 
-En ese momento, los israelitas lanzarían su contraataque. Los benjaminitas habían comenzado a infligir bajas a los israelitas (unos treinta), y dijeron, “Los estamos derrotando como en la primera batalla.”
+y en ese momento los israelitas lanzarían su contraataque. Los benjaminitas habían comenzado a infligir bajas a los israelitas (unos treinta), y dijeron, “Los estamos derrotando como en la primera batalla.”
 
 ## Jueces 20:40
 

@@ -62,7 +62,7 @@ Al acercarse el final del día, los Doce se acercaron a Él y dijeron: “Despid
 
 ## Lucas 9:15
 
-Los discípulos cumplieron, y todos se sentaron.
+Así lo hicieron los discípulos, y todos se sentaron.
 
 ## Lucas 9:16
 
@@ -176,7 +176,7 @@ Un hombre de la multitud clamó: “Maestro, te ruego que mires a mi hijo, porqu
 
 ## Lucas 9:41
 
-Jesús respondió: “Generación incrédula y perversa, ¿hasta cuándo estaré con vosotros y os soportaré? Traed aquí a tu hijo.”
+Jesús respondió: “Generación incrédula y perversa, ¿hasta cuándo estaré con vosotros y os soportaré? Trae aquí a tu hijo.”
 
 ## Lucas 9:42
 

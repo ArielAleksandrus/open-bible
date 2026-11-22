@@ -42,7 +42,7 @@ Podéis vivir entre nosotros; la tierra está abierta para vosotros. Habitad en 
 
 ## Génesis 34:11
 
-Siquem se dirigió al padre y a los hermanos de Dina, “Concededme favor a vuestros ojos, y os daré lo que pidáis.
+Siquem se dirigió al padre y a los hermanos de Dina, “Que halle yo gracia ante vosotros, y os daré lo que pidáis.
 
 ## Génesis 34:12
 
@@ -90,7 +90,7 @@ Pero los hombres consentirán en vivir con nosotros como un solo pueblo solo con
 
 ## Génesis 34:23
 
-¿No se convertirán su ganado, sus propiedades y todos sus animales en nuestros? Aceptemos sus términos, y se establecerán entre nosotros.”
+¿No serán nuestros su ganado, sus propiedades y todos sus animales? Aceptemos sus términos, y se establecerán entre nosotros.”
 
 ## Génesis 34:24
 

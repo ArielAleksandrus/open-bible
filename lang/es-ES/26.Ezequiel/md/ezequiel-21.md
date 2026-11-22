@@ -19,7 +19,7 @@ Entonces toda carne sabrá que yo, el Señor, he sacado mi espada de su vaina; n
 Por lo tanto, hijo de hombre, gime con un corazón quebrantado y con amargo dolor; gime en su presencia.
 
 ## Ezequiel 21:7
-Y cuando te pregunten, ‘¿Por qué estás gimiendo?’ dirás, ‘Por las noticias que están por venir. Todo corazón se derretirá, todas las manos se debilitarán, todo espíritu desfallecerá, y todas las rodillas se volverán como agua. He aquí, está viniendo, y sucederá,’ declara el Señor Soberano.”
+Y cuando te pregunten, ‘¿Por qué estás gimiendo?’ dirás, ‘Por las noticias que están por venir. Todo corazón se derretirá, todas las manos se debilitarán, todo espíritu desfallecerá, y todas las rodillas se volverán como agua. He aquí, está viniendo, y sucederá,’ declara el Señor Dios.”
 
 ## Ezequiel 21:8
 El mensaje del Señor vino a mí:
@@ -37,10 +37,10 @@ La espada está destinada a ser pulida, a ser empuñada con la mano; está afila
 Clama y gime, hijo de hombre, porque está contra mi pueblo; está contra todos los príncipes de Israel. Son entregados a la espada con mi pueblo. Por lo tanto, golpea tu muslo.
 
 ## Ezequiel 21:13
-Porque hay una prueba; y ¿qué si incluso el cetro que la espada desprecia no continúa? declara el Señor Soberano.
+Porque hay una prueba. ¿Y qué si incluso el cetro que la espada desprecia deja de existir?, declara el Señor Dios.
 
 ## Ezequiel 21:14
-“Así que, hijo de hombre, profetiza y aplaude tus manos. Deja que la espada golpee dos veces, incluso tres veces. Es una espada para la matanza, una espada para gran matanza, rodeándolos.
+“Así que, hijo de hombre, profetiza y bate las palmas. Deja que la espada golpee dos veces, incluso tres veces. Es una espada para la matanza, una espada para gran matanza, rodeándolos.
 
 ## Ezequiel 21:15
 Para que los corazones vacilen y muchos caigan en todas sus puertas, he colocado la espada para la matanza. ¡Ah! Está hecha para brillar como un relámpago, está afilada para la matanza.
@@ -49,13 +49,13 @@ Para que los corazones vacilen y muchos caigan en todas sus puertas, he colocado
 Gira a la derecha, espada; luego gira a la izquierda, dondequiera que se dirija tu hoja.
 
 ## Ezequiel 21:17
-Yo también aplaudiré mis manos, y satisfaré mi ira. Yo, el Señor, he hablado.”
+Yo también batiré las palmas, y satisfaré mi ira. Yo, el Señor, he hablado.”
 
 ## Ezequiel 21:18
 El mensaje del Señor vino a mí:
 
 ## Ezequiel 21:19
-“Hijo de hombre, marca dos caminos para que la espada del rey de Babilonia tome, ambos comenzando desde la misma tierra. Haz un poste indicador en la cabecera del camino hacia la ciudad.
+“Hijo de hombre, marca dos caminos por donde pueda ir la espada del rey de Babilonia, ambos comenzando desde la misma tierra. Haz un poste indicador en la cabecera del camino hacia la ciudad.
 
 ## Ezequiel 21:20
 Marca un camino para que la espada venga a Rabá de los amonitas y a Judá, a la fortificada Jerusalén.
@@ -64,25 +64,25 @@ Marca un camino para que la espada venga a Rabá de los amonitas y a Judá, a la
 Porque el rey de Babilonia está en la bifurcación del camino, en la cabecera de los dos caminos, para buscar un presagio: sacude las flechas, consulta los ídolos, examina el hígado.
 
 ## Ezequiel 21:22
-En su mano derecha está el sorteo para Jerusalén, para establecer arietes, para dar la orden de matanza, para levantar el grito de batalla, para colocar arietes contra las puertas, para construir una rampa y erigir obras de asedio.
+En su mano derecha le sale la suerte para Jerusalén: para establecer arietes, para dar la orden de matanza, para levantar el grito de batalla, para colocar arietes contra las puertas, para construir una rampa y erigir obras de asedio.
 
 ## Ezequiel 21:23
 Parecerá como una adivinación falsa a aquellos que han jurado lealtad a él, pero él les recordará su culpa y los capturará.
 
 ## Ezequiel 21:24
-“Por lo tanto, esto es lo que dice el Señor Soberano: ‘Porque has traído a la mente tu culpa con tu rebelión abierta, revelando tus pecados en todo lo que haces —porque has venido a la mente, serás capturado—.
+“Por lo tanto, esto es lo que dice el Señor Dios: ‘Porque has hecho recordar tu culpa con tu rebelión abierta, dejando ver tus pecados en todo lo que haces, y porque has sido recordado, serás capturado.
 
 ## Ezequiel 21:25
 Y tú, príncipe profano y malvado de Israel, cuyo día ha llegado, en el momento del castigo final,
 
 ## Ezequiel 21:26
-esto es lo que dice el Señor Soberano: Quita el turbante y quita la corona. No será como era: el humilde será exaltado y el exaltado será humillado.
+esto es lo que dice el Señor Dios: Quita el turbante y quita la corona. No será como era: el humilde será exaltado y el exaltado será humillado.
 
 ## Ezequiel 21:27
 ¡Ruina, ruina, ruina lo haré! Esto no será restaurado hasta que venga aquel a quien le pertenece por derecho; a él se lo daré.’
 
 ## Ezequiel 21:28
-“Y tú, hijo de hombre, profetiza y declara, ‘Esto es lo que dice el Señor Soberano sobre los amonitas y sus insultos: Una espada, una espada, desenvainada para la matanza, pulida para consumir y brillar como un relámpago—
+“Y tú, hijo de hombre, profetiza y declara, ‘Esto es lo que dice el Señor Dios sobre los amonitas y sus insultos: Una espada, una espada, desenvainada para la matanza, pulida para consumir y brillar como un relámpago—
 
 ## Ezequiel 21:29
 mientras ven visiones falsas para ti, mientras adivinan mentiras para ti —para colocarte sobre los cuellos de los malvados que serán muertos, cuyo día ha llegado, en el momento del castigo final—.

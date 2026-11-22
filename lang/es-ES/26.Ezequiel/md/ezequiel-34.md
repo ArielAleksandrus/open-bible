@@ -6,7 +6,7 @@ Un mensaje del Señor vino a mí:
 
 ## Ezequiel 34:2
 
-“Hijo de hombre, profetiza contra los pastores de Israel; profetiza y diles: ‘Esto es lo que dice el Señor Soberano: ¡Ay de los pastores de Israel que se han estado alimentando a sí mismos! ¿No deberían los pastores cuidar del rebaño?
+“Hijo de hombre, profetiza contra los pastores de Israel; profetiza y diles: ‘Esto es lo que dice el Señor Dios: ¡Ay de los pastores de Israel que se han estado alimentando a sí mismos! ¿No deberían los pastores cuidar del rebaño?
 
 ## Ezequiel 34:3
 
@@ -22,7 +22,7 @@ Así que se dispersaron por falta de pastor, y cuando se dispersaron, se convirt
 
 ## Ezequiel 34:6
 
-Mi rebaño vagó por todas las montañas y en toda colina alta; se dispersaron por toda la tierra, y nadie los buscó ni los miró.
+Mi rebaño vagó por todas las montañas y en toda colina alta; se dispersaron por toda la tierra, y nadie preguntó por ellos ni los buscó.
 
 ## Ezequiel 34:7
 
@@ -30,7 +30,7 @@ Así que vosotros, pastores, escuchad la palabra del Señor:
 
 ## Ezequiel 34:8
 
-Tan cierto como que yo vivo, declara el Señor Soberano, porque mi rebaño se ha convertido en presa y alimento para todos los animales salvajes, y porque mis pastores no buscaron mi rebaño sino que se cuidaron a sí mismos en lugar de mi rebaño,
+Tan cierto como que yo vivo, declara el Señor Dios, porque mi rebaño se ha convertido en presa y alimento para todos los animales salvajes, y porque mis pastores no buscaron mi rebaño sino que se cuidaron a sí mismos en lugar de mi rebaño,
 
 ## Ezequiel 34:9
 
@@ -38,11 +38,11 @@ Así que vosotros, pastores, prestad atención a la palabra del Señor:
 
 ## Ezequiel 34:10
 
-Esto es lo que dice el Señor Soberano: He aquí, estoy contra los pastores y los haré responsables de mi rebaño. Los quitaré de cuidar el rebaño para que ya no puedan alimentarse a sí mismos. Rescataré a mi rebaño de sus bocas, y ya no será alimento para ellos.
+Esto es lo que dice el Señor Dios: He aquí, estoy contra los pastores y los haré responsables de mi rebaño. Los quitaré de cuidar el rebaño para que ya no puedan alimentarse a sí mismos. Rescataré a mi rebaño de sus bocas, y ya no será alimento para ellos.
 
 ## Ezequiel 34:11
 
-Porque esto es lo que dice el Señor Soberano: He aquí, yo mismo buscaré a mis ovejas y las cuidaré.
+Porque esto es lo que dice el Señor Dios: He aquí, yo mismo buscaré a mis ovejas y las cuidaré.
 
 ## Ezequiel 34:12
 
@@ -58,7 +58,7 @@ Las apacentaré en un buen pasto, y su tierra de pastoreo estará en las alturas
 
 ## Ezequiel 34:15
 
-Yo mismo cuidaré de mis ovejas y las haré acostarse, dice el Señor Soberano.
+Yo mismo cuidaré de mis ovejas y las haré acostarse, dice el Señor Dios.
 
 ## Ezequiel 34:16
 
@@ -66,7 +66,7 @@ Buscaré a las perdidas y haré volver a las descarriadas. Vendaré a las herida
 
 ## Ezequiel 34:17
 
-En cuanto a vosotros, mi rebaño, esto es lo que dice el Señor Soberano: Haré distinciones entre una oveja y otra, y entre carneros y cabras.
+En cuanto a vosotros, mi rebaño, esto es lo que dice el Señor Dios: Haré distinciones entre una oveja y otra, y entre carneros y machos cabríos.
 
 ## Ezequiel 34:18
 
@@ -78,7 +78,7 @@ En cuanto a vosotros, mi rebaño, esto es lo que dice el Señor Soberano: Haré 
 
 ## Ezequiel 34:20
 
-Por tanto, esto es lo que dice el Señor Soberano a ellos: He aquí, yo mismo juzgaré entre las ovejas gordas y las ovejas flacas.
+Por tanto, esto es lo que les dice el Señor Dios: He aquí, yo mismo juzgaré entre las ovejas gordas y las ovejas flacas.
 
 ## Ezequiel 34:21
 
@@ -118,8 +118,8 @@ Proveeré para ellos una tierra famosa por sus cosechas, y ya no sufrirán hambr
 
 ## Ezequiel 34:30
 
-Entonces sabrán que yo, el Señor su Dios, estoy con ellos y que ellos, la casa de Israel, son mi pueblo, declara el Señor Soberano.
+Entonces sabrán que yo, el Señor su Dios, estoy con ellos y que ellos, la casa de Israel, son mi pueblo, declara el Señor Dios.
 
 ## Ezequiel 34:31
 
-Vosotros sois mis ovejas, las ovejas de mi pasto, y yo soy vuestro Dios, dice el Señor Soberano.’”
+Vosotros sois mis ovejas, las ovejas de mi pasto, y yo soy vuestro Dios, dice el Señor Dios.’”

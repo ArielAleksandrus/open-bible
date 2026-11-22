@@ -1,19 +1,19 @@
 # Éxodo Capítulo 35
 
 ## Éxodo 35:1
-Moisés reunió a toda la asamblea de los israelitas y les dijo: “Estas son las instrucciones que el Señor les ha dado para seguir:
+Moisés reunió a toda la asamblea de los israelitas y les dijo: “Estas son las instrucciones que el Señor os ha dado para seguir:
 
 ## Éxodo 35:2
-Durante seis días se trabajará, pero el séptimo día será un día santo para ustedes, un sábado de completo descanso para el Señor. Quien haga cualquier trabajo en él será condenado a muerte.
+Durante seis días se trabajará, pero el séptimo día será un día santo para vosotros, un sábado de completo descanso para el Señor. Quien haga cualquier trabajo en él será condenado a muerte.
 
 ## Éxodo 35:3
-No deben encender fuego en ninguna de sus casas en el día de reposo.”
+No debéis encender fuego en ninguna de vuestras casas en el día de reposo.”
 
 ## Éxodo 35:4
 Moisés se dirigió a toda la asamblea de los israelitas, diciendo: “Esto es lo que el Señor ha ordenado:
 
 ## Éxodo 35:5
-Tomen de lo que tienen una contribución para el Señor. Todo el que esté dispuesto debe traer al Señor una contribución de oro, plata y bronce;
+Tomad de lo que tenéis una contribución para el Señor. Todo el que esté dispuesto debe traer al Señor una contribución de oro, plata y bronce;
 
 ## Éxodo 35:6
 hilo de color violeta, púrpura y escarlata, y lino fino; pelo de cabra;
@@ -28,7 +28,7 @@ aceite para las lámparas; especias para el aceite de la unción y para el incie
 y piedras de ónice y otras gemas para engastar en el efod y el pectoral.
 
 ## Éxodo 35:10
-“Todos los que posean habilidades entre ustedes están invitados a venir y hacer todo lo que el Señor ha ordenado:
+“Todos los que posean habilidades entre vosotros están invitados a venir y hacer todo lo que el Señor ha ordenado:
 
 ## Éxodo 35:11
 el tabernáculo con su tienda y su cubierta, sus ganchos, marcos, travesaños, postes y bases;
@@ -88,7 +88,7 @@ y las especias y el aceite para las lámparas, para el aceite de la unción, y p
 Todos los hombres y mujeres israelitas cuyo corazón fue dispuesto trajeron al Señor ofrendas voluntarias para toda la obra que el Señor a través de Moisés les había ordenado hacer.
 
 ## Éxodo 35:30
-Entonces Moisés dijo a los israelitas: “Vean, el Señor ha llamado por nombre a Bezalel hijo de Uri, hijo de Hur, de la tribu de Judá,
+Entonces Moisés dijo a los israelitas: “Ved, el Señor ha llamado por nombre a Bezalel hijo de Uri, hijo de Hur, de la tribu de Judá,
 
 ## Éxodo 35:31
 y lo ha llenado con el Espíritu de Dios, con sabiduría, entendimiento, conocimiento y toda clase de artesanía—

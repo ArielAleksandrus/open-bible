@@ -4,27 +4,27 @@
 
 ## Salmo 100:1
 
-> Aclama con júbilo al Señor, toda la tierra.
+> ¡Gritad de alegría al Señor, habitantes de toda la tierra!
 
 ## Salmo 100:2
 
-> Sirve al Señor con alegría;  
->  Acércate a Él con cantos de gozo.
+> Servid al Señor con alegría;  
+>  venid ante Él con canciones de gozo.
 
 ## Salmo 100:3
 
-> Reconoce que el Señor es en verdad Dios;  
->  Él es nuestro Creador, y no nos creamos a nosotros mismos;  
->  Le pertenecemos a Él, el rebaño bajo Su cuidado.
+> Reconoced que el Señor es Dios de verdad;  
+>  Él nos creó, no nos hicimos nosotros mismos;  
+>  somos Suyos, el rebaño que Él cuida.
 
 ## Salmo 100:4
 
-> Entra por Sus puertas con gratitud,  
->  Y en Sus atrios con alabanza.  
->  Ofrécele gracias, honra Su nombre.
+> Entrad por Sus puertas dando gracias,  
+>  y en Sus patios con alabanzas.  
+>  Dadle gracias y honrad Su nombre.
 
 ## Salmo 100:5
 
 > Porque el Señor es bueno;  
->  Su bondad perdura para siempre,  
->  Y Su fidelidad continúa a través de todas las generaciones.
+>  Su bondad dura para siempre,  
+>  y Su fidelidad sigue de generación en generación.

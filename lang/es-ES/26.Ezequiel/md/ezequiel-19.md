@@ -1,10 +1,10 @@
 # Ezequiel Capítulo 19
 
 ## Ezequiel 19:1
-"Levanta una lamentación por los príncipes de Israel
+“Levanta una lamentación por los príncipes de Israel
 
 ## Ezequiel 19:2
-y di: '¡Qué leona fue tu madre entre los leones! Se echó entre los leoncillos y crió a sus cachorros.
+y di: ‘¡Qué leona fue tu madre entre los leones! Se echó entre los leoncillos y crió a sus cachorros.
 
 ## Ezequiel 19:3
 Ella sacó adelante a uno de sus cachorros, y se convirtió en un león joven. Aprendió a desgarrar la presa y devoró a las personas.
@@ -40,4 +40,4 @@ Pero fue arrancada con furia y arrojada al suelo. El viento del este secó su fr
 Ahora está situada en el desierto, en una tierra seca y sedienta.
 
 ## Ezequiel 19:14
-El fuego ha surgido de su rama principal y ha consumido sus brotes y fruto. No queda en ella ninguna rama fuerte, apta para un cetro de gobernante.' Esta es una lamentación y debe usarse como una lamentación.
+El fuego ha surgido de su rama principal y ha consumido sus brotes y fruto. No queda en ella ninguna rama fuerte, apta para un cetro de gobernante.’ Esta es una lamentación y debe usarse como una lamentación.”

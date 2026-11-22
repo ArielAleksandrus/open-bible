@@ -6,7 +6,7 @@ El hijo sabio escucha la guía de su padre, pero el burlador no presta atención
 
 ## Proverbios 13:2
 
-Del fruto de la boca de uno, se disfrutan cosas buenas, pero el deseo de los infieles es para la violencia.
+Del fruto de su boca uno disfruta del bien, pero los infieles desean la violencia.
 
 ## Proverbios 13:3
 
@@ -54,7 +54,7 @@ Quien desprecia la instrucción sufrirá por ello, pero quien respeta un mandato
 
 ## Proverbios 13:14
 
-La enseñanza de los sabios es una fuente de vida, apartando a uno de las trampas de la muerte.
+La enseñanza de los sabios es una fuente de vida, para apartarse de las trampas de la muerte.
 
 ## Proverbios 13:15
 

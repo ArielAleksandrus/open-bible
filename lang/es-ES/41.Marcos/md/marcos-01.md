@@ -97,7 +97,7 @@ Los llamó sin demora, y dejaron a su padre Zebedeo en la barca con los jornaler
 
 ## Marcos 1:21
 
-Fueron a Capernaum, y enseguida en el sábado Jesús entró en la sinagoga y comenzó a enseñar.
+Fueron a Capernaúm, y enseguida, el sábado, Jesús entró en la sinagoga y comenzó a enseñar.
 
 ## Marcos 1:22
 
@@ -109,7 +109,7 @@ Justo entonces un hombre en su sinagoga que estaba poseído por un espíritu inm
 
 ## Marcos 1:24
 
-“¿Qué tienes que ver con nosotros, Jesús de Nazaret? ¿Has venido a destruirnos? Sé quién eres —¡el Santo de Dios—!”
+“¿Qué tienes que ver con nosotros, Jesús de Nazaret? ¿Has venido a destruirnos? Sé quién eres: ¡el Santo de Dios!”
 
 ## Marcos 1:25
 
@@ -121,7 +121,7 @@ El espíritu inmundo sacudió al hombre violentamente y salió de él con un fue
 
 ## Marcos 1:27
 
-La gente estaba tan asombrada que se preguntaban unos a otros, “¿Qué es esto? ¡Una nueva enseñanza —con autoridad! Incluso manda a los espíritus inmundos, y le obedecen—.”
+La gente estaba tan asombrada que se preguntaban unos a otros, “¿Qué es esto? ¡Una nueva enseñanza, y con autoridad! Incluso manda a los espíritus inmundos, y le obedecen.”
 
 ## Marcos 1:28
 

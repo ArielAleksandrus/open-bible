@@ -18,7 +18,7 @@ Pedro comenzó y les explicó todo de manera ordenada:
 
 ## Hechos 11:5
 
-“Estaba yo en la ciudad de Jope orando, y en un éxtasis vi una visión: algo como un gran lienzo que descendía del cielo por sus cuatro esquinas, y bajó hasta donde yo estaba.
+“Yo estaba orando en la ciudad de Jope, y en un éxtasis tuve una visión: algo parecido a un gran lienzo que bajaban del cielo por las cuatro puntas, y que llegó hasta donde yo estaba.
 
 ## Hechos 11:6
 

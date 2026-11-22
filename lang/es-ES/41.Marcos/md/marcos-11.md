@@ -6,7 +6,7 @@ Cuando se acercaban a Jerusalén, junto a Betfagé y Betania, cerca del Monte de
 
 ## Marcos 11:2
 
-y les dijo: “Id a la aldea que está enfrente de vosotros, y tan pronto como entréis en ella, encontraréis un pollino atado, en el cual nadie ha montado jamás; desatadlo y traedlo.
+y les dijo: “Id a la aldea que tenéis delante, y nada más entrar encontraréis atado un burrito que nadie ha montado nunca; soltadlo y traedlo aquí.
 
 ## Marcos 11:3
 
@@ -74,7 +74,7 @@ y no permitía que nadie llevase mercancía por el templo.
 
 ## Marcos 11:17
 
-Mientras les enseñaba, decía: “¿No está escrito: ‘Mi casa será llamada casa de oración para todas las naciones’? Pero vosotros la habéis hecho cueva de ladrones.”
+Mientras les enseñaba, decía: “¿No está escrito: ‘Mi casa será conocida como casa de oración para todas las naciones’? Pero vosotros la habéis convertido en una guarida de bandidos.”
 
 ## Marcos 11:18
 
@@ -104,7 +104,7 @@ Jesús respondió: “Tened fe en Dios.”
 
 ## Marcos 11:24
 
-Por eso os digo, todo lo que pidáis en oración, creed que lo recibiréis, y os será concedido.
+Por eso os digo, todo lo que pidáis en oración, creed que ya lo habéis recibido, y os será concedido.
 
 ## Marcos 11:25
 

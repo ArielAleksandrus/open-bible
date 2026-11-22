@@ -38,7 +38,7 @@ Entonces dijeron al rey:
 ## 2 Samuel 21:6
 
 Que se nos entreguen siete hombres de sus hijos,  
- y los colgaremos delante del Señor en Gabaón de Saúl,  
+ y los colgaremos delante del Señor en Guibeá de Saúl,  
  el elegido del Señor.”  
  Y el rey dijo: “Os los daré.”
 
@@ -56,7 +56,7 @@ Pero el rey perdonó a Mefiboset,
 Así que el rey tomó a los dos hijos de Rizpa, hija de Aja,  
  que ella dio a luz a Saúl —Armoni y Mefiboset— y a los cinco hijos de Merab,  
  hija de Saúl,  
- que ella dio a luz a Adriel hijo de Barzilai el Meholatita.
+ que ella dio a luz a Adriel hijo de Barzilai el meholatita.
 
 ## 2 Samuel 21:9
 
@@ -126,7 +126,7 @@ Pero Abisai, hijo de Sarvia, vino en su ayuda y golpeó al filisteo y lo mató.
 ## 2 Samuel 21:18
 
 Después de esto hubo otra guerra con los filisteos en Gob.  
- Entonces Sibecai el Husatita derribó a Saf,  
+ Entonces Sibecai el husatita derribó a Saf,  
  que era uno de los descendientes del gigante.
 
 ## 2 Samuel 21:19

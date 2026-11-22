@@ -4,33 +4,33 @@
 
 ## Salmo 56:1
 
-> Ten piedad de mí, Dios, porque un hombre me ha pisoteado;  
->  Peleando todo el día me oprime.
+> Dios, ten compasión de mí, porque un hombre me ha pisoteado;  
+>  Me ataca todo el día y no me deja en paz.
 
 ## Salmo 56:2
 
-> Mis adversarios me han perseguido durante todo el día,  
->  Porque numerosos son los que contienden contra mí con orgullo.
+> Mis adversarios me persiguen el día entero,  
+>  porque son muchos los que me hacen la guerra con arrogancia.
 
 ---
 
 ## Salmo 56:3
 
-> En tiempos de miedo,  
+> Cuando tenga miedo,  
 >  Pondré mi confianza en Ti.
 
 ## Salmo 56:4
 
 > En Dios, cuya palabra alabo,  
->  En Dios he puesto mi confianza; no temeré.  
->  ¿Qué pueden hacerme los simples mortales?
+>  en Dios he puesto mi confianza; no tendré miedo.  
+>  ¿Qué me pueden hacer unos simples mortales?
 
 ---
 
 ## Salmo 56:5
 
 > Durante todo el día retuercen mis palabras;  
->  Todos sus planes son contra mí para hacerme daño.
+>  todos sus planes son contra mí para hacerme daño.
 
 ## Salmo 56:6
 
@@ -53,20 +53,20 @@
 
 ## Salmo 56:9
 
-> Entonces mis enemigos retrocederán el día que llame;  
->  Esto sé, que Dios está conmigo.
+> Entonces mis enemigos se echarán atrás el día que yo te llame;  
+>  Una cosa sé: Dios está conmigo.
 
 ---
 
 ## Salmo 56:10
 
 > En Dios, cuya palabra alabo,  
->  En el Señor, cuyo mensaje honro,
+>  en el Señor, cuyo mensaje respeto,
 
 ## Salmo 56:11
 
-> En Dios he puesto mi confianza, no temeré.  
->  ¿Qué puede hacerme el mundo?
+> En Dios he puesto mi confianza, no tendré miedo.  
+>  ¿Qué me puede hacer el mundo?
 
 ---
 
@@ -77,6 +77,6 @@
 
 ## Salmo 56:13
 
-> Porque has rescatado mi alma de la muerte,  
->  En verdad mis pies de tropezar,  
->  Para que pueda caminar delante de Dios En la claridad de la vida.
+> Porque me has librado de la muerte, sí,  
+>  has evitado que mis pies tropiecen,  
+>  para que yo pueda andar delante de Dios A la luz de la vida.

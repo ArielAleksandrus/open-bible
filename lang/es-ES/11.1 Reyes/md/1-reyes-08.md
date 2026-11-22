@@ -109,14 +109,14 @@ Pero el Señor dijo a mi padre David,
 
 ## 1 Reyes 8:19
 
-Pero, no construirás la casa,  
- sino tu hijo que nacerá de ti,  
+Pero tú no construirás la casa,  
+ sino que tu hijo, que nacerá de ti,  
  construirá la casa para mi nombre.’
 
 ## 1 Reyes 8:20
 
 Ahora el Señor ha cumplido su palabra que habló,  
- porque he surgido en lugar de mi padre David y me siento en el trono de Israel,  
+ porque me he levantado en lugar de mi padre David y me siento en el trono de Israel,  
  como el Señor prometió,  
  y he construido la casa para el nombre del Señor, el Dios de Israel.
 
@@ -143,7 +143,7 @@ Dijo,
 ## 1 Reyes 8:24
 
 que has guardado con tu siervo, mi padre David, lo que le prometiste;  
- has hablado con tu boca y lo has cumplido con tu mano, como es este día.
+ has hablado con tu boca y lo has cumplido con tu mano, como sucede hoy.
 
 ## 1 Reyes 8:25
 
@@ -190,7 +190,7 @@ Y escucha la súplica de tu siervo y de tu pueblo Israel cuando oren hacia este 
 
 ## 1 Reyes 8:31
 
-Si alguien peca contra su vecino y se le requiere tomar un juramento,  
+Si alguien peca contra su vecino y se le exige que jure,  
  y él viene y jura ante tu altar en esta casa,
 
 ## 1 Reyes 8:32
@@ -339,7 +339,7 @@ Porque los has separado de todos los pueblos de la tierra como tu herencia,
 
 Cuando Salomón terminó de orar toda esta oración y súplica al Señor,  
  se levantó de delante del altar del Señor,  
- de arrodillarse sobre sus rodillas con sus manos extendidas hacia el cielo.
+ donde había estado arrodillado con sus manos extendidas hacia el cielo.
 
 ## 1 Reyes 8:55
 

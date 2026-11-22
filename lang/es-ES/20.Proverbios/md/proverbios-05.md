@@ -2,7 +2,7 @@
 
 ## Proverbios 5:1
 
-Hijo mío, presta atención a mi sabiduría, y inclina tu oído a mi entendimiento,
+Hijo mío, atiende a lo que te enseño con sabiduría; escucha con atención lo que entiendo,
 
 ## Proverbios 5:2
 
@@ -10,15 +10,15 @@ para que mantengas la discreción, y tus labios preserven el conocimiento.
 
 ## Proverbios 5:3
 
-Porque los labios de una mujer adúltera destilan miel, y su habla es más suave que el aceite;
+Porque de los labios de la mujer adúltera gotea miel, y sus palabras son más suaves que el aceite;
 
 ## Proverbios 5:4
 
-pero al final ella es tan amarga como el ajenjo, tan aguda como una espada de doble filo.
+pero al final resulta amarga como el ajenjo y cortante como una espada de dos filos.
 
 ## Proverbios 5:5
 
-Sus pies descienden a la muerte, sus pasos conducen directamente al Seol.
+Sus pasos bajan a la muerte; sus pies van derechos al Seol.
 
 ## Proverbios 5:6
 
@@ -28,15 +28,15 @@ Ella no considera el camino de la vida; sus caminos son inestables, y ella no lo
 
 ## Proverbios 5:7
 
-Por tanto, hijos míos, escúchenme y no se aparten de mis palabras.
+Así que, hijos míos, hacedme caso y no os alejéis de lo que os digo.
 
 ## Proverbios 5:8
 
-Mantén tu camino lejos de ella, y no te acerques a la puerta de su casa,
+Aléjate de ella todo lo que puedas; ni te arrimes a la puerta de su casa,
 
 ## Proverbios 5:9
 
-no sea que des tu honor a otros, y tus años al cruel;
+para que no tengas que entregar tu honra a otros ni tus años a un hombre cruel;
 
 ## Proverbios 5:10
 
@@ -44,7 +44,7 @@ no sea que los extraños se llenen de tu riqueza, y tus posesiones ganadas con e
 
 ## Proverbios 5:11
 
-y al final, gemirás cuando tu carne y tu cuerpo estén consumidos,
+y para que al final no acabes gimiendo cuando tu cuerpo esté gastado y sin fuerzas,
 
 ## Proverbios 5:12
 
@@ -66,7 +66,7 @@ Bebe agua solo de tus propias tinajas, y saca solo agua fresca de tus propios po
 
 ## Proverbios 5:16
 
-¿Deberían tus manantiales desbordarse en las calles, tus corrientes de agua en las plazas públicas?
+¿Vas a dejar que tus manantiales se derramen por la calle, y tus arroyos corran por las plazas?
 
 ## Proverbios 5:17
 
@@ -88,11 +88,11 @@ Una cierva amorosa, una gacela graciosa —que sus pechos te satisfagan siempre,
 
 ## Proverbios 5:21
 
-Porque los caminos de todos están ante los ojos del Señor, y Él examina todos sus senderos.
+Porque el Señor ve todo lo que cada uno hace, y se fija en cada uno de sus pasos.
 
 ## Proverbios 5:22
 
-Las maldades de los impíos los atraparán, y serán retenidos por las cuerdas de sus pecados.
+Al malvado lo atrapan sus propias maldades; queda amarrado con las cuerdas de su pecado.
 
 ## Proverbios 5:23
 

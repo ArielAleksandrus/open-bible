@@ -116,7 +116,7 @@ Cuando llegó allí, tocó una trompeta en la región montañosa de Efraín, y l
 
 ## Jueces 3:28
 
-Él les dijo: "Síganme, porque el Señor ha entregado a vuestros enemigos, los moabitas, en vuestras manos". Lo siguieron y tomaron el control de los vados del Jordán que conducen a Moab, no permitiendo que nadie cruzara.
+Él les dijo: "Seguidme, porque el Señor ha entregado a vuestros enemigos, los moabitas, en vuestras manos". Lo siguieron y tomaron el control de los vados del Jordán que conducen a Moab, no permitiendo que nadie cruzara.
 
 ## Jueces 3:29
 

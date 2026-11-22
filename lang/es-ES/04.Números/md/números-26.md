@@ -26,7 +26,7 @@ de Hezrón, la familia de los hezronitas; de Carmi, la familia de los carmitas.
 
 ## Números 26:7
 
-Estas fueron las familias de los rubenitas, y los contados fueron 43,730.
+Estas fueron las familias de los rubenitas, y los contados fueron 43 730.
 
 ## Números 26:8
 
@@ -54,7 +54,7 @@ de Zera, la familia de los zeraítas; de Saúl, la familia de los saulitas.
 
 ## Números 26:14
 
-Estas fueron las familias de los simeonitas, y los contados fueron 22,200.
+Estas fueron las familias de los simeonitas, y los contados fueron 22 200.
 
 ## Números 26:15
 
@@ -70,7 +70,7 @@ de Arod, la familia de los aroditas; de Areli, la familia de los arelitas.
 
 ## Números 26:18
 
-Estas fueron las familias de los hijos de Gad, y los contados fueron 40,500.
+Estas fueron las familias de los hijos de Gad, y los contados fueron 40 500.
 
 ## Números 26:19
 
@@ -86,7 +86,7 @@ Los descendientes de Fares fueron: de Hezrón, la familia de los hezronitas; de 
 
 ## Números 26:22
 
-Estas fueron las familias de Judá, y los contados fueron 76,500.
+Estas fueron las familias de Judá, y los contados fueron 76 500.
 
 ## Números 26:23
 
@@ -98,7 +98,7 @@ de Jasub, la familia de los jasubitas; de Simrón, la familia de los simronitas.
 
 ## Números 26:25
 
-Estas fueron las familias de Isacar, y los contados fueron 64,300.
+Estas fueron las familias de Isacar, y los contados fueron 64 300.
 
 ## Números 26:26
 
@@ -106,7 +106,7 @@ Los descendientes de Zabulón por sus familias fueron: de Sered, la familia de l
 
 ## Números 26:27
 
-Estas fueron las familias de los zabulonitas, y los contados fueron 60,500.
+Estas fueron las familias de los zabulonitas, y los contados fueron 60 500.
 
 ## Números 26:28
 
@@ -130,11 +130,11 @@ de Semida, la familia de los semidaítas; de Hefer, la familia de los heferitas.
 
 ## Números 26:33
 
-Zelofehad, hijo de Hefer, no tuvo hijos, solo hijas; y los nombres de las hijas de Zelofehad fueron Mahlá, Noa, Hoglá, Milcá y Tirzá.
+Zelofehad, hijo de Hefer, no tuvo hijos, solo hijas; y los nombres de las hijas de Zelofehad fueron Mahla, Noa, Hogla, Milca y Tirsa.
 
 ## Números 26:34
 
-Estas fueron las familias de Manasés, y los contados fueron 52,700.
+Estas fueron las familias de Manasés, y los contados fueron 52 700.
 
 ## Números 26:35
 
@@ -146,7 +146,7 @@ Estos fueron los descendientes de Sutela: de Erán, la familia de los eranitas.
 
 ## Números 26:37
 
-Estas fueron las familias de los hijos de Efraín, y los contados fueron 32,500. Estos fueron los descendientes de José por sus familias.
+Estas fueron las familias de los hijos de Efraín, y los contados fueron 32 500. Estos fueron los descendientes de José por sus familias.
 
 ## Números 26:38
 
@@ -162,7 +162,7 @@ Los descendientes de Bela fueron Ard y Naamán: de Ard, la familia de los ardita
 
 ## Números 26:41
 
-Estas fueron las familias de Benjamín, y los contados fueron 45,600.
+Estas fueron las familias de Benjamín, y los contados fueron 45 600.
 
 ## Números 26:42
 
@@ -170,7 +170,7 @@ Estos fueron los descendientes de Dan por sus familias: de Suham, la familia de 
 
 ## Números 26:43
 
-Todas las familias de los suhamitas, y los contados fueron 64,400.
+Todas las familias de los suhamitas, y los contados fueron 64 400.
 
 ## Números 26:44
 
@@ -186,7 +186,7 @@ Aser tuvo una hija llamada Sera.
 
 ## Números 26:47
 
-Estas fueron las familias de los hijos de Aser, y los contados fueron 53,400.
+Estas fueron las familias de los hijos de Aser, y los contados fueron 53 400.
 
 ## Números 26:48
 
@@ -198,11 +198,11 @@ de Jezer, la familia de los jezeritas; de Silem, la familia de los silemitas.
 
 ## Números 26:50
 
-Estas fueron las familias de Neftalí por sus familias, y los contados fueron 45,400.
+Estas fueron las familias de Neftalí por sus familias, y los contados fueron 45 400.
 
 ## Números 26:51
 
-El número total de los israelitas contados fue 601,730.
+El número total de los israelitas contados fue 601 730.
 
 ## Números 26:52
 
@@ -222,7 +222,7 @@ Asegúrate de que la tierra se distribuya por sorteo. Lo que cada grupo herede s
 
 ## Números 26:56
 
-La herencia se distribuirá por sorteo entre los grupos más grandes y más pequeños.
+La herencia se distribuirá por sorteo entre los grupos más grandes y más pequeños.”
 
 ## Números 26:57
 
@@ -234,7 +234,7 @@ Estas también fueron familias levitas: la familia de los libnitas, la familia d
 
 ## Números 26:59
 
-El nombre de la esposa de Amram era Jocabed, una hija de Leví, que nació a los levitas en Egipto. A Amram le dio a luz Aarón, Moisés y su hermana Miriam.
+El nombre de la esposa de Amram era Jocabed, una hija de Leví, que le nació a Leví en Egipto. Ella le dio a Amram a Aarón, a Moisés y a su hermana Miriam.
 
 ## Números 26:60
 
@@ -246,7 +246,7 @@ Pero Nadab y Abiú murieron cuando ofrecieron fuego no autorizado ante el Señor
 
 ## Números 26:62
 
-Todos los levitas varones de un mes de edad para arriba sumaban 23,000. No fueron contados entre los otros israelitas porque no recibieron herencia entre ellos.
+Todos los levitas varones de un mes de edad para arriba sumaban 23 000. No fueron contados entre los otros israelitas porque no recibieron herencia entre ellos.
 
 ## Números 26:63
 

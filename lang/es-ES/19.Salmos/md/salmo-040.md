@@ -4,108 +4,108 @@
 
 ## Salmo 40:1
 
-> Pacientemente esperé al Señor;  
->  Y Él se inclinó hacia mí y escuchó mi clamor.
+> Esperé con paciencia al Señor;  
+>  y Él se agachó hasta mí y escuchó mi grito.
 
 ## Salmo 40:2
 
-> Me sacó del pozo de la destrucción, del lodo cenagoso;  
->  Y puso mis pies sobre una roca, afirmando mis pasos.
+> Me sacó de la fosa de la muerte, del barro y del fango;  
+>  y me puso de pie sobre una roca, dándome pasos seguros.
 
 ## Salmo 40:3
 
-> Puso en mi boca un cántico nuevo, un himno de alabanza a nuestro Dios;  
->  Muchos verán y temerán,  
->  Y confiarán en el Señor.
+> Me hizo cantar una canción nueva, un himno para alabar a nuestro Dios;  
+>  Muchos lo verán y se llenarán de asombro,  
+>  y confiarán en el Señor.
 
 ---
 
 ## Salmo 40:4
 
-> Bienaventurado el hombre que ha puesto su confianza en el Señor,  
->  Y no se ha vuelto hacia los soberbios, ni a los que se involucran en la falsedad.
+> Feliz el hombre que ha puesto en el Señor su confianza,  
+>  y no se ha dejado llevar por los orgullosos, ni por los que se enredan en la mentira.
 
 ## Salmo 40:5
 
-> Numerosas, Señor mi Dios, son las maravillas que has hecho,  
->  Y tus pensamientos hacia nosotros;  
->  No hay nadie que se compare contigo.  
->  Si quisiera declararlas y hablar de ellas,  
->  Serían incontables.
+> Señor mi Dios, son muchísimas las maravillas que has hecho,  
+>  y los planes que tienes para nosotros;  
+>  nadie se puede comparar contigo.  
+>  Si quisiera anunciarlos y hablar de ellos,  
+>  Serían tantos que no se podrían contar.
 
 ---
 
 ## Salmo 40:6
 
-> No has deseado sacrificios ni ofrendas;  
->  Has abierto mis oídos;  
->  No has requerido holocaustos ni ofrendas por el pecado.
+> Tú no quieres sacrificios ni ofrendas;  
+>  me has abierto los oídos;  
+>  no has pedido holocaustos ni ofrendas por el pecado.
 
 ## Salmo 40:7
 
-> Entonces dije: “Mira, he venido;  
->  Está escrito de mí en el rollo del libro.
+> Entonces dije: “Mira, aquí estoy;  
+>  en el rollo del libro está escrito lo que se refiere a mí.
 
 ## Salmo 40:8
 
-> Me deleito en hacer tu voluntad, Dios mío;  
->  Tu ley está dentro de mi corazón.”
+> Me alegra hacer tu voluntad, Dios mío;  
+>  Llevo tu ley dentro de mi corazón.”
 
 ---
 
 ## Salmo 40:9
 
-> He anunciado la buena nueva de justicia en la gran asamblea;  
->  He aquí, no retendré mis labios, Señor, tú lo sabes.
+> He contado la buena noticia de tu justicia ante todo el pueblo reunido;  
+>  Mira, no voy a quedarme callado, Señor, tú lo sabes.
 
 ## Salmo 40:10
 
-> No he ocultado tu justicia dentro de mi corazón;  
->  He proclamado tu fidelidad y tu salvación;  
->  No he escondido tu misericordia y tu verdad de la gran congregación.
+> No he guardado para mí tu justicia;  
+>  He hablado de tu fidelidad y de tu salvación;  
+>  no he ocultado tu amor ni tu verdad a todo el pueblo reunido.
 
 ---
 
 ## Salmo 40:11
 
-> Tú, Señor, no retendrás tu compasión de mí;  
->  Tu misericordia y tu verdad me guardarán continuamente.
+> Tú, Señor, no me negarás tu compasión;  
+>  Tu amor y tu fidelidad me protegerán siempre.
 
 ## Salmo 40:12
 
-> Porque males sin número me han rodeado;  
->  Mis iniquidades me han alcanzado, de modo que no puedo ver;  
->  Son más numerosas que los cabellos de mi cabeza,  
->  Y mi corazón me ha fallado.
+> Porque me rodean desgracias que no se pueden contar;  
+>  Mis faltas me han alcanzado,  
+>  y ya no puedo ver; son más que los pelos de mi cabeza,  
+>  y he perdido el ánimo.
 
 ## Salmo 40:13
 
-> Complácete, Señor, en librarme;  
->  Date prisa, Señor, en socorrerme.
+> Señor, ten a bien rescatarme;  
+>  Señor, ven pronto a ayudarme.
 
 ---
 
 ## Salmo 40:14
 
-> Sean avergonzados y humillados juntos Los que buscan mi vida para destruirla;  
->  Sean vueltos atrás y deshonrados Los que se complacen en mi mal.
+> Que pasen vergüenza y humillación todos juntos Los que quieren quitarme la vida;  
+>  Que tengan que retroceder deshonrados Los que se alegran de mi mal.
 
 ## Salmo 40:15
 
-> Sean desalentados a causa de su vergüenza Los que me dicen:  
+> Que se queden espantados de su propia vergüenza Los que me dicen:  
 >  “¡Ajá, ajá!”
 
 ## Salmo 40:16
 
-> Regocíjense y alégrense en ti todos los que te buscan;  
->  Digan continuamente los que aman tu salvación:  
->  “¡Sea magnificado el Señor!”
+> Que todos los que te buscan se llenen de alegría y de gozo en ti;  
+>  que los que aman tu salvación digan siempre:  
+>  “¡Grande es el Señor!”
 
 ---
 
 ## Salmo 40:17
 
-> Pero yo estoy afligido y necesitado;  
->  Que el Señor se acuerde de mí.  
->  Tú eres mi ayuda y mi salvador;  
->  No te demores, Dios mío.
+> Pero yo soy pobre y necesitado;  
+>  que el Señor se acuerde de mí.  
+>  Tú eres quien me ayuda y me salva;  
+>  no tardes, Dios mío.

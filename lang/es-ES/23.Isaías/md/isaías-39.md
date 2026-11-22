@@ -13,10 +13,10 @@ Entonces el profeta Isaías vino al rey Ezequías y le preguntó: “¿Qué dije
 El profeta preguntó: “¿Qué vieron en tu palacio?” Ezequías respondió: “Han visto todo en mi palacio; no hay nada entre mis tesoros que no les haya mostrado.”
 
 ## Isaías 39:5
-Isaías entonces se dirigió a Ezequías, diciendo: “Escucha el mensaje del Señor de los Ejércitos:
+Isaías entonces se dirigió a Ezequías, diciendo: “Escucha el mensaje del Señor de los ejércitos:
 
 ## Isaías 39:6
-‘He aquí, vienen días en que todo lo que hay en tu palacio, y todo lo que tus antepasados han almacenado hasta este día, será llevado a Babilonia. No quedará nada,’ dice el Señor.
+‘Se acerca el día en que todo lo que hay en tu palacio, y todo lo que tus antepasados han ido guardando hasta hoy, será llevado a Babilonia. No quedará nada,’ dice el Señor.
 
 ## Isaías 39:7
 ‘Y algunos de tus descendientes, tu propia carne y sangre que nacerán de ti, serán llevados, y servirán en el palacio del rey de Babilonia.’”

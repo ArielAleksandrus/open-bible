@@ -58,7 +58,7 @@ Allí presentarán sus ofrendas al Señor: un cordero macho de un año sin defec
 
 ## Números 6:15
 
-junto con una canasta de panes sin levadura hechos de harina fina mezclada con aceite, y tortas sin levadura untadas con aceite, junto con sus ofrendas de cereal y de bebida.
+junto con una canasta de panes sin levadura hechos de harina fina mezclada con aceite, y tortas sin levadura untadas con aceite, junto con sus ofrendas de cereal y sus libaciones.
 
 ## Números 6:16
 
@@ -66,7 +66,7 @@ junto con una canasta de panes sin levadura hechos de harina fina mezclada con a
 
 ## Números 6:17
 
-También ofrecerá el carnero como sacrificio de ofrendas de paz al Señor, junto con la canasta de panes sin levadura; el sacerdote también presentará la ofrenda de cereal y la ofrenda de bebida.
+También ofrecerá el carnero como sacrificio de ofrendas de paz al Señor, junto con la canasta de panes sin levadura; el sacerdote también presentará la ofrenda de cereal y la libación.
 
 ## Números 6:18
 
@@ -106,4 +106,4 @@ que el Señor te mire con bondad y te conceda paz.”’
 
 ## Números 6:27
 
-“De esta manera, invocarán Mi nombre sobre los israelitas, y Yo los bendeciré.”
+“De esta manera, invocarán mi nombre sobre los israelitas, y yo los bendeciré.”

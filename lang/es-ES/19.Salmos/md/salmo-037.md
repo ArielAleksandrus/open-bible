@@ -4,169 +4,168 @@
 
 ## Salmo 37:1
 
-> No te irrites a causa de los malhechores,  
->  Ni tengas envidia de los que hacen iniquidad.
+> No te enfades por culpa de los que hacen el mal,  
+>  ni sientas envidia de los que actúan con maldad.
 
 ## Salmo 37:2
 
-> Porque como la hierba pronto se secarán,  
->  Y como la hierba verde se marchitarán.
+> Porque pronto se marchitarán como la hierba,  
+>  y se secarán como las plantas verdes.
 
 ---
 
 ## Salmo 37:3
 
-> Confía en el Señor y haz el bien;  
->  Habita en la tierra y cultiva la fidelidad.
+> Pon tu confianza en el Señor y haz lo bueno;  
+>  vive en la tierra y cultiva la fidelidad.
 
 ## Salmo 37:4
 
-> Deléitate en el Señor;  
->  Y Él concederá las peticiones de tu corazón.
+> Busca tu alegría en el Señor;  
+>  y Él te dará lo que tu corazón desea.
 
 ---
 
 ## Salmo 37:5
 
-> Encomienda al Señor tu camino,  
->  Confía en Él, y Él actuará.
+> Deja tu vida en manos del Señor,  
+>  cuenta con Él, y Él se encargará.
 
 ## Salmo 37:6
 
-> Hará resplandecer tu justicia como la luz,  
->  Y tu derecho como el mediodía.
+> Él hará que tu justicia brille como el amanecer,  
+>  y que tu inocencia resplandezca como el sol de mediodía.
 
 ---
 
 ## Salmo 37:7
 
-> Guarda silencio ante el Señor y espera en Él con paciencia;  
->  No te inquietes por el que prospera en su camino,  
->  Por el hombre que lleva a cabo sus intrigas.
+> Quédate quieto delante del Señor y espera en Él con paciencia;  
+>  no te preocupes por los que triunfan en lo que hacen,  
+>  por los que llevan a cabo sus malos planes.
 
 ---
 
 ## Salmo 37:8
 
-> Deja la ira y abandona el furor;  
->  No te irrites, solo trae perjuicio.
+> Deja a un lado el enojo y abandona la rabia;  
+>  no te enfades, que eso solo trae daño.
 
 ## Salmo 37:9
 
-> Porque los malhechores serán exterminados,  
->  Pero los que esperan en el Señor heredarán la tierra.
+> Porque los que hacen el mal serán eliminados,  
+>  pero los que ponen su esperanza en el Señor recibirán la tierra como herencia.
 
 ---
 
 ## Salmo 37:10
 
-> Dentro de poco, el impío no existirá;  
->  Aunque busques su lugar, no lo encontrarás.
+> Dentro de poco, el malvado ya no estará;  
+>  lo buscarás en su sitio, y no lo encontrarás.
 
 ## Salmo 37:11
 
-> Pero los mansos heredarán la tierra,  
->  Y disfrutarán de abundante paz.
+> Pero los humildes recibirán la tierra como herencia,  
+>  y disfrutarán de una paz completa.
 
 ---
 
 ## Salmo 37:12
 
-> El impío trama contra el justo,  
->  Y cruje sus dientes contra él.
+> El malvado hace planes contra el justo,  
+>  y le enseña los dientes con rabia.
 
 ## Salmo 37:13
 
-> El Señor se ríe de él,  
->  Porque ve que su día viene.
+> El Señor se ríe del malvado,  
+>  porque sabe que le llega su hora.
 
 ---
 
 ## Salmo 37:14
 
-> Los impíos desenvainan la espada Y tensan su arco,  
->  Para derribar al pobre y al necesitado,  
->  Para matar a los de recto proceder.
+> Los malvados sacan la espada Y preparan el arco,  
+>  para derribar al pobre y al necesitado,  
+>  para hacer daño a los que viven con rectitud.
 
 ## Salmo 37:15
 
-> Su espada entrará en su propio corazón,  
->  Y sus arcos serán quebrados.
+> Pero su espada se les clavará en su propio corazón,  
+>  y sus arcos acabarán hechos pedazos.
 
 ---
 
 ## Salmo 37:16
 
-> Mejor es lo poco del justo Que la abundancia de muchos impíos.
+> Vale más lo poco que tiene el justo Que la riqueza de muchos malvados.
 
 ## Salmo 37:17
 
-> Porque los brazos de los impíos serán quebrados,  
->  Pero el Señor sostiene a los justos.
+> Porque la fuerza de los malvados será quebrada,  
+>  pero el Señor da su apoyo a los justos.
 
 ---
 
 ## Salmo 37:18
 
-> El Señor conoce los días de los íntegros,  
->  Y su herencia será perpetua.
+> El Señor cuida la vida de los íntegros,  
+>  y lo que reciben como herencia durará para siempre.
 
 ## Salmo 37:19
 
-> No serán avergonzados en el tiempo malo,  
->  Y en los días de hambre serán saciados.
+> No pasarán vergüenza en los tiempos difíciles,  
+>  y cuando haya hambre tendrán comida de sobra.
 
 ---
 
 ## Salmo 37:20
 
-> Pero los impíos perecerán;  
->  Los enemigos del Señor se desvanecerán como la hermosura de los campos,  
->  Se desvanecerán como el humo.
+> Pero los malvados morirán;  
+>  los enemigos del Señor se esfumarán como la belleza de las praderas,  
+>  desaparecerán como el humo.
 
 ---
 
 ## Salmo 37:21
 
-> El impío toma prestado y no paga,  
->  Pero el justo es compasivo y da.
+> El malvado pide prestado y no devuelve,  
+>  pero el justo es generoso y da.
 
 ## Salmo 37:22
 
-> Porque los benditos por Él heredarán la tierra,  
->  Pero los malditos por Él serán exterminados.
+> Los que Él bendice recibirán la tierra como herencia,  
+>  pero los que Él maldice serán eliminados.
 
 ---
 
 ## Salmo 37:23
 
-> El Señor afirma los pasos del hombre que se deleita en Él;  
->  Se complace en su camino.
+> El Señor da pasos firmes al que encuentra su alegría en Él;  
+>  le agrada su manera de vivir.
 
 ## Salmo 37:24
 
-> Aunque caiga, no quedará postrado,  
->  Porque el Señor sostiene su mano.
+> Aunque tropiece, no se caerá,  
+>  porque el Señor lo sostiene de la mano.
 
 ---
 
 ## Salmo 37:25
 
-> Joven fui, y he envejecido,  
->  Y no he visto al justo desamparado,  
->  Ni a su descendencia mendigando pan.
+> Fui joven y ahora soy viejo,  
+>  y nunca he visto al justo abandonado ni a sus hijos pidiendo pan.
 
 ## Salmo 37:26
 
-> Siempre es compasivo y presta,  
->  Y su descendencia es para bendición.
+> Siempre es generoso y presta sin reparos,  
+>  y sus hijos serán una bendición.
 
 ---
 
 ## Salmo 37:27
 
-> Apártate del mal y haz el bien,  
->  Y vivirás para siempre.
+> Aléjate del mal y haz lo bueno,  
+>  y vivirás en la tierra para siempre.
 
 ## Salmo 37:28
 
@@ -180,72 +179,71 @@
 
 ## Salmo 37:29
 
-> Los justos heredarán la tierra Y vivirán en ella para siempre.
+> Los justos recibirán la tierra como herencia Y vivirán en ella para siempre.
 
 ---
 
 ## Salmo 37:30
 
-> La boca del justo profiere sabiduría,  
->  Y su lengua habla lo que es justo.
+> El justo habla con sabiduría,  
+>  y de su lengua sale lo que es justo.
 
 ## Salmo 37:31
 
-> La ley de su Dios está en su corazón;  
->  Sus pasos no vacilan.
+> Lleva en su corazón la ley de su Dios;  
+>  No da un paso en falso.
 
 ---
 
 ## Salmo 37:32
 
-> El impío acecha al justo,  
->  Buscando matarlo.
+> El malvado espía al justo,  
+>  Buscando la forma de matarlo.
 
 ## Salmo 37:33
 
-> Pero el Señor no lo dejará en sus manos Ni lo condenará cuando sea juzgado.
+> Pero el Señor no lo dejará caer en sus manos Ni dejará que lo condenen cuando lo lleven a juicio.
 
 ---
 
 ## Salmo 37:34
 
-> Espera en el Señor y guarda su camino,  
->  Y Él te exaltará para heredar la tierra;  
->  Cuando los impíos sean destruidos, lo verás.
+> Pon tu esperanza en el Señor y sigue su camino,  
+>  y Él te pondrá en alto para que recibas la tierra como herencia;  
+>  cuando los malvados sean destruidos, tú lo verás.
 
 ---
 
 ## Salmo 37:35
 
-> He visto al impío, poderoso,  
->  Extendiéndose como un laurel verde.
+> He visto a un malvado sin escrúpulos Crecer y extenderse como un árbol frondoso en su propia tierra.
 
 ## Salmo 37:36
 
-> Pero pasó, y he aquí, ya no estaba;  
->  Lo busqué, y no fue hallado.
+> Pero al poco tiempo ya no estaba, había desaparecido;  
+>  lo busqué, y no lo pude encontrar.
 
 ---
 
 ## Salmo 37:37
 
-> Observa al íntegro, mira al justo;  
->  Porque hay un futuro para el hombre de paz.
+> Fíjate en el que es íntegro, observa al que es recto;  
+>  porque el que busca la paz tiene un futuro.
 
 ## Salmo 37:38
 
-> Pero los transgresores serán destruidos a una;  
->  El futuro de los impíos será cortado.
+> Pero todos los que pecan serán destruidos;  
+>  los malvados no tendrán futuro.
 
 ---
 
 ## Salmo 37:39
 
-> La salvación de los justos viene del Señor;  
->  Él es su fortaleza en el tiempo de angustia.
+> El Señor es quien salva a los justos;  
+>  Él es su refugio seguro cuando llegan los problemas.
 
 ## Salmo 37:40
 
-> El Señor los ayuda y los libra;  
->  Los libra de los impíos y los salva,  
->  Porque en Él se refugian.
+> El Señor los ayuda y los pone a salvo;  
+>  los libra de los malvados y los salva,  
+>  porque se refugian en Él.

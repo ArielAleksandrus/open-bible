@@ -64,7 +64,7 @@ Y os dije: ‘Habéis llegado a la región montañosa de los amorreos, que el Se
 Mirad, el Señor vuestro Dios ha puesto la tierra delante de vosotros; subid y tomad posesión de ella, tal como el Señor, el Dios de vuestros antepasados, os ha dicho. No tengáis miedo ni os desaniméis.’
 
 ## Deuteronomio 1:22
-“Entonces todos vosotros vinisteis a mí y dijisteis: ‘Dejemos que enviemos hombres delante de nosotros para que exploren la tierra y nos traigan un informe sobre la ruta que debemos tomar y las ciudades a las que llegaremos.’
+“Entonces todos vosotros vinisteis a mí y dijisteis: ‘Enviemos hombres delante de nosotros para que exploren la tierra y nos traigan un informe sobre la ruta que debemos tomar y las ciudades a las que llegaremos.’
 
 ## Deuteronomio 1:23
 El plan me pareció bien, así que seleccioné a doce de vosotros, un hombre por cada tribu.
@@ -82,7 +82,7 @@ Sin embargo, no quisisteis subir; os rebelasteis contra el mandato del Señor vu
 Os quejasteis en vuestras tiendas y dijisteis: ‘Porque el Señor nos odia, nos ha sacado de Egipto para entregarnos en manos de los amorreos para destruirnos.
 
 ## Deuteronomio 1:28
-¿A dónde podemos ir? Nuestros hermanos han hecho que nuestros corazones se derritan, diciendo: “La gente es más fuerte y más alta que nosotros; las ciudades son grandes y fortificadas hasta el cielo. Incluso vimos allí a los anakitas.”’
+¿A dónde podemos ir? Nuestros hermanos han hecho que nuestros corazones se derritan, diciendo: “La gente es más fuerte y más alta que nosotros; las ciudades son grandes y fortificadas hasta el cielo. Incluso vimos allí a los anaceos.”’
 
 ## Deuteronomio 1:29
 Os animé, diciendo: ‘No os aterroricéis ni les temáis.
@@ -136,4 +136,4 @@ Los amorreos que vivían en esas colinas salieron contra vosotros; os persiguier
 Regresasteis y llorasteis ante el Señor, pero Él no prestó atención a vuestro llanto y os dio la espalda.
 
 ## Deuteronomio 1:46
-Así que os quedasteis en Cades muchos días, todo el tiempo que pasasteis allí.
+Así que os quedasteis en Cades muchos días, todo el tiempo que pasasteis allí.”

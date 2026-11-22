@@ -22,50 +22,49 @@ Tened entre vosotros la misma actitud que tuvo Cristo Jesús:
 
 ## Filipenses 2:6
 
-> quien, siendo en forma de Dios,
->  no consideró el ser igual a Dios como algo a lo que aferrarse para su propio provecho;
+> quien, aunque existía con la naturaleza de Dios,
+>  no se aferró a ser igual a Dios para su propio provecho;
 
 ## Filipenses 2:7
 
-> sino que se despojó a sí mismo tomando la forma de siervo,
->  hecho semejante a los hombres.
+> sino que renunció a todo y tomó la naturaleza de un servidor,
+>  haciéndose semejante a los seres humanos.
 
 ## Filipenses 2:8
 
-> Y al ser hallado en condición de hombre,
->  se humilló a sí mismo haciéndose obediente hasta la muerte,
->  y muerte de cruz.
+> Y al presentarse como un hombre cualquiera,
+>  se rebajó a sí mismo y obedeció hasta el punto de morir,
+>  y de morir en una cruz.
 
 ## Filipenses 2:9
 
-> Por lo cual Dios lo exaltó hasta lo sumo,
->  y le otorgó el nombre que es sobre todo nombre,
+> Por eso Dios lo elevó al lugar más alto y le dio el nombre que está por encima de todos los nombres,
 
 ## Filipenses 2:10
 
-> para que en el nombre de Jesús se doble toda rodilla,
->  en los cielos, en la tierra, y debajo de la tierra,
+> para que ante el nombre de Jesús todos se pongan de rodillas,
+>  en el cielo, en la tierra y debajo de la tierra,
 
 ## Filipenses 2:11
 
-> y toda lengua confiese que Jesucristo es el Señor,
->  para gloria de Dios Padre.
+> y todos reconozcan abiertamente que Jesucristo es el Señor,
+>  para la gloria de Dios Padre.
 
 ## Filipenses 2:12
 
-Así que, amados míos, tal como siempre habéis obedecido, no solo en mi presencia sino mucho más ahora en mi ausencia, ocupaos en vuestra salvación con temor y temblor;
+Así que, queridos míos, ya que siempre habéis obedecido, no solo cuando yo estaba con vosotros, sino mucho más ahora que estoy lejos, seguid llevando a la práctica vuestra salvación con temor y temblor;
 
 ## Filipenses 2:13
 
-porque Dios es quien obra en vosotros tanto el querer como el hacer para cumplir su buen propósito.
+porque es Dios quien actúa en vosotros, haciendo que queráis y que hagáis lo que a Él le agrada.
 
 ## Filipenses 2:14
 
-Haced todo sin murmuraciones ni discusiones,
+Hacedlo todo sin quejas y sin protestas,
 
 ## Filipenses 2:15
 
-para que seáis irreprochables y puros, hijos de Dios sin culpa en una generación torcida y perversa. Entonces resplandeceréis entre ellos como estrellas en el cielo,
+para que seáis intachables y limpios, hijos de Dios sin falta en medio de una gente torcida y perversa. Así brillaréis entre ellos como estrellas en el cielo,
 
 ## Filipenses 2:16
 
@@ -73,11 +72,11 @@ aferrándoos firmemente a la palabra de vida. Así podré gloriarme en el día d
 
 ## Filipenses 2:17
 
-Pero aunque yo sea derramado como libación sobre el sacrificio y servicio de vuestra fe, me alegro y regocijo con todos vosotros.
+Y aunque mi vida se esté derramando como una ofrenda de bebida sobre el sacrificio y el servicio que nace de vuestra fe, estoy contento y me alegro con todos vosotros.
 
 ## Filipenses 2:18
 
-De la misma manera, también vosotros alegraos y regocijaos conmigo.
+Así también vosotros, estad contentos y alegraos conmigo.
 
 ## Filipenses 2:19
 
@@ -89,7 +88,7 @@ Porque no tengo a nadie más de espíritu afín que se preocupe genuinamente por
 
 ## Filipenses 2:21
 
-Porque todos buscan sus propios intereses, no los de Cristo Jesús.
+Porque todos van detrás de sus propios intereses y no de los de Cristo Jesús.
 
 ## Filipenses 2:22
 
@@ -113,7 +112,7 @@ porque él anhela veros a todos y está angustiado porque habéis oído que esta
 
 ## Filipenses 2:27
 
-Pues en verdad estuvo enfermo, y casi muere. Pero Dios tuvo misericordia de él, y no solo de él, sino también de mí, para que no tuviera tristeza sobre tristeza.
+Es verdad que estuvo enfermo, y a punto de morir. Pero Dios tuvo compasión de él, y no solo de él, sino también de mí, para que no tuviera que sufrir una tristeza tras otra.
 
 ## Filipenses 2:28
 

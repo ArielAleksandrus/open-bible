@@ -6,7 +6,7 @@ Un mensaje del Señor vino a mí,
 
 ## Ezequiel 28:2
 
-“Hijo de hombre, di al príncipe de Tiro: ‘Esto es lo que dice el Señor Soberano: “En la arrogancia de tu corazón proclamas,
+“Hijo de hombre, di al príncipe de Tiro: ‘Esto es lo que dice el Señor Dios: “En la arrogancia de tu corazón proclamas,
 
  ‘Soy un dios;
  ocupo el asiento de los dioses en el corazón de los mares.’
@@ -29,7 +29,7 @@ Por tu gran habilidad en el comercio has aumentado tus riquezas,
 
 ## Ezequiel 28:6
 
-“‘Por tanto, esto es lo que dice el Señor Soberano:
+“‘Por tanto, esto es lo que dice el Señor Dios:
 
 >  ‘Porque has hecho tu corazón como el corazón de un dios,
 
@@ -56,7 +56,7 @@ Por tu gran habilidad en el comercio has aumentado tus riquezas,
 > Morirás la muerte de los incircuncisos por manos de extranjeros.
 >  He hablado,
 
- declara el Señor Soberano.’”
+ declara el Señor Dios.’”
 
 ## Ezequiel 28:11
 
@@ -64,7 +64,7 @@ Una vez más, un mensaje del Señor vino a mí,
 
 ## Ezequiel 28:12
 
-“Hijo de hombre, levanta una lamentación sobre el rey de Tiro y dile: ‘Esto es lo que dice el Señor Soberano:
+“Hijo de hombre, levanta una lamentación sobre el rey de Tiro y dile: ‘Esto es lo que dice el Señor Dios:
 
 >  “Tú eras el sello de la perfección,
 >  lleno de sabiduría y perfecto en belleza.
@@ -132,7 +132,7 @@ Un mensaje del Señor vino a mí,
 
 ## Ezequiel 28:22
 
-y di, ‘Esto es lo que dice el Señor Soberano:
+y di, ‘Esto es lo que dice el Señor Dios:
 
 >  “He aquí, estoy contra ti, Sidón,
 >  y seré glorificado en medio de ti.
@@ -147,11 +147,11 @@ y di, ‘Esto es lo que dice el Señor Soberano:
 
 ## Ezequiel 28:24
 
-Y ya no habrá para la casa de Israel un zarzal doloroso ni una espina punzante de ninguno de los que los rodean y los desprecian. Entonces sabrán que yo soy el Señor Soberano.
+Y ya no habrá para la casa de Israel un zarzal doloroso ni una espina punzante de ninguno de los que los rodean y los desprecian. Entonces sabrán que yo soy el Señor Dios.
 
 ## Ezequiel 28:25
 
-‘Esto es lo que dice el Señor Soberano: Cuando reúna a la casa de Israel de los pueblos entre los cuales están esparcidos, y me muestre santo entre ellos a la vista de las naciones, entonces habitarán en su propia tierra que di a mi siervo Jacob.
+‘Esto es lo que dice el Señor Dios: Cuando reúna a la casa de Israel de los pueblos entre los cuales están esparcidos, y me muestre santo entre ellos a la vista de las naciones, entonces habitarán en su propia tierra que di a mi siervo Jacob.
 
 ## Ezequiel 28:26
 

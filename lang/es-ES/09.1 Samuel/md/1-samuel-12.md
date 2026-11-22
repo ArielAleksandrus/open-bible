@@ -37,7 +37,7 @@ Cuando Jacob entró en Egipto y vuestros padres clamaron al Señor, entonces el 
 
 ## 1 Samuel 12:9
 
-Pero ellos olvidaron al Señor su Dios, y por eso Él permitió que cayeran en manos de Sísara, comandante del ejército de Hazor, y en manos de los filisteos, y en manos del rey de Moab, y pelearon contra ellos.
+Pero ellos olvidaron al Señor su Dios, y por eso Él los vendió en manos de Sísara, comandante del ejército de Hazor, y en manos de los filisteos, y en manos del rey de Moab, y pelearon contra ellos.
 
 ## 1 Samuel 12:10
 
@@ -45,7 +45,7 @@ Entonces clamaron al Señor y dijeron: ‘Hemos pecado, porque hemos abandonado 
 
 ## 1 Samuel 12:11
 
-Entonces el Señor envió a Jerubaal, Bedán, Jefté y Samuel, y os libró de la mano de vuestros enemigos por todos lados, y vivisteis seguros.
+Entonces el Señor envió a Jerobaal, Bedán, Jefté y Samuel, y os libró de la mano de vuestros enemigos por todos lados, y vivisteis seguros.
 
 ## 1 Samuel 12:12
 

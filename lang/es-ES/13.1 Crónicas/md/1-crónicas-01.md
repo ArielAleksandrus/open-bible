@@ -52,7 +52,7 @@ Los hijos de Cus fueron:
 
 >  Seba, Havila, Sabta, Raama y Sabteca.  
 >  Y los hijos de Raama fueron:  
->  Seba y Dedán.
+>  Sabá y Dedán.
 
 ## 1 Crónicas 1:10
 
@@ -121,7 +121,7 @@ Adoram, Uzal y Dicla,
 
 ## 1 Crónicas 1:22
 
-Ebal, Abimael y Seba,
+Ebal, Abimael y Sabá,
 
 ## 1 Crónicas 1:23
 
@@ -176,7 +176,7 @@ Los hijos de Cetura, concubina de Abraham, que ella dio a luz:
 
 >  Zimrán, Jocsán, Medán, Madián, Isbac y Súah.  
 >  Los hijos de Jocsán fueron:  
->  Seba y Dedán.
+>  Sabá y Dedán.
 
 ## 1 Crónicas 1:33
 

@@ -2,7 +2,7 @@
 
 ## 2 Samuel 1:1
 
-Después de la muerte de Saúl, cuando David regresó de derrotar a los amalecitas, se quedó en Ziklag por dos días.
+Después de la muerte de Saúl, cuando David regresó de derrotar a los amalecitas, se quedó en Siclag por dos días.
 
 ## 2 Samuel 1:2
 
@@ -52,7 +52,7 @@ Entonces David rasgó sus ropas, y todos los hombres que estaban con él hiciero
 
 ## 2 Samuel 1:12
 
-Lloraron, lloraron y ayunaron hasta la tarde por Saúl y su hijo Jonatán, y por el pueblo del Señor y la nación de Israel, porque habían caído a espada.
+Hicieron duelo, lloraron y ayunaron hasta la tarde por Saúl y su hijo Jonatán, y por el pueblo del Señor y la nación de Israel, porque habían caído a espada.
 
 ## 2 Samuel 1:13
 
@@ -90,37 +90,37 @@ y ordenó que el pueblo de Judá aprendiera esta canción del arco —está escr
 ## 2 Samuel 1:20
 
 > No lo proclaméis en Gat,  
->  No lo anunciéis en las calles de Ascalón,  
->  No sea que se alegren las hijas de los filisteos,  
->  No sea que triunfen las hijas de los incircuncisos.
+>  no lo anunciéis en las calles de Ascalón,  
+>  no sea que se alegren las hijas de los filisteos,  
+>  no sea que triunfen las hijas de los incircuncisos.
 
 ## 2 Samuel 1:21
 
 > Montes de Gilboa,  
->  Que no caiga rocío ni lluvia sobre vosotros,  
->  Ni campos que produzcan ofrendas,  
->  Porque allí fue deshonrado el escudo de los valientes,  
->  El escudo de Saúl —ya no ungido con aceite—.
+>  que no caiga rocío ni lluvia sobre vosotros,  
+>  ni haya campos que produzcan ofrendas,  
+>  porque allí fue deshonrado el escudo de los valientes,  
+>  el escudo de Saúl —ya no ungido con aceite—.
 
 ## 2 Samuel 1:22
 
 > De la sangre de los muertos,  
->  De la carne de los valientes,  
->  El arco de Jonatán no retrocedió,  
->  Ni volvió vacía la espada de Saúl.
+>  de la carne de los valientes,  
+>  el arco de Jonatán no retrocedió,  
+>  ni volvió vacía la espada de Saúl.
 
 ## 2 Samuel 1:23
 
 > Saúl y Jonatán —amados y admirados en vida,  
->  Y no divididos en la muerte.  
+>  y no divididos en la muerte.  
 >  Eran más veloces que águilas,  
->  Eran más fuertes que leones—.
+>  eran más fuertes que leones—.
 
 ## 2 Samuel 1:24
 
 > Oh hijas de Israel, llorad por Saúl,  
->  Que os vistió de escarlata y lujo,  
->  Que adornó vuestras vestiduras con ornamentos de oro.
+>  que os vistió de escarlata y lujo,  
+>  que adornó vuestras vestiduras con ornamentos de oro.
 
 ## 2 Samuel 1:25
 
@@ -130,8 +130,8 @@ y ordenó que el pueblo de Judá aprendiera esta canción del arco —está escr
 ## 2 Samuel 1:26
 
 > Lloro por ti, Jonatán, mi hermano;  
->  Eras muy querido para mí.  
->  Tu amor por mí fue más maravilloso Que el amor de las mujeres.
+>  eras muy querido para mí.  
+>  Tu amor por mí fue más maravilloso que el amor de las mujeres.
 
 ## 2 Samuel 1:27
 

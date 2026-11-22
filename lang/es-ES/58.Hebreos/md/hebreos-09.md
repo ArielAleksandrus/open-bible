@@ -31,16 +31,16 @@ Esto sirve como símbolo para el tiempo presente, mostrando que los dones y sacr
 Estos son meramente regulaciones concernientes a alimentos, bebidas y diversas abluciones ceremoniales, ordenanzas externas impuestas hasta el tiempo de la reforma.
 
 ## Hebreos 9:11
-Pero cuando Cristo vino como sumo sacerdote de los bienes venideros, pasó por el tabernáculo mayor y más perfecto que no está hecho por manos humanas, es decir, no de esta creación.
+Pero Cristo vino como sumo sacerdote de los bienes que ya han llegado, y pasó por un tabernáculo más grande y más perfecto, que no está hecho por manos humanas, es decir, que no pertenece a este mundo creado.
 
 ## Hebreos 9:12
-No entró por medio de la sangre de machos cabríos y becerros, sino por su propia sangre, entró en el Lugar Santísimo una vez para siempre, asegurando una redención eterna.
+No entró con la sangre de machos cabríos y becerros, sino con su propia sangre; entró una sola vez y para siempre en el Lugar Santísimo, y consiguió para nosotros una liberación eterna.
 
 ## Hebreos 9:13
-Porque si la sangre de machos cabríos y toros y las cenizas de una becerra rociadas sobre los que están ceremonialmente impuros los santifican para que estén limpios exteriormente,
+Porque si la sangre de los machos cabríos y de los toros, y las cenizas de una becerra rociadas sobre los que están impuros según la ley, los hacen santos de tal modo que quedan limpios por fuera,
 
 ## Hebreos 9:14
-¡cuánto más la sangre de Cristo, quien por el Espíritu eterno se ofreció a sí mismo sin mancha a Dios, limpiará nuestras conciencias de actos que conducen a la muerte, para que podamos servir al Dios viviente!
+¡cuánto más la sangre de Cristo, que por medio del Espíritu eterno se ofreció a sí mismo a Dios como sacrificio sin defecto, limpiará nuestra conciencia de las obras que llevan a la muerte, para que sirvamos al Dios viviente!
 
 ## Hebreos 9:15
 Por esta razón, Cristo es el mediador de un nuevo pacto, para que los que son llamados reciban la herencia eterna prometida, ahora que ha muerto como rescate para liberarlos de los pecados cometidos bajo el primer pacto.
@@ -64,22 +64,22 @@ Declaró: “Esto es la sangre del pacto, que Dios os ha mandado cumplir”.
 De la misma manera, roció con la sangre tanto el tabernáculo como todos los utensilios usados en sus ceremonias.
 
 ## Hebreos 9:22
-De hecho, según la ley, casi todo se limpia con sangre, y sin derramamiento de sangre no hay perdón.
+De hecho, según la ley, casi todo se purifica con sangre, y si no se derrama sangre no hay perdón.
 
 ## Hebreos 9:23
 Así, fue necesario que las copias de las cosas celestiales fueran purificadas con estos sacrificios, pero las cosas celestiales mismas con sacrificios mejores que estos.
 
 ## Hebreos 9:24
-Porque Cristo no entró en un santuario hecho por manos humanas, una mera copia del verdadero; él entró en el cielo mismo, ahora para aparecer en la presencia de Dios por nosotros.
+Porque Cristo no entró en un santuario hecho por manos humanas, que es solo una copia del verdadero, sino en el cielo mismo, para presentarse ahora ante Dios en favor nuestro.
 
 ## Hebreos 9:25
 Tampoco entró en el cielo para ofrecerse repetidamente, como el sumo sacerdote entra en el Lugar Santísimo cada año con sangre que no es suya.
 
 ## Hebreos 9:26
-De lo contrario, Cristo habría tenido que sufrir muchas veces desde la fundación del mundo. Pero ahora, en la culminación de los tiempos, ha aparecido una vez para siempre para quitar el pecado mediante el sacrificio de sí mismo.
+Si no fuera así, Cristo habría tenido que sufrir muchas veces desde que el mundo fue creado. Pero ahora, en el momento culminante de la historia, se ha presentado una sola vez y para siempre para acabar con el pecado por medio del sacrificio de sí mismo.
 
 ## Hebreos 9:27
-Así como los hombres están destinados a morir una sola vez, y después de esto enfrentar el juicio,
+Y así como todos tenemos que morir una sola vez y después enfrentarnos al juicio,
 
 ## Hebreos 9:28
-así también Cristo fue sacrificado una sola vez para llevar los pecados de muchos; y aparecerá por segunda vez, no para tratar con el pecado, sino para traer salvación a aquellos que lo esperan con ansias.
+también Cristo fue ofrecido en sacrificio una sola vez para cargar con los pecados de muchos; y aparecerá una segunda vez, no para ocuparse del pecado, sino para traer la salvación a los que lo esperan con ansias.

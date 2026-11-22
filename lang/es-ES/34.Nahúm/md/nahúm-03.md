@@ -2,57 +2,52 @@
 
 ## Nahum 3:1
 
-> ¡Ay de la ciudad sanguinaria, llena de mentira y de rapiña;  
->  Nunca se aparta de ella su presa!
+> ¡Ay de la ciudad de la sangre, repleta de engaño y de saqueo!  
+>  Nunca suelta su presa.
 
 ## Nahum 3:2
 
-> ¡Chasquido de látigo,  
->  Estrépito de ruedas,  
->  Caballos galopando Y carros que saltan!
+> ¡Se oye el látigo,  
+>  se oye el estruendo de las ruedas,  
+>  caballos al galope y carros que saltan!
 
 ## Nahum 3:3
 
 > Jinetes cargando,  
 >  Espadas relucientes, lanzas centelleantes,  
 >  Multitud de muertos, montón de cadáveres,  
->  Y no hay fin de los cuerpos —Tropezarán con sus cuerpos—.
+>  y no hay fin de los cuerpos —Tropezarán con sus cuerpos—.
 
 ## Nahum 3:4
 
-> Todo por las muchas fornicaciones de la ramera,  
->  La de hermosa gracia, maestra en hechizos,  
->  Que seduce a las naciones con sus fornicaciones,  
->  Y a las familias con sus hechizos.
+> Todo por las muchas prostituciones de la prostituta,  
+>  la encantadora, experta en hechicerías,  
+>  que vende naciones con su prostitución y familias con sus hechicerías.
 
 ## Nahum 3:5
 
-> “He aquí, yo estoy contra ti,” declara el Señor de los ejércitos;  
->  “Levantaré tus faldas sobre tu rostro,  
->  Y mostraré a las naciones tu desnudez,  
->  Y a los reinos tu vergüenza.
+> “Mira, estoy contra ti,” declara el Señor de los ejércitos.  
+>  “Te subiré las faldas hasta la cara y expondré tu desnudez ante las naciones y tu vergüenza ante los reinos.
 
 ## Nahum 3:6
 
-> Echaré sobre ti inmundicias,  
->  Te haré despreciable,  
->  Y te pondré como un espectáculo.
+> Te cubriré de deshonra,  
+>  haré que te desprecien y te pondré como espectáculo.
 
 ## Nahum 3:7
 
-> Y sucederá que todos los que te vean Huirán de ti y dirán,  
->  ‘¡Nínive está devastada!  
->  ¿Quién se compadecerá de ella?  
-> ’  
->  ¿Dónde buscaré consoladores para ti?”
+> Y sucederá que todos los que te vean se apartarán de ti y dirán:  
+>  ‘¡Nínive está arruinada!  
+>  ¿Quién sentirá lástima por ella?’  
+>  ¿Dónde buscaré a alguien que te consuele?  
+> ”
 
 ## Nahum 3:8
 
 > ¿Eres tú mejor que No-amón,  
->  Que estaba situada entre los canales del Nilo,  
->  Rodeada de aguas,  
->  Cuyo baluarte era el mar,  
->  Cuyos muros eran el mar?
+>  situada junto a los canales del Nilo,  
+>  con agua por todas partes,  
+>  que tenía el mar por defensa y el mar por muralla?
 
 ## Nahum 3:9
 
@@ -61,28 +56,26 @@
 
 ## Nahum 3:10
 
-> Sin embargo, ella fue llevada al exilio,  
->  Se fue a la cautividad;  
->  También sus pequeños fueron estrellados En las cabezas de todas las calles;  
->  Echaron suertes sobre sus nobles,  
->  Y todos sus grandes fueron encadenados.
+> Aun así, ella fue desterrada y se fue al cautiverio;  
+>  a sus niños pequeños los estrellaron en cada esquina de las calles;  
+>  sortearon a sus hombres ilustres,  
+>  y a todos sus grandes los ataron con grilletes.
 
 ## Nahum 3:11
 
-> Tú también serás embriagada,  
->  Serás escondida.  
->  Tú también buscarás refugio del enemigo.
+> Tú también serás derrotada y tendrás que esconderte.  
+>  Tú también buscarás dónde refugiarte del enemigo.
 
 ## Nahum 3:12
 
-> Todas tus fortalezas son como higueras con brevas —Si se sacuden,  
->  caen en la boca del que las come—.
+> Todas tus fortalezas son como higueras con fruta madura —si las sacuden,  
+>  los higos caen en la boca del que se los come—.
 
 ## Nahum 3:13
 
-> ¡He aquí, tus soldados son como mujeres!  
->  Las puertas de tu tierra están abiertas de par en par a tus enemigos;  
->  El fuego consume tus cerrojos.
+> ¡Fíjate: tus soldados parecen mujeres!  
+>  Las puertas de tu país están abiertas del todo para tus enemigos;  
+>  el fuego devora tus trancas.
 
 ## Nahum 3:14
 
@@ -93,11 +86,11 @@
 
 ## Nahum 3:15
 
-> Allí el fuego te consumirá,  
->  La espada te cortará;  
->  Te devorará como la langosta.  
->  Multiplícate como la langosta,  
->  Multiplícate como el saltón.
+> Allí te devorará el fuego,  
+>  te abatirá la espada;  
+>  te consumirá como la langosta.  
+>  ¡Multiplícate como la langosta rastrera,  
+>  multiplícate como la langosta migradora!
 
 ## Nahum 3:16
 
@@ -108,18 +101,18 @@
 > Tus cortesanos son como las langostas,  
 >  Tus oficiales como el enjambre de langostas Que acampa en los muros de piedra en un día frío —Sale el sol,  
 >  y huyen,  
->  Y no se sabe el lugar donde están—.
+>  y no se sabe el lugar donde están—.
 
 ## Nahum 3:18
 
 > Tus pastores están durmiendo, rey de Asiria;  
 >  Tus nobles están acostados.  
 >  Tu pueblo está disperso por los montes,  
->  Y no hay quien los reúna.
+>  y no hay quien los reúna.
 
 ## Nahum 3:19
 
-> No hay alivio para tu colapso,  
->  Tu herida es incurable.  
->  Todos los que oigan hablar de ti Batirán palmas sobre ti,  
->  Porque ¿sobre quién no ha pasado continuamente tu maldad?
+> Tu caída no tiene alivio,  
+>  tu herida no tiene cura.  
+>  Todos los que oigan hablar de ti aplaudirán tu desgracia,  
+>  porque ¿a quién no alcanzó una y otra vez tu maldad?

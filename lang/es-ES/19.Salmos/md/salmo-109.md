@@ -13,111 +13,110 @@
 
 ## Salmo 109:3
 
-> Me han rodeado con palabras de odio,  
->  Y han luchado contra mí sin causa.
+> Me tienen cercado con palabras llenas de odio,  
+>  y me atacan sin ningún motivo.
 
 ## Salmo 109:4
 
 > A cambio de mi amor me acusan;  
->  Pero yo continúo en oración.
+>  pero yo continúo en oración.
 
 ## Salmo 109:5
 
-> Así me han pagado mal por bien,  
->  Y animosidad por mi amor.
+> Así me pagan: con mal el bien que les hice,  
+>  y con rencor el amor que les tuve.
 
 ---
 
 ## Salmo 109:6
 
 > Que se nombre a una persona injusta sobre él,  
->  Y que un adversario esté a su mano derecha.
+>  y que un adversario esté a su mano derecha.
 
 ## Salmo 109:7
 
-> Cuando sea juzgado, que sea hallado culpable,  
->  Y que su oración sea considerada como pecado.
+> Cuando lo juzguen, que lo declaren culpable,  
+>  y que hasta su oración se le cuente como pecado.
 
 ## Salmo 109:8
 
 > Que sus días sean pocos;  
->  Que otro asuma su posición.
+>  que otro asuma su posición.
 
 ## Salmo 109:9
 
 > Que sus hijos queden sin padre,  
->  Y su esposa sin esposo.
+>  y su esposa sin esposo.
 
 ## Salmo 109:10
 
 > Que sus hijos vaguen y busquen ayuda;  
->  Y que busquen sustento lejos de sus hogares devastados.
+>  y que busquen sustento lejos de sus hogares devastados.
 
 ## Salmo 109:11
 
 > Que el acreedor se apodere de todo lo que tiene,  
->  Y que extraños tomen los frutos de su trabajo.
+>  y que extraños tomen los frutos de su trabajo.
 
 ## Salmo 109:12
 
 > Que no haya nadie que le muestre bondad,  
->  Ni quien muestre favor a sus hijos huérfanos.
+>  ni quien muestre favor a sus hijos huérfanos.
 
 ## Salmo 109:13
 
 > Que sus descendientes sean eliminados;  
->  Que su nombre sea borrado en la próxima generación.
+>  que su nombre sea borrado en la próxima generación.
 
 ## Salmo 109:14
 
-> Que la maldad de sus antepasados sea recordada ante el Señor,  
->  Y no dejes que el pecado de su madre sea borrado.
+> Que el Señor tenga presente la maldad de sus antepasados,  
+>  y que no se borre el pecado de su madre.
 
 ## Salmo 109:15
 
 > Que estén ante el Señor continuamente,  
->  Para que Él elimine su memoria de la tierra;
+>  para que Él elimine su memoria de la tierra;
 
 ---
 
 ## Salmo 109:16
 
-> Porque no mostró compasión,  
->  Sino que persiguió al afligido y necesitado,  
->  Y al abatido, para causar su desaparición.
+> porque nunca se preocupó de tener compasión,  
+>  sino que acosó al afligido,  
+>  al pobre y al que tenía el corazón destrozado, hasta llevarlos a la muerte.
 
 ## Salmo 109:17
 
-> También abrazó la maldición, así que le sobrevino;  
->  Y no se complació en la bendición, así que estuvo lejos de él.
+> Le encantaba maldecir, y la maldición cayó sobre él;  
+>  no le gustaba bendecir, y la bendición se alejó de él.
 
 ## Salmo 109:18
 
-> También vistió la maldición como una prenda,  
->  Y entró en su cuerpo como agua,  
->  Y como aceite en sus huesos.
+> Se puso la maldición como si fuera su ropa,  
+>  y le entró en el cuerpo como el agua,  
+>  y en los huesos como el aceite.
 
 ## Salmo 109:19
 
-> Que sea para él como una prenda que se envuelve alrededor de sí mismo,  
->  Y como un cinturón que lleva constantemente.
+> Que sea para él como la ropa con que se envuelve,  
+>  y como el cinturón que lleva siempre.
 
 ## Salmo 109:20
 
-> Que esta sea la recompensa de mis acusadores del Señor,  
->  Y de aquellos que hablan daño contra mi alma.
+> Que este sea el pago que el Señor dé a los que me acusan y a los que hablan mal de mí para hacerme daño.
 
 ---
 
 ## Salmo 109:21
 
-> Pero Tú, oh Dios, el Señor, actúa bondadosamente hacia mí por el bien de Tu nombre;  
->  Porque Tu misericordia es buena, líbrame;
+> Pero Tú, Dios, Señor, trátame con bondad por causa de Tu nombre;  
+>  ya que Tu misericordia es buena, rescátame;
 
 ## Salmo 109:22
 
-> Porque estoy afligido y necesitado,  
->  Y mi corazón está profundamente herido.
+> porque estoy afligido y en necesidad,  
+>  y tengo el corazón hecho pedazos.
 
 ## Salmo 109:23
 
@@ -126,45 +125,45 @@
 
 ## Salmo 109:24
 
-> Mis rodillas están debilitadas por el ayuno,  
->  Y mi cuerpo se ha vuelto delgado, sin alimento.
+> De tanto ayunar me tiemblan las rodillas,  
+>  y estoy en los huesos, sin nada que comer.
 
 ## Salmo 109:25
 
 > También me he convertido en un reproche para ellos;  
->  Cuando me ven, sacuden sus cabezas.
+>  cuando me ven, sacuden sus cabezas.
 
 ---
 
 ## Salmo 109:26
 
-> Ayúdame, Señor mi Dios;  
->  Sálvame conforme a Tu misericordia.
+> Señor, Dios mío,  
+>  ven a ayudarme; sálvame por Tu misericordia.
 
 ## Salmo 109:27
 
-> Y que reconozcan que esto es obra Tuya:  
+> Y que se den cuenta de que esto viene de Tu mano:  
 >  Tú, Señor, lo has hecho.
 
 ## Salmo 109:28
 
-> Ellos maldecirán, pero Tú bendecirás;  
->  Cuando se levanten, serán avergonzados,  
->  Pero Tu siervo se regocijará.
+> Que ellos maldigan, pero Tú bendice;  
+>  que se alcen, pero que acaben avergonzados,  
+>  mientras Tu siervo se llena de alegría.
 
 ## Salmo 109:29
 
-> Que mis acusadores se vistan de deshonra,  
->  Y que se cubran con su propia vergüenza como con un manto.
+> Que los que me acusan queden cubiertos de deshonra,  
+>  y que su propia vergüenza los envuelva como una capa.
 
 ---
 
 ## Salmo 109:30
 
-> Con mi boca daré abundantes gracias al Señor,  
->  Y lo alabaré entre muchos.
+> Daré muchísimas gracias al Señor con mi boca,  
+>  y lo alabaré delante de mucha gente.
 
 ## Salmo 109:31
 
-> Porque Él está al lado del necesitado,  
->  Para librarlo de aquellos que juzgan su alma.
+> Porque Él se pone al lado del pobre,  
+>  para salvarlo de los que lo condenan a muerte.

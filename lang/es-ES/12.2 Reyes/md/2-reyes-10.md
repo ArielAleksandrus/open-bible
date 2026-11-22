@@ -8,13 +8,13 @@ Ahora Acab tenía setenta hijos en Samaria.
 
 ## 2 Reyes 10:2
 
-“Ahora, cuando esta carta llegue a ustedes, puesto que los hijos de su señor están con ustedes,  
- y tienen carros, caballos, una ciudad fortificada y armas,
+“Ahora, cuando esta carta llegue a vosotros, puesto que los hijos de vuestro señor están con vosotros,  
+ y tenéis carros, caballos, una ciudad fortificada y armas,
 
 ## 2 Reyes 10:3
 
-escojan al mejor y más capaz de los hijos de su señor,  
- pónganlo en el trono de su padre, y peleen por la casa de su señor.”
+escoged al mejor y más capaz de los hijos de vuestro señor,  
+ ponedlo en el trono de su padre, y pelead por la casa de vuestro señor.”
 
 ## 2 Reyes 10:4
 
@@ -32,10 +32,10 @@ Y el mayordomo de la casa, y el mayordomo de la ciudad,
 ## 2 Reyes 10:6
 
 Entonces él les escribió una carta por segunda vez, diciendo:  
- “Si están de mi lado, y escucharán mi voz,  
- tomen las cabezas de los hombres, los hijos de su señor,  
- y vengan a mí a Jezreel mañana a esta hora.”  
- Ahora los hijos del rey, setenta personas, estaban con los líderes de la ciudad, que los criaban.
+ “Si estáis de mi lado y vais a escuchar mi voz,  
+ tomad las cabezas de los hombres, los hijos de vuestro señor,  
+ y venid a mí a Jezreel mañana a esta hora.  
+” Ahora los hijos del rey, setenta personas, estaban con los líderes de la ciudad, que los criaban.
 
 ## 2 Reyes 10:7
 
@@ -45,21 +45,21 @@ Y cuando la carta llegó a ellos, tomaron a los hijos del rey y los mataron, set
 ## 2 Reyes 10:8
 
 Cuando llegó el mensajero e informó:  
- “Han traído las cabezas de los hijos del rey,”  
- él ordenó:  
- “Arréglalas en dos montones a la entrada de la puerta hasta la mañana.”
+ “Han traído las cabezas de los hijos del rey,  
+” él ordenó:  
+ “Ponlas en dos montones a la entrada de la puerta hasta la mañana.”
 
 ---
 
 ## 2 Reyes 10:9
 
 Por la mañana salió y se puso de pie, y dijo a todo el pueblo:  
- “Ustedes son justos; he aquí, conspiré contra mi señor y lo maté.  
+ “Vosotros sois justos; he aquí, conspiré contra mi señor y lo maté.  
  Pero, ¿quién mató a todos estos?
 
 ## 2 Reyes 10:10
 
-Sepan entonces que nada caerá a tierra de la palabra del Señor,  
+Sabed, pues, que nada caerá a tierra de la palabra del Señor,  
  que el Señor habló concerniente a la casa de Acab,  
  porque el Señor ha hecho lo que habló por medio de su siervo Elías.”
 
@@ -79,14 +79,14 @@ Luego partió y se dirigió a Samaria.
 ## 2 Reyes 10:13
 
 Jehú encontró a los parientes de Ocozías rey de Judá y preguntó:  
- “¿Quiénes son ustedes?”  
- Y ellos respondieron:  
+ “¿Quiénes sois vosotros?  
+” Y ellos respondieron:  
  “Somos los parientes de Ocozías,  
  y hemos bajado a saludar a los hijos del rey y a los hijos de la reina madre.”
 
 ## 2 Reyes 10:14
 
-Entonces él dijo, “Tómenlos vivos.”  
+Entonces él dijo, “Tomadlos vivos.”  
  Así que los tomaron vivos y los mataron en el pozo de Bet-equed, cuarenta y dos hombres,  
  y no dejó a ninguno de ellos con vida.
 
@@ -96,7 +96,7 @@ Entonces él dijo, “Tómenlos vivos.”
 
 Ahora, al partir de allí, se encontró con Jonadab hijo de Recab que venía a su encuentro;  
  y lo saludó y le preguntó:  
- “¿Es tu corazón recto, como mi corazón es con tu corazón?”  
+ “¿Es tu corazón recto, como mi corazón lo es con el tuyo?”  
  Y Jonadab respondió, “Lo es.”  
  Jehú dijo, “Si lo es, dame tu mano.”  
  Y él le dio su mano, y lo subió al carro.
@@ -121,7 +121,7 @@ Entonces Jehú reunió a todo el pueblo y les dijo:
 
 ## 2 Reyes 10:19
 
-Ahora, convóquenme a todos los profetas de Baal, a todos sus adoradores y a todos sus sacerdotes;  
+Ahora, convocadme a todos los profetas de Baal, a todos sus adoradores y a todos sus sacerdotes;  
  que no falte ninguno, porque tengo un gran sacrificio para Baal; quien falte no vivirá.”  
  Pero Jehú estaba actuando engañosamente, para eliminar a los adoradores de Baal.
 
@@ -146,20 +146,20 @@ Y dijo al que estaba a cargo del vestuario,
 
 Entonces Jehú y Jonadab hijo de Recab entraron en la casa de Baal,  
  y dijo a los adoradores de Baal,  
- “Busquen cuidadosamente y vean que no haya aquí con ustedes ninguno de los siervos del Señor, sino solo los adoradores de Baal.”
+ “Buscad cuidadosamente y ved que no haya aquí con vosotros ninguno de los siervos del Señor, sino solo los adoradores de Baal.”
 
 ## 2 Reyes 10:24
 
 Luego entraron para ofrecer sacrificios y holocaustos.  
  Ahora Jehú había colocado para sí ochenta hombres afuera,  
  y dijo:  
- “El que deje escapar a alguno de los hombres que traigo a sus manos, dará su vida a cambio.”
+ “El que deje escapar a alguno de los hombres que pongo en vuestras manos, dará su vida a cambio.”
 
 ## 2 Reyes 10:25
 
 Entonces sucedió que, tan pronto como terminó de ofrecer el holocausto,  
  Jehú dijo a los guardias y a los oficiales,  
- “Entren, mátenlos; que nadie salga.”  
+ “Entrad, matadlos; que nadie salga.”  
  Así que los mataron a filo de espada,  
  y los guardias y los oficiales los arrojaron fuera, y entraron en la sala interior de la casa de Baal.
 

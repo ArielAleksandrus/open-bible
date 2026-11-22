@@ -3,7 +3,7 @@
 ## 2 Crónicas 31:1
 
 Cuando todo esto terminó, todo Israel que estaba presente salió a las ciudades de Judá,  
- rompieron las piedras conmemorativas en pedazos, cortaron los Asherim,  
+ rompieron las piedras conmemorativas en pedazos, cortaron las Aseras,  
  y derribaron los lugares altos y los altares por todo Judá y Benjamín,  
  así como en Efraín y Manasés, hasta completarlo.  
  Luego todos los hijos de Israel regresaron a sus ciudades, cada uno a su posesión.
@@ -64,7 +64,7 @@ Azarías, el sumo sacerdote de la casa de Sadoc, le dijo,
 
 ## 2 Crónicas 31:11
 
-Entonces Ezequías les instruyó que prepararan cámaras en la casa del Señor, y las hicieron listas.
+Entonces Ezequías les instruyó que prepararan cámaras en la casa del Señor, y así lo hicieron.
 
 ## 2 Crónicas 31:12
 
@@ -73,7 +73,7 @@ Trajeron fielmente las contribuciones, los diezmos y las cosas consagradas;
 
 ## 2 Crónicas 31:13
 
-Jehiel, Azazías, Natat, Asael, Jerimot, Jozabad, Eliel, Ismaquías,  
+Jehiel, Azazías, Nahat, Asael, Jerimot, Jozabad, Eliel, Ismaquías,  
  Mahat y Benaía eran supervisores bajo la autoridad de Conanías y Simei su hermano por designación del rey Ezequías,  
  y Azarías servía como el oficial principal de la casa de Dios.
 

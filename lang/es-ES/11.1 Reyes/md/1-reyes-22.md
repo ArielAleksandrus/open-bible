@@ -136,7 +136,7 @@ y di: ‘Así dice el rey: Pon a este hombre en prisión y dale solo pan y agua 
 ## 1 Reyes 22:28
 
 Pero Micaías declaró: “Si alguna vez regresas sano y salvo, entonces el Señor no ha hablado por medio de mí.”  
- Y añadió: “¡Tomen nota, todos ustedes!”
+ Y añadió: “¡Tomad nota, todos vosotros!”
 
 ---
 
@@ -151,7 +151,7 @@ El rey de Israel dijo a Josafat: “Me disfrazaré cuando entre en batalla, pero
 
 ## 1 Reyes 22:31
 
-Mientras tanto, el rey de Aram había instruido a sus treinta y dos comandantes de carros: “No ataquen a nadie, pequeño o grande, excepto al rey de Israel.”
+Mientras tanto, el rey de Aram había instruido a sus treinta y dos comandantes de carros: “No ataquéis a nadie, pequeño o grande, excepto al rey de Israel.”
 
 ## 1 Reyes 22:32
 

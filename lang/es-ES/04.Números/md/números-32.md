@@ -78,7 +78,7 @@ No reclamaremos ninguna herencia con ellos más allá del Jordán, ya que nuestr
 
 ## Números 32:20
 
-Moisés respondió, “Si haréis esto —si os armaréis para la batalla ante el Señor,—
+Moisés respondió, “Si hacéis esto —si os armáis para la batalla ante el Señor—
 
 ## Números 32:21
 
@@ -90,7 +90,7 @@ entonces, una vez que la tierra sea sometida ante el Señor, podréis regresar y
 
 ## Números 32:23
 
-Pero si no lo hacéis, habréis pecado contra el Señor, y aseguraos de que vuestro pecado os alcanzará.
+Pero si no lo hacéis, habréis pecado contra el Señor, y sabed que vuestro pecado os alcanzará.
 
 ## Números 32:24
 

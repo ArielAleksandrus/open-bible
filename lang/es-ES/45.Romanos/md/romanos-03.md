@@ -6,7 +6,7 @@
 
 ## Romanos 3:2
 
-¡Mucho, en todos los sentidos! En primer lugar, se les ha confiado las mismas palabras de Dios.
+¡Mucho, en todos los sentidos! En primer lugar, se les han confiado las palabras mismas de Dios.
 
 ## Romanos 3:3
 
@@ -37,7 +37,7 @@ Pero si a través de mi falsedad la veracidad de Dios aumenta para su gloria, ¿
 
 ## Romanos 3:9
 
-¿Qué, pues? ¿Somos nosotros mejores? ¡De ninguna manera! Porque ya hemos acusado que tanto judíos como griegos están todos bajo el poder del pecado.
+¿Qué, pues? ¿Somos nosotros mejores? ¡De ninguna manera! Porque ya hemos acusado tanto a judíos como a griegos de estar todos bajo el poder del pecado.
 
 ## Romanos 3:10
 
@@ -100,15 +100,15 @@ Esta justicia se da mediante la fe en Jesucristo a todos los que creen. No hay d
 
 ## Romanos 3:23
 
-porque todos han pecado y están destituidos de la gloria de Dios,
+porque todos han pecado y se han quedado lejos de la gloria de Dios,
 
 ## Romanos 3:24
 
-y todos son justificados gratuitamente por su gracia mediante la redención que es en Cristo Jesús.
+y todos reciben gratis la justificación por su gracia, gracias a la redención que hay en Cristo Jesús.
 
 ## Romanos 3:25
 
-Dios presentó a Cristo como un sacrificio de expiación, mediante el derramamiento de su sangre, a ser recibido por fe. Lo hizo para demostrar su justicia, porque en su paciencia había pasado por alto los pecados cometidos anteriormente—
+Dios presentó a Cristo como un sacrificio de expiación, mediante el derramamiento de su sangre, para ser recibido por la fe. Lo hizo para demostrar su justicia, porque en su paciencia había pasado por alto los pecados cometidos anteriormente;
 
 ## Romanos 3:26
 

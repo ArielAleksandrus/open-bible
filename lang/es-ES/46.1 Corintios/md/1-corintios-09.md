@@ -62,7 +62,7 @@ Pero yo no he usado ninguno de estos derechos, y no escribo estas cosas para que
 
 ## 1 Corintios 9:16
 
-Porque si predico el evangelio, no tengo de qué gloriarme, porque me es impuesta necesidad; ¡ay de mí si no predico el evangelio!
+Porque anunciar el evangelio no es para mí motivo de orgullo, ya que estoy obligado a hacerlo; ¡y pobre de mí si no lo anuncio!
 
 ## 1 Corintios 9:17
 
@@ -74,7 +74,7 @@ Porque si lo hago voluntariamente, tengo recompensa; pero si lo hago contra mi v
 
 ## 1 Corintios 9:19
 
-Porque aunque soy libre de todos, me he hecho siervo de todos, para ganar a más.
+Porque, aunque no dependo de nadie, me he puesto al servicio de todos para ganar a cuantos más pueda.
 
 ## 1 Corintios 9:20
 
@@ -82,11 +82,11 @@ A los judíos me hice como judío, para ganar a los judíos; a los que están ba
 
 ## 1 Corintios 9:21
 
-A los que están sin Ley, como sin Ley, aunque no estoy sin la ley de Dios, sino bajo la ley de Cristo, para ganar a los que están sin Ley.
+Con los que no tienen la Ley, me comporté como alguien sin Ley, aunque no vivo sin la ley de Dios, sino sometido a la ley de Cristo, para ganar a los que no tienen la Ley.
 
 ## 1 Corintios 9:22
 
-A los débiles me hice débil, para ganar a los débiles; me he hecho todo para todos, para que de todos modos salve a algunos.
+Con los débiles me comporté como débil, para ganarlos a ellos; me he hecho de todo con todos, para salvar a algunos como sea.
 
 ## 1 Corintios 9:23
 
@@ -94,7 +94,7 @@ Hago todo por causa del evangelio, para ser partícipe de sus bendiciones.
 
 ## 1 Corintios 9:24
 
-¿No sabéis que en una carrera todos los corredores compiten, pero solo uno recibe el premio? Corred de tal manera que lo ganéis.
+¿No sabéis que en una carrera corren todos, pero solo uno se lleva el premio? Pues corred de tal forma que lo consigáis.
 
 ## 1 Corintios 9:25
 

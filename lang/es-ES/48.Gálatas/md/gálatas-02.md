@@ -22,7 +22,7 @@ No cedimos a ellos ni por un momento, para que la verdad del evangelio permaneci
 
 ## Gálatas 2:6
 
-Respecto a aquellos de alta estima —lo que fueran no hace diferencia para mí; Dios no muestra parcialidad— no añadieron nada a mi mensaje.
+Respecto a aquellos de alta estima —lo que fueran no me importa; Dios no muestra parcialidad— no añadieron nada a mi mensaje.
 
 ## Gálatas 2:7
 
@@ -50,7 +50,7 @@ Antes de que ciertos hombres vinieran de parte de Santiago, solía comer con los
 
 ## Gálatas 2:13
 
-Los otros judíos se unieron a él en esta hipocresía, tanto que incluso Bernabé fue llevado por su hipocresía.
+Los otros judíos se unieron a él en esta hipocresía, tanto que incluso Bernabé fue arrastrado por su hipocresía.
 
 ## Gálatas 2:14
 
@@ -62,7 +62,7 @@ Cuando vi que no actuaban conforme a la verdad del evangelio, dije a Cefas delan
 
 ## Gálatas 2:16
 
-sin embargo, sabemos que una persona no es justificada por las obras de la ley, sino por la fe en Jesucristo. Así que también hemos creído en Cristo Jesús, para que podamos ser justificados por la fe en Cristo y no por las obras de la ley, porque por las obras de la ley nadie será justificado.
+sin embargo, sabemos que nadie es declarado justo por cumplir la ley, sino por la fe en Jesucristo. Por eso también nosotros hemos creído en Cristo Jesús, para ser declarados justos por la fe en Cristo y no por cumplir la ley, porque nadie será declarado justo por cumplir la ley.
 
 ## Gálatas 2:17
 
@@ -78,8 +78,8 @@ Porque por la ley, he muerto a la ley, para que pueda vivir para Dios.
 
 ## Gálatas 2:20
 
-He sido crucificado con Cristo, y ya no soy yo quien vive, sino que Cristo vive en mí. La vida que ahora vivo en el cuerpo, la vivo por la fe en el Hijo de Dios, quien me amó y se entregó por mí.
+He sido crucificado con Cristo, y ya no vivo yo, sino que Cristo vive en mí. La vida que ahora vivo en este cuerpo la vivo confiando en el Hijo de Dios, que me amó y dio su vida por mí.
 
 ## Gálatas 2:21
 
-No desecho la gracia de Dios, porque si la justicia se pudiera obtener por la ley, entonces Cristo murió en vano.
+No rechazo la gracia de Dios, porque si se pudiera llegar a ser justo por medio de la ley, entonces Cristo habría muerto para nada.”

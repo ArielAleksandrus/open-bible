@@ -2,52 +2,52 @@
 
 ## 1 Juan 2:1
 
-Mis queridos hijos, les escribo estas cosas para ayudarles a evitar el pecado. Pero si alguno peca, tenemos un Abogado ante el Padre, Jesucristo el justo;
+Hijos míos queridos, os escribo esto para que no pequéis. Pero si alguno peca, tenemos a uno que nos defiende ante el Padre: Jesucristo, el Justo;
 
 ## 1 Juan 2:2
 
-y Él mismo es el sacrificio expiatorio por nuestros pecados; y no solo por los nuestros, sino también por los pecados de todo el mundo.
+Él mismo se ofreció en sacrificio para que nuestros pecados sean perdonados; y no solo los nuestros, sino los de todo el mundo.
 
 ## 1 Juan 2:3
 
-Por esto entendemos que hemos llegado a conocerle, si guardamos sus mandamientos.
+Sabemos que hemos llegado a conocerlo si cumplimos sus mandamientos.
 
 ## 1 Juan 2:4
 
-Cualquiera que afirma: “He llegado a conocerle,” pero no guarda sus mandamientos, se engaña a sí mismo, y la verdad no está en él;
+El que dice: “Yo lo conozco”, pero no cumple sus mandamientos, se engaña a sí mismo y la verdad no está en él;
 
 ## 1 Juan 2:5
 
-pero quien sigue su palabra, en él verdaderamente el amor de Dios ha sido perfeccionado. Por esto entendemos que estamos en Él:
+en cambio, el que obedece su palabra demuestra que el amor de Dios ha llegado de verdad a su plenitud en él. Así es como sabemos que estamos unidos a Él:
 
 ## 1 Juan 2:6
 
-el que dice que permanece en Él, debe andar como Él anduvo.
+el que dice que permanece unido a Él debe vivir como vivió Él.
 
 ## 1 Juan 2:7
 
-Queridos amigos, no les escribo un mandamiento nuevo, sino un mandamiento antiguo que han tenido desde el principio; el mandamiento antiguo es la palabra que han oído.
+Queridos amigos, no os escribo un mandamiento nuevo, sino el mandamiento antiguo que tenéis desde el principio; ese mandamiento antiguo es el mensaje que ya habéis oído.
 
 ## 1 Juan 2:8
 
-Sin embargo, les escribo un mandamiento nuevo, que es verdadero en Él y en ustedes, porque la oscuridad se está desvaneciendo y la verdadera Luz ya está brillando.
+Y, sin embargo, lo que os escribo es un mandamiento nuevo, cuya verdad se ve en Él y en vosotros, porque la oscuridad va desapareciendo y ya brilla la Luz verdadera.
 
 ## 1 Juan 2:9
 
-El que afirma estar en la Luz y odia a su hermano o hermana está en la oscuridad hasta ahora.
+El que dice que vive en la Luz, pero odia a su hermano o hermana, todavía sigue en la oscuridad.
 
 ## 1 Juan 2:10
 
-El que ama a su hermano y hermana permanece en la Luz, y no hay nada en él que cause tropiezo.
+El que ama a su hermano y hermana vive en la Luz, y no hay nada en él que haga caer a nadie.
 
 ## 1 Juan 2:11
 
-Pero el que odia a su hermano o hermana está en la oscuridad y anda en la oscuridad, y no sabe a dónde va, porque la oscuridad ha cegado sus ojos.
+Pero el que odia a su hermano o hermana vive y anda en la oscuridad, y no sabe adónde va, porque la oscuridad lo ha dejado ciego.
 
 ## 1 Juan 2:12
 
-> Les escribo a ustedes, hijitos,  
->  porque sus pecados les han sido perdonados por su nombre.
+> Os escribo a vosotros, hijos míos,  
+>  porque Dios os ha perdonado los pecados gracias a su nombre.
 
 ## 1 Juan 2:13
 
@@ -59,71 +59,70 @@ Pero el que odia a su hermano o hermana está en la oscuridad y anda en la oscur
 
 ## 1 Juan 2:14
 
-> Les he escrito a ustedes, niños,  
->  porque conocen al Padre.  
->  Les he escrito a ustedes, padres,  
->  porque conocen al que ha sido desde el principio.  
->  Les he escrito a ustedes, jóvenes,  
->  porque son fuertes,  
->  y la palabra de Dios permanece en ustedes,  
->  y han vencido al maligno.
+> Os he escrito a vosotros, niños,  
+>  porque conocéis al Padre.  
+>  Os he escrito a vosotros, padres,  
+>  porque conocéis al que existe desde el principio.  
+>  Os he escrito a vosotros, jóvenes,  
+>  porque sois fuertes,  
+>  la palabra de Dios vive en vosotros y habéis derrotado al maligno.
 
 ## 1 Juan 2:15
 
-No amen al mundo ni las cosas que hay en él. Si alguien ama al mundo, el amor del Padre no está en él.
+No améis al mundo ni lo que hay en él. Si alguien ama al mundo, no tiene en sí el amor del Padre.
 
 ## 1 Juan 2:16
 
-Porque todo lo que hay en el mundo, la codicia de la carne, la codicia de los ojos y la arrogancia de la vida, no proviene del Padre, sino del mundo.
+Porque nada de lo que hay en el mundo —los malos deseos del cuerpo, la codicia de los ojos y el orgullo de la vida— viene del Padre, sino del mundo.
 
 ## 1 Juan 2:17
 
-El mundo se está desvaneciendo y también sus deseos; pero el que hace la voluntad de Dios vive para siempre.
+El mundo se va acabando, y con él sus malos deseos; pero el que hace la voluntad de Dios vive para siempre.
 
 ## 1 Juan 2:18
 
-Hijos, es la última hora; y así como han oído que el anticristo viene, incluso ahora han aparecido muchos anticristos. Por esto entendemos que es la última hora.
+Hijos míos, ha llegado la última hora; y así como oísteis que viene el anticristo, ahora han aparecido ya muchos anticristos. Por eso sabemos que es la última hora.
 
 ## 1 Juan 2:19
 
-Salieron de nosotros, pero no eran realmente de nosotros; porque si hubieran sido de nosotros, habrían permanecido con nosotros; pero salieron, para que se evidencie que no todos son de nosotros.
+Esa gente salió de entre nosotros, pero en realidad no era de los nuestros; si lo hubieran sido, se habrían quedado con nosotros. Pero se fueron, para que se viera claramente que ninguno de ellos era de los nuestros.
 
 ## 1 Juan 2:20
 
-Sin embargo, ustedes han recibido una unción del Santo, y todos están al tanto.
+Pero vosotros habéis recibido la unción del Santo, y todos conocéis la verdad.
 
 ## 1 Juan 2:21
 
-No les he escrito porque desconozcan la verdad, sino porque la conocen, y porque ninguna mentira proviene de la verdad.
+No os escribo porque no conozcáis la verdad, sino porque la conocéis y porque ninguna mentira sale de la verdad.
 
 ## 1 Juan 2:22
 
-¿Quién es el mentiroso sino el que niega que Jesús es el Cristo? Este es el anticristo, el que niega al Padre y al Hijo.
+¿Quién es el mentiroso, sino el que dice que Jesús no es el Cristo? Ese es el anticristo, el que rechaza al Padre y al Hijo.
 
 ## 1 Juan 2:23
 
-Todo el que niega al Hijo no tiene al Padre; el que reconoce al Hijo tiene también al Padre.
+El que rechaza al Hijo tampoco tiene al Padre; el que reconoce al Hijo tiene también al Padre.
 
 ## 1 Juan 2:24
 
-En cuanto a ustedes, asegúrense de que lo que han oído desde el principio permanezca en ustedes. Si lo que han oído desde el principio permanece en ustedes, también permanecerán en el Hijo y en el Padre.
+En cuanto a vosotros, procurad que siga en vosotros lo que oísteis desde el principio. Si lo que oísteis desde el principio sigue en vosotros, también vosotros seguiréis unidos al Hijo y al Padre.
 
 ## 1 Juan 2:25
 
-Esta es la promesa que Él nos hizo: la vida eterna.
+Y esto es lo que Él mismo nos ha prometido: la vida eterna.
 
 ## 1 Juan 2:26
 
-Les he escrito estas cosas acerca de los que intentan engañarles.
+Os escribo esto pensando en los que tratan de engañaros.
 
 ## 1 Juan 2:27
 
-En cuanto a ustedes, la unción que recibieron de Él permanece en ustedes, y no necesitan que nadie les enseñe; pero así como su unción les enseña acerca de todas las cosas, y es verdadera y no una mentira, y tal como les ha enseñado, permanezcan en Él.
+Pero en vosotros sigue la unción que recibisteis de Él, y no necesitáis que nadie os enseñe; su unción os enseña todas las cosas, y lo que enseña es verdad y no mentira. Así que seguid unidos a Él, tal como ella os ha enseñado.
 
 ## 1 Juan 2:28
 
-Ahora, queridos hijos, permanezcan en Él, para que cuando aparezca, tengamos confianza y no nos apartemos de Él avergonzados en su venida.
+Y ahora, hijos míos queridos, seguid unidos a Él, para que, cuando aparezca, podamos estar confiados y no tengamos que apartarnos de Él avergonzados cuando venga.
 
 ## 1 Juan 2:29
 
-Si saben que Él es justo, reconocen que todo el que practica la justicia ha nacido de Él.
+Si sabéis que Él es justo, sabed también que todo el que hace lo que es justo ha nacido de Él.

@@ -6,7 +6,7 @@ Una persona que frecuentemente recibe corrección pero sigue obstinada enfrentar
 
 ## Proverbios 29:2
 
-Cuando los justos prosperan, el pueblo se regocija; pero cuando los malvados gobiernan, el pueblo lamenta.
+Cuando los justos prosperan, el pueblo se regocija; pero cuando los malvados gobiernan, el pueblo se lamenta.
 
 ## Proverbios 29:3
 
@@ -34,7 +34,7 @@ Los burladores incitan a la ciudad, pero los sabios apartan la ira.
 
 ## Proverbios 29:9
 
-Cuando una persona sabia se involucra en una disputa con un necio, el necio ya sea se enfurece o se burla, y no hay paz.
+Cuando una persona sabia se involucra en una disputa con un necio, el necio se enfurece o se burla, y no hay paz.
 
 ## Proverbios 29:10
 
@@ -76,7 +76,7 @@ Donde no hay visión, el pueblo se desenfrena; pero bienaventurado el que sigue 
 
 ## Proverbios 29:19
 
-Un siervo no puede ser corregido solo con palabras; porque aunque entienden, no responderán.
+Un siervo no puede ser corregido solo con palabras; porque aunque entienda, no responderá.
 
 ## Proverbios 29:20
 
@@ -98,7 +98,7 @@ El orgullo humilla a una persona, pero un espíritu humilde obtiene honor.
 
 ## Proverbios 29:24
 
-Un cómplice de un ladrón es su propio enemigo; oyen la maldición pero no revelan nada.
+El cómplice del ladrón es enemigo de sí mismo; oye la maldición pero no revela nada.
 
 ## Proverbios 29:25
 

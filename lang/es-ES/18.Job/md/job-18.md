@@ -72,8 +72,8 @@ Entonces Bildad el suhita respondió y dijo:
 
 ## Job 18:15
 
-> Azufre esparcido sobre su morada;
->  fuego consume su tienda.
+> Se esparce azufre sobre su morada;
+>  el fuego consume su tienda.
 
 ## Job 18:16
 

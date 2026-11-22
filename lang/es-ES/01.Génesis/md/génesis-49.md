@@ -10,7 +10,7 @@ Entonces Jacob llamó a sus hijos y dijo: “Reuníos para que os diga lo que os
 
 ## Génesis 49:3
 
-“Rubén, tú eres mi primogénito, mi fuerza y el principio de mi vigor, sobresaliente en dignidad y poder.
+“Rubén, tú eres mi primogénito, mi fuerza y el primer fruto de mi vigor, superior a todos en honor y en poder.
 
 ## Génesis 49:4
 
@@ -22,19 +22,19 @@ Inestable como el agua, no sobresaldrás, porque subiste al lecho de tu padre; l
 
 ## Génesis 49:6
 
-No entre mi alma en su consejo; no se una mi gloria a su asamblea, porque en su ira mataron hombres, y en su obstinación desjarretaron bueyes.
+Que mi alma no participe de sus consejos; que mi gloria no tenga parte en sus reuniones, porque en su ira mataron a hombres, y por puro capricho les cortaron los tendones a los bueyes.
 
 ## Génesis 49:7
 
-¡Maldita sea su ira, porque es feroz, y su furor, porque es cruel! Los dispersaré en Jacob y los esparciré en Israel.
+¡Maldito sea su enojo, porque es violento, y su furia, porque es despiadada! Los repartiré por Jacob y los dispersaré por todo Israel.
 
 ## Génesis 49:8
 
-“Judá, tus hermanos te honrarán; tu mano estará sobre el cuello de tus enemigos; los hijos de tu padre se inclinarán ante ti.
+“Judá, tus hermanos te rendirán honores; pondrás la mano sobre la nuca de tus enemigos; los hijos de tu padre se postrarán ante ti.
 
 ## Génesis 49:9
 
-Judá es un cachorro de león; de la presa, hijo mío, has subido. Se agazapa y se acuesta como un león, y como una leona —¿quién se atreve a despertarlo—?
+Judá es un león joven; hijo mío, vuelves de cazar tu presa. Se agacha y se tiende como un león, como una leona; ¿quién se atreverá a despertarlo?
 
 ## Génesis 49:10
 
@@ -54,7 +54,7 @@ Sus ojos son más brillantes que el vino, y sus dientes más blancos que la lech
 
 ## Génesis 49:14
 
-“Isacar es como un asno robusto, descansando entre los apriscos.
+“Isacar es como un burro fuerte que reposa entre los rediles.
 
 ## Génesis 49:15
 
@@ -66,11 +66,11 @@ Cuando vio que su lugar de descanso era bueno y que la tierra era agradable, inc
 
 ## Génesis 49:17
 
-Dan será una serpiente junto al camino, una víbora en el sendero, que muerde los talones del caballo para que su jinete caiga hacia atrás.
+Dan será una culebra a la orilla del camino, una víbora al borde del sendero, que pica en los talones al caballo y su jinete cae de espaldas.
 
 ## Génesis 49:18
 
-“Para tu liberación espero, oh Señor.
+“Señor, en Ti espero la liberación.
 
 ## Génesis 49:19
 
@@ -86,7 +86,7 @@ Dan será una serpiente junto al camino, una víbora en el sendero, que muerde l
 
 ## Génesis 49:22
 
-“José es una vid fructífera, una vid fructífera junto a un manantial; sus ramas se extienden sobre un muro.
+“José es una vid llena de fruto, una vid fecunda junto a un manantial; sus ramas trepan por encima del muro.
 
 ## Génesis 49:23
 
@@ -106,11 +106,11 @@ Las bendiciones de tu padre han superado las bendiciones de los antiguos montes,
 
 ## Génesis 49:27
 
-“Benjamín es un lobo voraz; por la mañana devora la presa, y por la tarde reparte el botín.”
+“Benjamín es un lobo hambriento; por la mañana se come a su presa, y por la tarde reparte lo que ha capturado.”
 
 ## Génesis 49:28
 
-Todos estos son las doce tribus de Israel, y esto es lo que su padre les dijo cuando los bendijo, dándole a cada uno una bendición apropiada.
+Todas estas son las doce tribus de Israel, y esto es lo que su padre les dijo cuando los bendijo, dándole a cada uno una bendición apropiada.
 
 ## Génesis 49:29
 

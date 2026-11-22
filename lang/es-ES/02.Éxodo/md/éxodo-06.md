@@ -102,7 +102,7 @@ Eleazar, hijo de Aarón, tomó por esposa a una de las hijas de Futiel, y ella l
 
 ## Éxodo 6:26
 
-Fue este Aarón y Moisés a quienes el Señor instruyó para sacar a los israelitas de Egipto por sus divisiones.
+Fueron este Aarón y este Moisés a quienes el Señor mandó sacar a los israelitas de Egipto por sus divisiones.
 
 ## Éxodo 6:27
 

@@ -50,7 +50,7 @@ y en cuanto al juicio, porque el príncipe de este mundo ha sido juzgado.
 
 ## Juan 16:12
 
-“Tengo mucho más que compartir con vosotros, pero ahora no lo podéis soportar.
+“Tengo mucho más que deciros, pero ahora no lo podéis soportar.
 
 ## Juan 16:13
 
@@ -136,7 +136,7 @@ Ahora vemos que sabes todas las cosas y no necesitas que nadie te pregunte. Esto
 
 ## Juan 16:31
 
-Jesús respondió: “¿Ahora creéis?
+Jesús respondió: “¿Ahora creéis?”
 
 ## Juan 16:32
 

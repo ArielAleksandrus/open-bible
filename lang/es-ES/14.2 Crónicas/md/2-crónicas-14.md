@@ -14,7 +14,7 @@ Asa hizo lo bueno y lo recto ante los ojos del Señor su Dios,
 
 ## 2 Crónicas 14:3
 
-pues eliminó los altares extranjeros y los lugares altos, desmanteló las piedras conmemorativas y derribó los Aserás,
+pues eliminó los altares extranjeros y los lugares altos, desmanteló las piedras conmemorativas y derribó las Aseras,
 
 ---
 
@@ -44,7 +44,7 @@ Porque dijo a Judá: “Construyamos estas ciudades y rodeémoslas con muros y t
 
 ## 2 Crónicas 14:8
 
-Ahora Asa tenía un ejército de 300,000 de Judá, portando grandes escudos y lanzas, y 280,000 de Benjamín, portando escudos y tensando arcos; todos ellos eran guerreros valientes.
+Ahora Asa tenía un ejército de 300 000 de Judá, portando grandes escudos y lanzas, y 280 000 de Benjamín, portando escudos y tensando arcos; todos ellos eran guerreros valientes.
 
 ---
 

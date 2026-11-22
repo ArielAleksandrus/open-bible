@@ -2,7 +2,7 @@
 
 ## Jueces 21:1
 
-Los israelitas habían jurado en Mizpa, diciendo: “Ninguno de nosotros dará su hija en matrimonio a un benjamita.”
+Los israelitas habían jurado en Mizpa, diciendo: “Ninguno de nosotros dará su hija en matrimonio a un benjaminita.”
 
 ## Jueces 21:2
 
@@ -56,11 +56,11 @@ Encontraron entre los habitantes de Jabes-galaad cuatrocientas jóvenes vírgene
 
 ## Jueces 21:13
 
-Toda la asamblea envió un mensaje a los benjamitas en la peña de Rimón, proclamándoles paz.
+Toda la asamblea envió un mensaje a los benjaminitas en la peña de Rimón, proclamándoles paz.
 
 ## Jueces 21:14
 
-Los benjamitas regresaron en ese momento, y les dieron las mujeres de Jabes-galaad que habían sido perdonadas, pero no fueron suficientes para ellos.
+Los benjaminitas regresaron en ese momento, y les dieron las mujeres de Jabes-galaad que habían sido perdonadas, pero no fueron suficientes para ellos.
 
 ## Jueces 21:15
 
@@ -76,19 +76,19 @@ Los ancianos de la asamblea dijeron, “¿Qué haremos para conseguir esposas pa
 
 ## Jueces 21:18
 
-“Pero no podemos darles esposas de nuestras hijas,” dijeron, “porque los israelitas han jurado, ‘Maldito sea cualquiera que dé una esposa a un benjamita.’”
+“Pero no podemos darles esposas de nuestras hijas,” dijeron, “porque los israelitas han jurado, ‘Maldito sea cualquiera que dé una esposa a un benjaminita.’”
 
 ## Jueces 21:19
 
-Dijeron, “Miren, hay un festival anual del Señor en Silo, al norte de Betel, al este del camino que va de Betel a Siquem, y al sur de Lebona.”
+Dijeron: “Mirad, hay un festival anual del Señor en Silo, al norte de Betel, al este del camino que va de Betel a Siquem, y al sur de Lebona.”
 
 ## Jueces 21:20
 
-Instruyeron a los benjamitas, diciendo, “Id y escondéos en los viñedos
+Instruyeron a los benjaminitas, diciendo, “Id y escondeos en los viñedos
 
 ## Jueces 21:21
 
-y observad. Cuando las hijas de Silo salgan a participar en las danzas, salid de los viñedos y cada uno tomad una esposa de las hijas de Silo, luego regresad a la tierra de Benjamín.
+y observad. Cuando las hijas de Silo salgan a participar en las danzas, salid de los viñedos y que cada uno tome una esposa de las hijas de Silo, luego regresad a la tierra de Benjamín.
 
 ## Jueces 21:22
 
@@ -98,7 +98,7 @@ Cuando sus padres o hermanos vengan a quejarse a nosotros, les diremos, ‘Haced
 
 ## Jueces 21:23
 
-Los benjamitas así lo hicieron y tomaron esposas según su número de entre las que danzaban, a quienes capturaron. Luego regresaron a su herencia, reconstruyeron las ciudades y se establecieron en ellas.
+Los benjaminitas así lo hicieron y tomaron esposas según su número de entre las que danzaban, a quienes capturaron. Luego regresaron a su herencia, reconstruyeron las ciudades y se establecieron en ellas.
 
 ## Jueces 21:24
 

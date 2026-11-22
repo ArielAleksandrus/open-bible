@@ -6,7 +6,7 @@ Esto es lo que me mostró el Señor Dios: Estaba formando una nube de langostas 
 
 ## Amós 7:2
 
-Cuando habían consumido la vegetación de la tierra, supliqué: “¡Señor Dios, perdona! ¿Cómo puede Jacob soportar? ¡Es tan pequeño!”
+Cuando habían consumido la vegetación de la tierra, supliqué: “¡Señor Dios, perdona! ¿Cómo podrá Jacob resistir? ¡Es tan pequeño!”
 
 ## Amós 7:3
 
@@ -18,7 +18,7 @@ Esto es lo que me mostró el Señor Dios: Estaba llamando a juicio por fuego, qu
 
 ## Amós 7:5
 
-Entonces imploré: “¡Señor Dios, cesa! ¿Cómo puede Jacob soportar? ¡Es tan pequeño!”
+Entonces imploré: “¡Señor Dios, cesa! ¿Cómo podrá Jacob resistir? ¡Es tan pequeño!”
 
 ## Amós 7:6
 
@@ -63,7 +63,7 @@ Amós respondió a Amasías, “No era profeta ni hijo de profeta, sino pastor y
 
 ## Amós 7:15
 
-Sin embargo, el Señor me llamó lejos de cuidar el rebaño y me instruyó, ‘Ve, profetiza a Mi pueblo Israel.’
+Sin embargo, el Señor me apartó de cuidar el rebaño y me instruyó, ‘Ve, profetiza a Mi pueblo Israel.’
 
 ## Amós 7:16
 

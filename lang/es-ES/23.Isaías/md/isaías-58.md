@@ -1,43 +1,43 @@
 # Isaías Capítulo 58
 
 ## Isaías 58:1
-“Grita con fuerza, no te detengas; Alza tu voz como una trompeta y declara a Mi pueblo su rebelión, y a la casa de Jacob sus pecados.
+“Grita a pleno pulmón, no te contengas; haz sonar tu voz como una trompeta y échale en cara a Mi pueblo su rebeldía, a los descendientes de Jacob sus pecados.
 
 ## Isaías 58:2
 Porque día tras día me buscan y se deleitan en conocer mis caminos, como si fueran una nación que practica la justicia y no ha abandonado la ordenanza de su Dios. Me piden decisiones justas y se deleitan en la cercanía de Dios.
 
 ## Isaías 58:3
-‘¿Por qué hemos ayunado,’ dicen, ‘y no lo has visto? ¿Por qué nos hemos humillado, y no lo has notado?’ He aquí, en el día de vuestro ayuno, buscáis vuestros propios deseos y oprimís a todos vuestros trabajadores.
+‘¿De qué nos sirve ayunar,’ dicen, ‘si Tú ni lo ves? ¿Para qué nos humillamos, si Tú ni te enteras?’ Pues mirad: el mismo día en que ayunáis, hacéis lo que os da la gana y explotáis a todos vuestros trabajadores.
 
 ## Isaías 58:4
 Vuestro ayuno lleva a la contienda y a la riña, y a golpearos unos a otros con puños malvados. No podéis ayunar como lo hacéis hoy y esperar que vuestra voz sea oída en lo alto.
 
 ## Isaías 58:5
-¿Es este el tipo de ayuno que he escogido, un día para que una persona se humille? ¿Es solo para inclinar la cabeza como un junco y para extender cilicio y cenizas? ¿Llamaréis a esto un ayuno, un día aceptable al Señor?
+¿Es este el ayuno que yo quiero, un día en que la gente se mortifique? ¿Consiste solo en agachar la cabeza como un junco y en acostarse sobre ropa áspera y ceniza? ¿A eso llamáis ayuno, un día que agrada al Señor?
 
 ## Isaías 58:6
-¿No es este el ayuno que he escogido: desatar las cadenas de la injusticia, deshacer las cuerdas del yugo, dejar libres a los oprimidos y romper todo yugo?
+El ayuno que yo quiero es este: romper las cadenas de la injusticia, desatar las correas del yugo, dejar en libertad a los oprimidos y acabar con toda opresión.
 
 ## Isaías 58:7
-¿No es compartir tu pan con el hambriento y traer a los pobres sin hogar a tu casa; cuando veas al desnudo, cubrirlo, y no esconderte de tu propia carne y sangre?
+Es compartir tu comida con el que tiene hambre y recibir en tu casa al pobre que no tiene techo; vestir al que veas sin ropa y no darles la espalda a los de tu propia sangre.
 
 ## Isaías 58:8
-Entonces tu luz romperá como el alba, y tu sanidad aparecerá rápidamente; tu justicia irá delante de ti, y la gloria del Señor será tu retaguardia.
+Entonces tu luz brillará como la aurora, y tus heridas sanarán enseguida; tu justicia irá delante de ti, y la gloria del Señor te cuidará las espaldas.
 
 ## Isaías 58:9
-Entonces llamarás, y el Señor responderá; clamarás por ayuda, y Él dirá, ‘Aquí estoy.’ Si quitas el yugo de en medio de ti, el dedo acusador y el hablar malicioso,
+Entonces llamarás, y el Señor te contestará; pedirás ayuda, y Él te dirá: ‘Aquí estoy.’ Si dejas de oprimir a los demás, de señalarlos con el dedo y de hablar mal de ellos,
 
 ## Isaías 58:10
-y si ofreces tu ser al hambriento y satisfaces las necesidades del afligido, entonces tu luz se elevará en la oscuridad, y tu penumbra será como el mediodía.
+si te entregas a ayudar al hambriento y das al afligido lo que necesita, entonces tu luz brillará en medio de la oscuridad, y tus sombras serán como la luz del mediodía.
 
 ## Isaías 58:11
-El Señor te guiará continuamente, y satisfará tus necesidades en una tierra abrasada por el sol, y fortalecerá tus huesos. Serás como un jardín bien regado, como un manantial cuyas aguas no fallan.
+El Señor te guiará siempre, te dará lo que necesites aunque estés en una tierra quemada por el sol, y te dará fuerzas. Serás como un jardín bien regado, como un manantial que nunca se seca.
 
 ## Isaías 58:12
-Tu pueblo reconstruirá las ruinas antiguas; levantarás los cimientos de antaño; serás llamado Reparador de Muros Derruidos, Restaurador de Calles para Habitar.
+Tu gente volverá a levantar las viejas ruinas; reconstruirás los cimientos de hace muchas generaciones; te llamarán Reparador de Murallas Caídas, el que Arregla las Calles para que se Pueda Vivir en Ellas.
 
 ## Isaías 58:13
-“Si te abstienes de quebrantar el sábado y de hacer lo que te plazca en Mi día santo, si llamas al sábado una delicia y el día santo del Señor honorable, y si lo honras no yendo por tu propio camino ni buscando tu propio placer ni hablando palabras vanas,
+“Si dejas de profanar el sábado y de hacer lo que te place en Mi día santo, si llamas al sábado una delicia y tienes por digno de honra el día santo del Señor, y si lo honras dejando de lado tus propios asuntos, sin buscar tu propio gusto ni hablar por hablar,
 
 ## Isaías 58:14
-entonces encontrarás tu gozo en el Señor, y te haré cabalgar sobre las alturas de la tierra y disfrutar de la herencia de tu padre Jacob.” Porque la boca del Señor ha hablado.
+entonces encontrarás tu alegría en el Señor, y yo te llevaré en triunfo por las alturas de la tierra y te haré disfrutar de la herencia de tu padre Jacob.” Así lo ha dicho el Señor.

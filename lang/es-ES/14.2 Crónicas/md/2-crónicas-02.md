@@ -13,7 +13,7 @@ Salomón planeó construir una casa para el nombre del Señor,
 Así que Salomón asignó setenta mil hombres para llevar cargas,
 
 >  ochenta mil hombres para extraer piedra en las montañas,  
->  y 3,600 supervisores para dirigir al pueblo.
+>  y 3 600 supervisores para dirigir al pueblo.
 
 ---
 
@@ -146,7 +146,7 @@ Hiram también dijo:
 Entonces Salomón contó a todos los extranjeros que estaban en la tierra de Israel,
 
 >  siguiendo el censo que su padre David había hecho;  
->  y se encontraron 153,600.
+>  y se encontraron 153 600.
 
 ---
 
@@ -154,4 +154,4 @@ Entonces Salomón contó a todos los extranjeros que estaban en la tierra de Isr
 
 > Designó setenta mil de ellos para llevar cargas,  
 >  ochenta mil para extraer piedra en las montañas,  
->  y 3,600 supervisores para dirigir al pueblo que hacía el trabajo.
+>  y 3 600 supervisores para dirigir al pueblo que hacía el trabajo.

@@ -1,28 +1,28 @@
 # Eclesiastés Capítulo 12
 
 ## Eclesiastés 12:1
-Acuérdate de tu Creador en los días de tu juventud, antes que lleguen los días de adversidad y se acerquen los años de los cuales dirás: “No encuentro en ellos placer”—
+Acuérdate de tu Creador mientras eres joven, antes de que lleguen los tiempos difíciles y se acerquen los años en los que digas: “No encuentro ningún gusto en ellos”—
 
 ## Eclesiastés 12:2
-antes que se oscurezcan el sol y la luz, la luna y las estrellas, y vuelvan las nubes tras la lluvia;
+antes de que se apaguen el sol y la luz, la luna y las estrellas, y después de la lluvia vuelvan otra vez las nubes;
 
 ## Eclesiastés 12:3
-cuando tiemblen los guardianes de la casa, y se encorven los hombres fuertes, cuando cesen las muelas porque son pocas, y se oscurezcan los que miran por las ventanas;
+cuando a los que cuidan la casa les tiemblen las piernas, y los hombres fuertes anden encorvados, cuando las que muelen dejen de moler porque ya quedan pocas, y a las que se asoman a las ventanas se les nuble la vista;
 
 ## Eclesiastés 12:4
-cuando se cierren las puertas de la calle y se atenúe el sonido de la molienda; cuando se levante uno al canto del ave, y se apaguen todas las hijas del canto;
+cuando se cierren las puertas que dan a la calle y apenas se oiga el ruido del molino; cuando uno se despierte con el canto de un pájaro y todas las canciones se oigan apagadas;
 
 ## Eclesiastés 12:5
-cuando se tema a lo alto y haya terrores en el camino; cuando florezca el almendro, la langosta se arrastre, y la alcaparra no surta efecto. Porque el hombre va a su morada eterna, y los que lloran andan por las calles.
+cuando dé miedo subir a lo alto y haya peligros por la calle; cuando el almendro se cubra de flores, el saltamontes se arrastre y la alcaparra ya no sirva de nada. Porque el ser humano se va a su casa para siempre, y por las calles andan los que lloran su muerte.
 
 ## Eclesiastés 12:6
-Acuérdate de tu Creador antes que se rompa el cordón de plata, y se quiebre el cuenco de oro; antes que se haga pedazos el cántaro en la fuente, y se rompa la rueda en el pozo,
+Acuérdate de tu Creador antes de que se corte el cordón de plata y se haga pedazos la copa de oro; antes de que el cántaro se rompa junto a la fuente y la polea se parta sobre el pozo,
 
 ## Eclesiastés 12:7
-y el polvo vuelva a la tierra como era, y el espíritu regrese a Dios que lo dio.
+y el polvo vuelva a la tierra de donde salió, y el espíritu vuelva a Dios, que fue quien lo dio.
 
 ## Eclesiastés 12:8
-“¡Vanidad de vanidades!”, dice el Maestro, “¡todo es vanidad!”
+“Total futilidad”, dice el Maestro, “¡todo es futilidad!”
 
 ## Eclesiastés 12:9
 Además de ser sabio, el Maestro también impartió conocimiento al pueblo. Reflexionó, investigó y organizó muchos proverbios.
@@ -34,7 +34,7 @@ El Maestro procuró encontrar las palabras correctas y escribir con exactitud pa
 Las palabras de los sabios son como aguijones, y sus dichos recopilados como clavos bien clavados —dados por un solo Pastor—.
 
 ## Eclesiastés 12:12
-Pero más allá de esto, hijo mío, ten cuidado: de hacer muchos libros no hay fin, y mucho estudio fatiga el cuerpo.
+Por lo demás, hijo mío, ten cuidado: escribir libros es cosa de nunca acabar, y tanto estudiar cansa el cuerpo.
 
 ## Eclesiastés 12:13
 Ahora se ha escuchado todo; aquí está la conclusión del asunto: teme a Dios y guarda Sus mandamientos, porque esto es el deber de toda persona.

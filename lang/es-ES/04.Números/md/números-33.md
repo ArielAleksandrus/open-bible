@@ -26,7 +26,7 @@ Viajaron desde Sucot y acamparon en Etam, en el borde del desierto.
 
 ## Números 33:7
 
-Viajaron desde Etam y regresaron a Pi Hahirot, que está al este de Baal Zephon, y acamparon frente a Migdol.
+Viajaron desde Etam y regresaron a Pi Hahirot, que está al este de Baal-zefón, y acamparon frente a Migdol.
 
 ## Números 33:8
 
@@ -62,11 +62,11 @@ Viajaron desde Refidim y acamparon en el Desierto de Sinaí.
 
 ## Números 33:16
 
-Viajaron desde el Desierto de Sinaí y acamparon en Kibrot Hataavá.
+Viajaron desde el Desierto de Sinaí y acamparon en Kibrot-hataavá.
 
 ## Números 33:17
 
-Viajaron desde Kibrot Hataavá y acamparon en Hazerot.
+Viajaron desde Kibrot-hataavá y acamparon en Hazerot.
 
 ## Números 33:18
 
@@ -78,11 +78,11 @@ Viajaron desde Ritmá y acamparon en Rimón Peres.
 
 ## Números 33:20
 
-Viajaron desde Rimón Peres y acamparon en Libná.
+Viajaron desde Rimón Peres y acamparon en Libna.
 
 ## Números 33:21
 
-Desde Libná, viajaron y acamparon en Rissá.
+Desde Libna, viajaron y acamparon en Rissá.
 
 ## Números 33:22
 
@@ -214,7 +214,7 @@ Poseeréis la tierra y la haréis vuestra morada, porque os he concedido la tier
 
 ## Números 33:54
 
-Distribuiréis la tierra por sorteo según vuestras tribus. A un grupo más grande dadle una herencia mayor, y a un grupo más pequeño una menor. Lo que les toque por sorteo será suyo. La distribuiréis según vuestras tribus ancestrales.
+Distribuiréis la tierra por sorteo según vuestras familias. A un grupo más grande dadle una herencia mayor, y a un grupo más pequeño una menor. Lo que les toque por sorteo será suyo. La distribuiréis según vuestras tribus ancestrales.
 
 ## Números 33:55
 

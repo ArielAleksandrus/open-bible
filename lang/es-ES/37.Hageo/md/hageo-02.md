@@ -6,7 +6,7 @@ El día veintiuno del séptimo mes, vino la palabra del Señor por medio del pro
 
 ## Hageo 2:2
 
-> “Habla a Zorobabel, hijo de Salatiel, gobernador de Judá, y a Josué,
+> “Habla a Zorobabel, hijo de Sealtiel, gobernador de Judá, y a Josué,
 >  hijo de Josadac, el sumo sacerdote,
 >  y al resto del pueblo, diciendo,
 
@@ -99,7 +99,7 @@ Entonces Hageo dijo,
 
 ## Hageo 2:17
 
-> Aflicté todo el trabajo de vuestras manos con tizón,
+> Afligí todo el trabajo de vuestras manos con tizón,
 >  moho y granizo,
 >  pero no os volvisteis a mí,’ declara el Señor.
 
@@ -136,6 +136,6 @@ La palabra del Señor vino a Hageo por segunda vez el día veinticuatro del mes,
 ## Hageo 2:23
 
 > ‘En aquel día,’ declara el Señor de los ejércitos,
->  ‘te tomaré, mi siervo Zorobabel, hijo de Salatiel,’ declara el Señor,
+>  ‘te tomaré, mi siervo Zorobabel, hijo de Sealtiel,’ declara el Señor,
 >  ‘y te haré como mi anillo de sello,
 >  porque te he escogido,’ declara el Señor de los ejércitos.”

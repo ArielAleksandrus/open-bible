@@ -37,7 +37,7 @@ Entonces Elifaz el temanita habló:
 
 ## Job 15:8
 
-> ¿Escuchas en el consejo secreto de Dios?
+> ¿Acaso escuchas el consejo secreto de Dios?
 >  ¿Reclamas sabiduría exclusiva?
 
 ## Job 15:9
@@ -112,7 +112,7 @@ Entonces Elifaz el temanita habló:
 
 ## Job 15:23
 
-> Vaga en busca de comida, diciendo, ‘¿Dónde está?’
+> Vaga en busca de comida, diciendo: ‘¿Dónde está?’
 >  Sabe que el día de la oscuridad está cerca.
 
 ## Job 15:24

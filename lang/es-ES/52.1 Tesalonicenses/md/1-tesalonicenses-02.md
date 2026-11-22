@@ -10,19 +10,19 @@ Sino que después de haber sufrido y sido maltratados en Filipos, como sabéis, 
 
 ## 1 Tesalonicenses 2:3
 
-Porque nuestra exhortación no procede de error ni de impureza ni con engaño;
+Porque cuando os animamos, no lo hacemos movidos por el error, ni con malas intenciones, ni con trampas;
 
 ## 1 Tesalonicenses 2:4
 
-sino que, así como hemos sido aprobados por Dios para que se nos confíe el evangelio, así hablamos, no como para agradar a los hombres, sino a Dios, que examina nuestros corazones.
+al contrario, hablamos como personas a quienes Dios ha aprobado y ha confiado el evangelio, y no buscamos agradar a la gente, sino a Dios, que examina nuestros corazones.
 
 ## 1 Tesalonicenses 2:5
 
-Porque nunca fuimos con palabras lisonjeras, como sabéis, ni con pretexto para la avaricia —Dios es testigo—
+Como ya sabéis, nunca nos presentamos con palabras halagadoras ni con la intención oculta de sacar provecho —Dios es testigo—,
 
 ## 1 Tesalonicenses 2:6
 
-ni buscamos gloria de los hombres, ni de vosotros ni de otros, aunque pudimos habernos impuesto como apóstoles de Cristo.
+ni buscamos que la gente nos honrara, ni vosotros ni otros, aunque como apóstoles de Cristo podríamos haber hecho valer nuestra autoridad.
 
 ## 1 Tesalonicenses 2:7
 
@@ -34,7 +34,7 @@ de la misma manera, os teníamos tanto afecto que nos complacía compartir con v
 
 ## 1 Tesalonicenses 2:9
 
-Porque recordáis, hermanos y hermanas, nuestro trabajo y fatiga: trabajando de noche y de día para no ser carga a ninguno de vosotros, os proclamamos el evangelio de Dios.
+Hermanos y hermanas, os acordáis de cómo nos esforzamos y de lo duro que trabajamos: mientras os anunciábamos el evangelio de Dios, trabajábamos día y noche para no ser una carga para ninguno de vosotros.
 
 ## 1 Tesalonicenses 2:10
 
@@ -46,11 +46,11 @@ como sabéis, os exhortábamos, consolábamos y os instábamos a cada uno de vos
 
 ## 1 Tesalonicenses 2:12
 
-para que anduvieseis de una manera digna del Dios que os llama a su reino y gloria.
+para que vivierais de un modo que agrade a Dios, que os llama a su propio reino y a su gloria.
 
 ## 1 Tesalonicenses 2:13
 
-Por esta razón también damos gracias a Dios sin cesar, porque cuando recibisteis la palabra de Dios que oísteis de nosotros, la aceptasteis no como palabra de hombres, sino como lo que realmente es, la palabra de Dios, que también obra en vosotros los que creéis.
+Por eso también nosotros damos gracias a Dios sin cesar, porque cuando recibisteis el mensaje de Dios que os predicamos, no lo aceptasteis como un simple mensaje humano, sino como lo que de verdad es: la palabra de Dios, que actúa en vosotros, los que creéis.
 
 ## 1 Tesalonicenses 2:14
 
@@ -74,8 +74,8 @@ Porque quisimos ir a vosotros —yo, Pablo, más de una vez— pero Satanás nos
 
 ## 1 Tesalonicenses 2:19
 
-Porque ¿quién es nuestra esperanza, o gozo, o corona de orgullo? ¿No sois vosotros, en la presencia de nuestro Señor Jesús en su venida?
+Porque ¿quién es nuestra esperanza, nuestra alegría y la corona de la que nos sentiremos orgullosos? ¿No sois vosotros, cuando estemos ante nuestro Señor Jesús en su venida?
 
 ## 1 Tesalonicenses 2:20
 
-Porque vosotros sois ciertamente nuestra gloria y gozo.
+Sí, vosotros sois nuestro orgullo y nuestra alegría.

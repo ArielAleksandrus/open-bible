@@ -57,8 +57,8 @@ Entonces,
 
 ## 1 Crónicas 16:8
 
-> Dad gracias al Señor, invocad su nombre;  
->  Dad a conocer sus obras entre los pueblos.
+> “Dad gracias al Señor y clamad a su nombre;  
+>  haced que los pueblos conozcan lo que Él ha hecho.
 
 ---
 
@@ -71,29 +71,29 @@ Entonces,
 
 ## 1 Crónicas 16:10
 
-> Gloriaos en su santo nombre;  
->  Alégrese el corazón de los que buscan al Señor.
+> Sentíos orgullosos de su santo nombre;  
+>  que se alegre el corazón de quienes buscan al Señor.
 
 ---
 
 ## 1 Crónicas 16:11
 
-> Buscad al Señor y su fortaleza;  
->  Buscad su presencia continuamente.
+> Id tras el Señor y tras su fuerza;  
+>  procurad siempre estar en su presencia.
 
 ---
 
 ## 1 Crónicas 16:12
 
-> Recordad sus maravillas que ha hecho,  
->  Sus prodigios y los juicios de su boca,
+> Acordaos de los prodigios que realizó,  
+>  de sus maravillas y de las sentencias que salieron de su boca,
 
 ---
 
 ## 1 Crónicas 16:13
 
-> Vosotros, descendencia de Israel, su siervo,  
->  Hijos de Jacob, sus escogidos.
+> vosotros, descendientes de Israel, su siervo;  
+>  vosotros, hijos de Jacob, sus elegidos.
 
 ---
 
@@ -106,64 +106,64 @@ Entonces,
 
 ## 1 Crónicas 16:15
 
-> Recordad su pacto para siempre,  
->  La palabra que mandó para mil generaciones,
+> Tened siempre presente su pacto,  
+>  la palabra que dictó para mil generaciones,
 
 ---
 
 ## 1 Crónicas 16:16
 
 > El pacto que estableció con Abraham,  
->  Y su promesa a Isaac.
+>  y su promesa a Isaac.
 
 ---
 
 ## 1 Crónicas 16:17
 
-> También lo confirmó a Jacob como decreto,  
->  A Israel como pacto eterno,
+> Él se lo confirmó también a Jacob como un decreto,  
+>  a Israel como un pacto que dura para siempre,
 
 ---
 
 ## 1 Crónicas 16:18
 
-> Diciendo: “A ti te daré la tierra de Canaán,  
->  Como la porción de tu herencia.”
+> cuando dijo: ‘Te daré la tierra de Canaán;  
+>  será la parte que te toca en herencia.’
 
 ---
 
 ## 1 Crónicas 16:19
 
-> Cuando erais pocos en número,  
->  Muy pocos, y extranjeros en ella,
+> Cuando erais pocos, apenas un puñado,  
+>  y vivíais allí como extranjeros,
 
 ---
 
 ## 1 Crónicas 16:20
 
-> Y anduvieron de nación en nación,  
->  Y de un reino a otro pueblo,
+> e iban de una nación a otra,  
+>  de un reino a otro pueblo,
 
 ---
 
 ## 1 Crónicas 16:21
 
-> No permitió que nadie los oprimiera,  
->  Y reprendió a reyes por su causa, diciendo,
+> Él no dejó que nadie los maltratara,  
+>  y por causa de ellos reprendió a reyes, diciendo,
 
 ---
 
 ## 1 Crónicas 16:22
 
-> “No toquéis a mis ungidos,  
->  Y no hagáis mal a mis profetas.”
+> ‘No pongáis la mano sobre mis ungidos,  
+>  ni les hagáis daño a mis profetas.’
 
 ---
 
 ## 1 Crónicas 16:23
 
-> Cantad al Señor, toda la tierra;  
->  Anunciad de día en día su salvación.
+> ¡Que toda la tierra cante al Señor!  
+>  Anunciad día tras día la buena noticia de su salvación.
 
 ---
 
@@ -176,15 +176,15 @@ Entonces,
 
 ## 1 Crónicas 16:25
 
-> Porque grande es el Señor y digno de suprema alabanza;  
->  Temible es Él sobre todos los dioses.
+> Porque el Señor es grande y merece gran alabanza;  
+>  hay que reverenciarlo por encima de todos los dioses.
 
 ---
 
 ## 1 Crónicas 16:26
 
-> Porque todos los dioses de los pueblos son ídolos vanos,  
->  Pero el Señor hizo los cielos.
+> Porque los dioses de los pueblos no son más que ídolos,  
+>  pero el Señor hizo los cielos.
 
 ---
 
@@ -204,9 +204,9 @@ Entonces,
 
 ## 1 Crónicas 16:29
 
-> Atribuid al Señor la gloria debida a su nombre;  
->  Traed ofrenda, y venid ante Él;  
->  Adorad al Señor en vestiduras sagradas.
+> Atribuid al Señor la gloria que su nombre merece;  
+>  llevad una ofrenda y presentaos delante de Él;  
+>  adorad al Señor con vestiduras sagradas.
 
 ---
 
@@ -219,47 +219,47 @@ Entonces,
 
 ## 1 Crónicas 16:31
 
-> Alégrense los cielos, y regocíjese la tierra;  
->  Y digan entre las naciones: “El Señor reina.”
+> Que los cielos estén alegres y la tierra se llene de gozo;  
+>  y que se diga entre las naciones: ‘El Señor reina.’
 
 ---
 
 ## 1 Crónicas 16:32
 
-> Resuene el mar, y todo lo que contiene;  
->  Regocíjese el campo, y todo lo que hay en él.
+> Que retumbe el mar con todo lo que hay en él;  
+>  que el campo salte de júbilo con todo lo que contiene.
 
 ---
 
 ## 1 Crónicas 16:33
 
-> Entonces cantarán de alegría los árboles del bosque delante del Señor;  
->  Porque Él viene a juzgar la tierra.
+> Entonces los árboles del bosque gritarán de alegría delante del Señor,  
+>  porque Él viene a hacer justicia en la tierra.
 
 ---
 
 ## 1 Crónicas 16:34
 
 > Dad gracias al Señor, porque Él es bueno;  
->  Porque su fidelidad es eterna.
+>  porque su fidelidad es eterna.
 
 ---
 
 ## 1 Crónicas 16:35
 
-> Y decid: “Sálvanos, Dios de nuestra salvación,  
->  Y recógenos y líbranos de las naciones,  
->  Para dar gracias a tu santo nombre,  
->  Y gloriarnos en tu alabanza.”
+> Y decid: ‘Sálvanos, oh Dios que nos salvas;  
+>  reúnenos y rescátanos de entre las naciones,  
+>  para que demos gracias a tu santo nombre y encontremos nuestra gloria en alabarte.  
+> ’
 
 ---
 
 ## 1 Crónicas 16:36
 
-> ¡Bendito sea el Señor, el Dios de Israel,  
->  Desde la eternidad hasta la eternidad!”  
->  Entonces todo el pueblo dijo,  
->  “Amén,” y alabó al Señor.
+> ¡Alabado sea el Señor, el Dios de Israel,  
+>  desde siempre y para siempre!”  
+>  Entonces todo el pueblo dijo:  
+>  “Amén”, y alabó al Señor.
 
 ---
 
@@ -275,7 +275,7 @@ Así que dejó a Asaf y a sus parientes allí delante del arca del pacto del Se�
 
 y a Obed-edom con sus sesenta y ocho parientes;
 
->  Obed-edom, también hijo de Jedutún, y a Hosá, como porteros.
+>  Obed-edom, también hijo de Jedutún, y a Hosa, como porteros.
 
 ---
 

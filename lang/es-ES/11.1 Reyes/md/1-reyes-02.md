@@ -40,7 +40,7 @@ Por tanto, actúa conforme a tu sabiduría,
 
 ## 1 Reyes 2:7
 
-Pero muestra bondad a los hijos de Barzilai el Galaadita,  
+Pero muestra bondad a los hijos de Barzilai el galaadita,  
  y que estén entre los que comen a tu mesa,  
  porque vinieron a mí cuando huía de Absalón tu hermano.
 
@@ -92,8 +92,8 @@ Entonces él dijo: “Tengo algo que decirte.”
 Y él dijo,  
  “Sabes que el reino era mío,  
  y que todo Israel esperaba que yo reinara.  
- Sin embargo, el reino se ha vuelto y ha sido de mi hermano,  
- porque era suyo del Señor.
+ Sin embargo, el reino cambió de manos y pasó a mi hermano,  
+ porque el Señor se lo dio.
 
 ## 1 Reyes 2:16
 
@@ -132,7 +132,7 @@ Así que ella dijo: “Permite que Abisag la sunamita sea dada a Adonías tu her
 
 El rey Salomón respondió y dijo a su madre,  
  “¿Por qué pides a Abisag la sunamita para Adonías?  
- Pide para él también el reino —ya que él es mi hermano mayor— incluso para él,  
+ ¡Pide para él también el reino —ya que él es mi hermano mayor— incluso para él,  
  para Abiatar el sacerdote, y para Joab hijo de Sarvia!”
 
 ## 1 Reyes 2:23
@@ -145,7 +145,7 @@ Entonces el rey Salomón juró por el Señor, diciendo,
 
 Ahora, por tanto, tan cierto como que vive el Señor,  
  quien me ha establecido y me ha puesto en el trono de mi padre David,  
- y quien me ha hecho una casa como prometió —Adonías será ciertamente muerto hoy—.  
+ y quien me ha hecho una casa como prometió, que hoy mismo Adonías morirá.  
 ”
 
 ## 1 Reyes 2:25
@@ -166,7 +166,7 @@ Entonces el rey dijo a Abiatar el sacerdote,
 
 ## 1 Reyes 2:27
 
-Así que Salomón removió a Abiatar de ser sacerdote del Señor,  
+Así que Salomón destituyó a Abiatar del sacerdocio del Señor,  
  para cumplir la palabra del Señor que había hablado acerca de la casa de Elí en Silo.
 
 ---
@@ -266,7 +266,7 @@ Y se le informó a Salomón que Simei había ido de Jerusalén a Gat y había re
 
 Así que el rey envió y llamó a Simei y le dijo,  
  “¿No te hice jurar por el Señor y te advertí solemnemente, diciendo,  
- ‘Sabe con certeza que el día que te vayas y vayas a cualquier parte,  
+ ‘Sabe con certeza que el día que salgas y vayas a cualquier parte,  
  ciertamente morirás’?  
  Y tú me dijiste, ‘La palabra que he oído es buena.’
 

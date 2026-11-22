@@ -4,7 +4,7 @@
 Los jefes de las casas paternas de la familia de Galaad, hijo de Maquir, hijo de Manasés, de las familias de los descendientes de José, se acercaron y hablaron delante de Moisés y de los líderes, los jefes de las familias israelitas.
 
 ## Números 36:2
-Dijeron: “El Señor instruyó a mi señor que asignara la tierra a los israelitas como herencia por sorteo, y mi señor fue dirigido por el Señor para asignar la herencia de nuestro hermano Zelofehad a sus hijas.
+Dijeron: “El Señor instruyó a mi señor que asignara la tierra a los israelitas como herencia por sorteo, y el Señor mandó a mi señor que asignara la herencia de nuestro hermano Zelofehad a sus hijas.
 
 ## Números 36:3
 Pero si se casan con hombres de otras tribus israelitas, su herencia será removida de nuestra herencia ancestral y añadida a la tribu con la que se casen, disminuyendo así nuestra herencia asignada.
@@ -34,7 +34,7 @@ Las hijas de Zelofehad actuaron como el Señor había mandado a Moisés.
 Mala, Tirsa, Jogla, Milca y Noa, las hijas de Zelofehad, se casaron con sus primos por parte de padre.
 
 ## Números 36:12
-Se casaron con las familias de los descendientes de Manasés, hijo de José, y su herencia permaneció dentro de la tribu y familia de su padre.
+Se casaron dentro de las familias de los descendientes de Manasés, hijo de José, y su herencia permaneció dentro de la tribu y familia de su padre.
 
 ## Números 36:13
 Estos son los mandatos y regulaciones que el Señor dio a los israelitas por medio de Moisés en las llanuras de Moab, junto al Jordán, frente a Jericó.

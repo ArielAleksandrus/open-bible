@@ -10,7 +10,7 @@ El Señor le preguntó: “¿Qué es eso que tienes en la mano?” Él respondi�
 
 ## Éxodo 4:3
 
-El Señor le instruyó: “Tírala al suelo.” Así que Moisés la tiró, y se convirtió en una serpiente, lo que le hizo huir de ella.
+El Señor le instruyó: “Tírala al suelo.” Así que Moisés la tiró, y se convirtió en una serpiente, y Moisés huyó de ella.
 
 ## Éxodo 4:4
 
@@ -30,11 +30,11 @@ El Señor entonces dijo: “Mete tu mano dentro de tu manto.” Moisés metió l
 
 ## Éxodo 4:8
 
-El Señor continuó: “Si no te creen ni prestan atención al primer signo, pueden creer el segundo.
+El Señor continuó: “Si no te creen ni prestan atención a la primera señal, quizá crean la segunda.
 
 ## Éxodo 4:9
 
-Pero si no creen ni siquiera estos dos signos ni te escuchan, toma un poco de agua del Nilo y viértela en el suelo seco. El agua que tomes se convertirá en sangre en el suelo.”
+Pero si no creen ni siquiera estas dos señales ni te escuchan, toma un poco de agua del Nilo y viértela en el suelo seco. El agua que tomes se convertirá en sangre en el suelo.”
 
 ## Éxodo 4:10
 
@@ -66,7 +66,7 @@ Hablarás con él y pondrás las palabras en su boca; estaré con ambos mientras
 
 ## Éxodo 4:17
 
-Pero lleva esta vara en tu mano, con ella realizarás los signos.”
+Pero lleva esta vara en tu mano, con ella realizarás las señales.”
 
 ## Éxodo 4:18
 
@@ -110,7 +110,7 @@ El Señor instruyó a Aarón: “Ve al desierto para encontrarte con Moisés.”
 
 ## Éxodo 4:28
 
-Moisés contó a Aarón todas las palabras del Señor con las que lo había enviado, y todos los signos que le había mandado realizar.
+Moisés contó a Aarón todas las palabras del Señor con las que lo había enviado, y todas las señales que le había mandado realizar.
 
 ## Éxodo 4:29
 
@@ -118,7 +118,7 @@ Moisés y Aarón entonces reunieron a todos los ancianos de los israelitas,
 
 ## Éxodo 4:30
 
-y Aarón transmitió todas las palabras que el Señor había hablado a Moisés. También realizó los signos ante la vista del pueblo,
+y Aarón transmitió todas las palabras que el Señor había hablado a Moisés. También realizó las señales ante la vista del pueblo,
 
 ## Éxodo 4:31
 

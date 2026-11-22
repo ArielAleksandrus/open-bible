@@ -19,7 +19,7 @@ y para cortar piedras para engastes, y para tallar madera, para dedicarse a toda
 Además, he designado a Oholiab, hijo de Ahisamac, de la tribu de Dan, para que lo asista. También he dotado a todos los artesanos hábiles con habilidad, para que puedan hacer todo lo que te he instruido:
 
 ## Éxodo 31:7
-la tienda de reunión, el arca del pacto con su cubierta de expiación, y todos los muebles de la tienda,
+la tienda de reunión, el arca del pacto con su propiciatorio, y todos los muebles de la tienda,
 
 ## Éxodo 31:8
 la mesa con sus utensilios, el candelabro de oro puro con todos sus accesorios, y el altar del incienso,

@@ -6,7 +6,7 @@ Entonces Dios instruyó a Jacob: “Levántate, sube a Betel y reside allí, y c
 
 ## Génesis 35:2
 
-Así que Jacob dijo a su familia y a todos los que estaban con él: “Quiten los dioses extranjeros que están entre ustedes, purifíquense y cambien sus vestiduras.”
+Así que Jacob dijo a su familia y a todos los que estaban con él: “Quitad los dioses extranjeros que hay entre vosotros, purificaos y cambiad vuestras vestiduras.”
 
 ## Génesis 35:3
 
@@ -62,7 +62,7 @@ Jacob llamó al lugar donde Dios había hablado con él Betel.
 
 ## Génesis 35:16
 
-Luego partieron de Betel. Cuando aún estaban a cierta distancia de Efrata, Raquel entró en trabajo de parto y experimentó severas dificultades.
+Luego partieron de Betel. Cuando aún estaban a cierta distancia de Efrata, Raquel comenzó a dar a luz y tuvo un parto muy difícil.
 
 ## Génesis 35:17
 

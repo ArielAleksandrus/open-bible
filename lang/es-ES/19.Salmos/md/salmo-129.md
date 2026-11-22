@@ -4,42 +4,42 @@
 
 ## Salmo 129:1
 
-> “Muchas veces me han atacado desde mi juventud,”  
->  Diga ahora Israel,
+> “Desde que era joven me han atacado muchas veces,”  
+>  que lo diga Israel,
 
 ## Salmo 129:2
 
-> “Muchas veces me han atacado desde mi juventud;  
->  Pero no han prevalecido contra mí.
+> “desde que era joven me han atacado muchas veces,  
+>  pero no han podido conmigo.
 
 ## Salmo 129:3
 
-> Sobre mis espaldas araron los aradores;  
->  Alargaron sus surcos.”
+> Los labradores pasaron el arado sobre mi espalda y abrieron surcos largos.  
+> ”
 
 ## Salmo 129:4
 
 > El Señor es justo;  
->  Ha cortado las cuerdas de los impíos.
+>  ha cortado las cuerdas con que los malvados me ataban.
 
 ---
 
 ## Salmo 129:5
 
-> Sean avergonzados y vueltos atrás Todos los que aborrecen a Sion;
+> Que todos los que odian a Sion queden en vergüenza y tengan que retroceder;
 
 ## Salmo 129:6
 
-> Sean como la hierba de los tejados,  
->  Que se seca antes de crecer;
+> que sean como la hierba que sale en los tejados,  
+>  que se seca antes de crecer,
 
 ## Salmo 129:7
 
-> De la cual no llena el segador su mano,  
->  Ni sus brazos el que hace gavillas;
+> con la que el segador no llena la mano,  
+>  ni el que ata las gavillas llena los brazos;
 
 ## Salmo 129:8
 
-> Ni dicen los que pasan:  
->  “La bendición del Señor sea sobre vosotros;  
->  Os bendecimos en el nombre del Señor.”
+> y que los que pasan a su lado no les digan:  
+>  “Que la bendición del Señor esté con vosotros;  
+>  os bendecimos en el nombre del Señor.”

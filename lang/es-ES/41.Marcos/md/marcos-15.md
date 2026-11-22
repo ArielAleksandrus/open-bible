@@ -60,7 +60,7 @@ Pilato preguntó, “¿Por qué, qué crimen ha cometido?” Pero ellos gritaron
 
 ## Marcos 15:15
 
-Para satisfacer a la multitud, Pilato liberó a Barrabás. Después de haber azotado a Jesús, lo entregó para ser crucificado.
+Para satisfacer a la multitud, Pilato liberó a Barrabás. Después de hacer azotar a Jesús, lo entregó para ser crucificado.
 
 ---
 
@@ -142,7 +142,7 @@ Cuando llegó la hora sexta, una oscuridad cubrió toda la tierra hasta la hora 
 
 ## Marcos 15:34
 
-A la hora novena, Jesús clamó con fuerte voz, “Eloi, Eloi, lema sabactani?” que significa, “Dios mío, Dios mío, ¿por qué me has desamparado?”
+A la hora novena, Jesús gritó con fuerza: “Eloi, Eloi, ¿lema sabactani?”, que significa: “Dios mío, Dios mío, ¿por qué me has abandonado?”
 
 ## Marcos 15:35
 
@@ -150,7 +150,7 @@ Algunos de los que estaban allí, al oírlo, dijeron, “Escuchad, está llamand
 
 ## Marcos 15:36
 
-Alguien corrió, llenó una esponja con vino agrio, la puso en una caña y se la ofreció para beber, diciendo, “Dejadnos ver si viene Elías a bajarlo.”
+Alguien corrió, llenó una esponja con vino agrio, la puso en una caña y se la ofreció para beber, diciendo, “Veamos si viene Elías a bajarlo.”
 
 ## Marcos 15:37
 

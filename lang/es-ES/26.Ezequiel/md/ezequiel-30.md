@@ -6,7 +6,7 @@ El mensaje del Señor me llegó:
 
 ## Ezequiel 30:2
 
-“Hijo de hombre, profetiza y declara: ‘Esto es lo que dice el Señor Soberano:
+“Hijo de hombre, profetiza y declara: ‘Esto es lo que dice el Señor Dios:
 
 >  “Lamenta,
 >  ‘¡Ay de aquel día!’
@@ -37,7 +37,7 @@ Cus, Fut, Lud, toda Arabia, Libia y el pueblo de la tierra del pacto caerán a e
 >  “Los aliados de Egipto caerán y el orgullo de su poder será abatido.
 >  Desde Migdol hasta Siene caerán a espada dentro de ella,
 > ”
->  declara el Señor Soberano.
+>  declara el Señor Dios.
 
 ## Ezequiel 30:7
 
@@ -51,11 +51,11 @@ Cus, Fut, Lud, toda Arabia, Libia y el pueblo de la tierra del pacto caerán a e
 
 ## Ezequiel 30:9
 
-En ese día saldrán mensajeros de mi parte en barcos para asustar a Cus de su complacencia; el temblor se apoderará de ellos en el día de la desgracia de Egipto, porque ciertamente viene.
+En ese día saldrán mensajeros de mi parte en barcos para aterrorizar a Cus, que vive confiada; el temblor se apoderará de ellos en el día de la desgracia de Egipto, porque ciertamente viene.
 
 ## Ezequiel 30:10
 
-‘Esto es lo que declara el Señor Soberano:
+‘Esto es lo que declara el Señor Dios:
 
 >  “Pondré fin a la multitud egipcia y usaré la mano de Nabucodonosor,
 >  rey de Babilonia.
@@ -78,7 +78,7 @@ En ese día saldrán mensajeros de mi parte en barcos para asustar a Cus de su c
 
 ## Ezequiel 30:13
 
-‘Esto es lo que dice el Señor Soberano:
+‘Esto es lo que dice el Señor Dios:
 
 >  “Destruiré los ídolos y pondré fin a las imágenes en Menfis.
 >  Ya no habrá príncipe en Egipto,
@@ -100,7 +100,7 @@ En ese día saldrán mensajeros de mi parte en barcos para asustar a Cus de su c
 
 > Prenderé fuego a Egipto;
 >  Pelusio se retorcerá de agonía,
->  Tebas será brecha,
+>  en Tebas se abrirá brecha,
 >  y Menfis estará en constante angustia.
 
 ## Ezequiel 30:17
@@ -130,7 +130,7 @@ En el undécimo año, en el primer mes, el séptimo día, el mensaje del Señor 
 
 ## Ezequiel 30:22
 
-Por lo tanto, esto es lo que dice el Señor Soberano: ‘He aquí, estoy contra el faraón, rey de Egipto, y quebraré ambos brazos, el fuerte y el quebrado, y haré caer la espada de su mano.
+Por lo tanto, esto es lo que dice el Señor Dios: ‘He aquí, estoy contra el faraón, rey de Egipto, y quebraré ambos brazos, el fuerte y el quebrado, y haré caer la espada de su mano.
 
 ## Ezequiel 30:23
 
@@ -138,7 +138,7 @@ Haré que los egipcios sean esparcidos entre las naciones y los dispersaré por 
 
 ## Ezequiel 30:24
 
-Empoderaré al rey de Babilonia y pondré mi espada en su mano, pero quebraré los brazos del faraón, y gemirá ante él como quien está gravemente herido.
+Fortaleceré al rey de Babilonia y pondré mi espada en su mano, pero quebraré los brazos del faraón, y gemirá ante él como quien está gravemente herido.
 
 ## Ezequiel 30:25
 

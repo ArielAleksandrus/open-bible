@@ -36,11 +36,11 @@ En el documento sellado estaban los nombres de:
 
 ## Nehemías 10:9
 
-> Y los levitas: Jesúa hijo de Azanías, Binuy de los hijos de Henadad, y Cadmiel;
+> Y los levitas: Jesúa hijo de Azanías, Binui de los hijos de Henadad, y Cadmiel;
 
 ## Nehemías 10:10
 
-> junto con sus hermanos: Sebanías, Hodías, Kelita, Pelaías y Hanán,
+> junto con sus hermanos: Sebanías, Hodías, Quelita, Pelaías y Hanán,
 
 ## Nehemías 10:11
 
@@ -100,11 +100,11 @@ Los jefes del pueblo:
 
 ## Nehemías 10:24
 
-> Haloes, Pilha y Sobec,
+> Halohes, Pilha y Sobec,
 
 ## Nehemías 10:25
 
-> Rehum, Hasabná y Maaseías,
+> Rehum, Hasabná y Maasías,
 
 ## Nehemías 10:26
 
@@ -138,7 +138,7 @@ También nos impusimos la obligación de contribuir anualmente con un tercio de 
 
 ## Nehemías 10:33
 
-para el pan de la proposición, para las ofrendas regulares de grano y holocaustos, para los sábados, las lunas nuevas, las festividades señaladas, para las ofrendas sagradas, para las ofrendas por el pecado para hacer expiación por Israel, y para todos los deberes de la casa de nuestro Dios.
+para el pan de la proposición, para las ofrendas regulares de cereal y holocaustos, para los sábados, las lunas nuevas, las festividades señaladas, para las ofrendas sagradas, para las ofrendas por el pecado para hacer expiación por Israel, y para todos los deberes de la casa de nuestro Dios.
 
 ## Nehemías 10:34
 

@@ -46,7 +46,7 @@ Entonces Samuel transmitió todas las palabras del Señor al pueblo que le pedí
 
 ## 1 Samuel 8:11
 
-Él dijo: “Esto es lo que hará el rey que gobierne sobre ustedes: Tomará a sus hijos y los asignará a sus carros y caballos, y correrán delante de sus carros.
+Él dijo: “Esto es lo que hará el rey que reine sobre vosotros: tomará a vuestros hijos y los asignará a sus carros y caballos, y correrán delante de sus carros.
 
 ## 1 Samuel 8:12
 
@@ -54,27 +54,27 @@ Nombrará comandantes de miles y de cincuentenas, y a otros para arar sus campos
 
 ## 1 Samuel 8:13
 
-Tomará a sus hijas para que trabajen como perfumistas, cocineras y panaderas.
+Tomará a vuestras hijas para que trabajen como perfumistas, cocineras y panaderas.
 
 ## 1 Samuel 8:14
 
-Tomará lo mejor de sus campos, viñedos y olivares, y lo dará a sus oficiales.
+Tomará lo mejor de vuestros campos, viñedos y olivares, y lo dará a sus oficiales.
 
 ## 1 Samuel 8:15
 
-Tomará una décima parte de su grano y de su cosecha y se la dará a sus eunucos y oficiales.
+Tomará una décima parte de vuestro grano y de vuestra cosecha y se la dará a sus eunucos y oficiales.
 
 ## 1 Samuel 8:16
 
-Tomará a sus siervos y siervas, lo mejor de su ganado y asnos, y los pondrá a su servicio.
+Tomará a vuestros siervos y siervas, lo mejor de vuestro ganado y asnos, y los pondrá a su servicio.
 
 ## 1 Samuel 8:17
 
-Tomará una décima parte de sus rebaños, y ustedes mismos se convertirán en sus siervos.
+Tomará una décima parte de vuestros rebaños, y vosotros mismos os convertiréis en sus siervos.
 
 ## 1 Samuel 8:18
 
-Cuando llegue ese día, clamarán a causa del rey que han elegido para ustedes, pero el Señor no les responderá en ese día.”
+Cuando llegue ese día, clamaréis a causa del rey que habéis elegido para vosotros, pero el Señor no os responderá en ese día.”
 
 ---
 
@@ -93,4 +93,4 @@ Cuando Samuel oyó todo lo que el pueblo decía, se lo comunicó al Señor.
 ## 1 Samuel 8:22
 
 Y el Señor le dijo a Samuel: “Escúchalos y nómbrales un rey.”  
- Entonces Samuel dijo a los hombres de Israel: “Cada uno de ustedes vuelva a su propia ciudad.”
+ Entonces Samuel dijo a los hombres de Israel: “Cada uno de vosotros vuelva a su propia ciudad.”

@@ -87,7 +87,7 @@ Había escrito en la carta, diciendo,
 
 ## 2 Samuel 11:16
 
-Así fue como Joab vigilaba la ciudad,  
+Mientras Joab sitiaba la ciudad,  
  asignó a Urías al lugar donde sabía que había hombres valientes.
 
 ## 2 Samuel 11:17
@@ -115,9 +115,9 @@ y si la ira del rey se levanta y te dice,
 
 ¿Quién hirió a Abimelec, hijo de Jerobeset?  
  ¿No arrojó una mujer una piedra de molino sobre él desde el muro para que muriera en Tebes?  
- ¿Por qué os acercasteis tanto al muro?’  
- —entonces dirás,  
- ‘Tu siervo Urías el hitita también ha muerto—.’”
+ ¿Por qué os acercasteis tanto al muro?  
+’ entonces dirás:  
+ ‘Tu siervo Urías el hitita también ha muerto.’”
 
 ---
 

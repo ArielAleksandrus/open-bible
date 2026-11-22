@@ -14,11 +14,11 @@ pero al entrar, no encontraron el cuerpo del Señor Jesús.
 
 ## Lucas 24:4
 
-Mientras estaban perplejas por esto, de repente dos hombres con vestiduras resplandecientes como el relámpago se pusieron junto a ellas.
+No sabían qué pensar de aquello, cuando de pronto se pusieron junto a ellas dos hombres con ropas que brillaban como un relámpago.
 
 ## Lucas 24:5
 
-Asustadas, las mujeres inclinaron el rostro hacia el suelo, pero los hombres les dijeron: “¿Por qué buscáis entre los muertos al que vive?
+Asustadas, las mujeres inclinaron el rostro hasta el suelo, pero los hombres les dijeron: “¿Por qué buscáis al que vive entre los muertos?
 
 ## Lucas 24:6
 
@@ -34,11 +34,11 @@ En ese momento, recordaron sus palabras.
 
 ## Lucas 24:9
 
-Al regresar del sepulcro, compartieron todas estas cosas con los once y con todos los demás.
+Al regresar del sepulcro, contaron todas estas cosas a los once y a todos los demás.
 
 ## Lucas 24:10
 
-María Magdalena, Juana, María la madre de Jacobo, y las demás mujeres con ellas comunicaron esto a los apóstoles.
+María Magdalena, Juana, María la madre de Santiago, y las demás mujeres con ellas comunicaron esto a los apóstoles.
 
 ## Lucas 24:11
 
@@ -68,7 +68,7 @@ pero sus ojos estaban impedidos de reconocerle.
 
 ## Lucas 24:17
 
-Él les preguntó: “¿Qué son estas cosas que discutís mientras camináis?” Se detuvieron, con semblante triste.
+Él les preguntó: “¿De qué cosas venís hablando mientras camináis?” Se detuvieron, con semblante triste.
 
 ## Lucas 24:18
 
@@ -118,7 +118,7 @@ Al acercarse al pueblo al que iban, Él hizo como que iba más lejos.
 
 ## Lucas 24:29
 
-Pero ellos le instaron con insistencia, diciendo: “Quédate con nosotros, porque se hace tarde; el día ya ha declinado.” Así que entró para quedarse con ellos.
+Pero ellos le insistieron mucho: “Quédate con nosotros, que ya está anocheciendo y se acaba el día.” Y entró para quedarse con ellos.
 
 ## Lucas 24:30
 
@@ -142,13 +142,13 @@ y diciendo: “El Señor ha resucitado verdaderamente y se ha aparecido a Simón
 
 ## Lucas 24:35
 
-Entonces los dos contaron lo que había sucedido en el camino, y cómo le habían reconocido al partir el pan.
+Entonces los dos contaron lo que les había pasado en el camino, y cómo lo habían reconocido cuando partió el pan.
 
 ---
 
 ## Lucas 24:36
 
-Mientras hablaban de esto, Jesús mismo se puso en medio de ellos y les dijo: “Paz a vosotros.”
+Todavía estaban hablando de esto cuando Jesús mismo se presentó en medio de ellos y les dijo: “La paz esté con vosotros.”
 
 ## Lucas 24:37
 
@@ -182,11 +182,11 @@ y Él lo tomó y lo comió delante de ellos.
 
 ## Lucas 24:44
 
-Él les dijo: “Estas son mis palabras que os hablé mientras aún estaba con vosotros: Todo debe cumplirse que está escrito sobre mí en la Ley de Moisés, los Profetas y los Salmos.”
+Él les dijo: “Estas son mis palabras que os hablé mientras aún estaba con vosotros: Es necesario que se cumpla todo lo que está escrito sobre mí en la Ley de Moisés, los Profetas y los Salmos.”
 
 ## Lucas 24:45
 
-Entonces les permitió comprender las Escrituras.
+Entonces les hizo comprender las Escrituras.
 
 ## Lucas 24:46
 

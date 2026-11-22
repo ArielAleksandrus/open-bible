@@ -55,7 +55,7 @@ Luego preguntaron a Baruc: “Dinos, ¿cómo llegaste a escribir todo esto? ¿Fu
 “Sí,” respondió Baruc, “él me dictó todas estas palabras, y yo las escribí con tinta en el rollo.”
 
 ## Jeremías 36:19
-Entonces los oficiales aconsejaron a Baruc: “Tú y Jeremías debéis encontrar un lugar seguro. No dejen que nadie sepa dónde están.”
+Entonces los oficiales aconsejaron a Baruc: “Tú y Jeremías debéis encontrar un lugar seguro. No dejéis que nadie sepa dónde estáis.”
 
 ## Jeremías 36:20
 Colocaron el rollo en la cámara de Elisama el escriba y fueron al rey en el patio, informándole de todo.

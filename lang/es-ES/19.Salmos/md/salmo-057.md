@@ -4,77 +4,77 @@
 
 ## Salmo 57:1
 
-> Ten misericordia de mí, Dios, ten misericordia de mí,  
->  Porque en ti ha confiado mi alma;  
->  Y en la sombra de tus alas me ampararé Hasta que pasen los quebrantos.
+> Ten compasión de mí, Dios, ten compasión de mí,  
+>  porque mi alma se refugia en ti;  
+>  me refugiaré a la sombra de tus alas Hasta que haya pasado el peligro.
 
 ---
 
 ## Salmo 57:2
 
 > Clamaré al Dios Altísimo,  
->  Al Dios que lleva a cabo su propósito en mí.
+>  al Dios que lleva a cabo su propósito en mí.
 
 ## Salmo 57:3
 
-> Él enviará desde el cielo y me salvará;  
+> Él enviará ayuda desde el cielo y me salvará;  
 >  Reprenderá al que me pisotea.  
->  Selah Dios enviará su favor y su verdad.
+>  Selah Dios me enviará su favor y su fidelidad.
 
 ---
 
 ## Salmo 57:4
 
-> Mi alma está entre leones;  
->  Debo acostarme entre los que devoran,  
->  Entre los hijos de los hombres, cuyos dientes son lanzas y flechas,  
->  Y su lengua es una espada afilada.
+> Estoy rodeado de leones;  
+>  Tengo que dormir entre fieras que devoran,  
+>  Entre gente que tiene lanzas y flechas por dientes,  
+>  y una espada bien afilada por lengua.
 
 ---
 
 ## Salmo 57:5
 
-> Sé exaltado sobre los cielos, Dios;  
->  Que tu gloria sea sobre toda la tierra.
+> Dios, muéstrate en lo alto, por encima de los cielos;  
+>  que tu gloria llene toda la tierra.
 
 ---
 
 ## Salmo 57:6
 
-> Han tendido una trampa para mis pasos;  
->  Mi alma está abatida;  
->  Han cavado un hoyo delante de mí;  
->  Ellos mismos han caído en él.  
+> Han puesto una trampa a mi paso;  
+>  Estoy hundido en la tristeza;  
+>  Han hecho un hoyo en mi camino;  
+>  Pero son ellos los que han caído en él.  
 >  Selah
 
 ---
 
 ## Salmo 57:7
 
-> Mi corazón está firme, Dios, mi corazón está firme;  
->  Cantaré, sí, cantaré alabanzas.
+> Dios, mi corazón no vacila, mi corazón no vacila; ¡Voy a cantar,  
+>  sí, voy a cantarte alabanzas!
 
 ## Salmo 57:8
 
-> ¡Despierta, alma mía!  
->  ¡Despierten, arpa y lira!  
->  Despertaré la luz de la mañana.
+> ¡Arriba, alma mía!  
+>  ¡Arriba, arpa y lira!  
+>  Voy a despertar a la aurora.
 
 ---
 
 ## Salmo 57:9
 
-> Te daré gracias, Señor, entre los pueblos;  
->  Cantaré alabanzas a ti entre las naciones.
+> Señor, te daré gracias en medio de los pueblos;  
+>  Te cantaré alabanzas entre las naciones.
 
 ## Salmo 57:10
 
-> Porque tu misericordia alcanza hasta los cielos,  
->  Y tu verdad hasta las nubes.
+> Porque tu misericordia llega hasta los cielos,  
+>  y tu fidelidad alcanza las nubes.
 
 ---
 
 ## Salmo 57:11
 
-> Sé exaltado sobre los cielos, Dios;  
->  Que tu gloria sea sobre toda la tierra.
+> Dios, muéstrate en lo alto, por encima de los cielos;  
+>  que tu gloria llene toda la tierra.

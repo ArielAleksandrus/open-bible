@@ -4,102 +4,100 @@
 
 ## Salmo 132:1
 
-> Acuérdate, Señor, en favor de David,  
->  De toda su aflicción;
+> Señor,  
+>  acuérdate de David y de todos los sufrimientos que pasó;
 
 ---
 
 ## Salmo 132:2
 
-> Cómo hizo un juramento al Señor Y prometió al Fuerte de Jacob:
+> de cómo le hizo un juramento al Señor, una promesa al Poderoso de Jacob:
 
 ## Salmo 132:3
 
-> “Ciertamente no entraré en mi casa,  
->  Ni me acostaré en mi cama;
+> “No pienso entrar en mi casa ni echarme en mi cama;
 
 ## Salmo 132:4
 
-> No permitiré sueño a mis ojos,  
->  Ni adormecimiento a mis párpados,
+> no dejaré que mis ojos se cierren ni que mis párpados se rindan al sueño,
 
 ## Salmo 132:5
 
-> Hasta que halle un lugar para el Señor,  
->  Una morada para el Fuerte de Jacob.”
+> hasta que encuentre un lugar para el Señor,  
+>  una casa para el Poderoso de Jacob.”
 
 ---
 
 ## Salmo 132:6
 
-> En verdad, lo oímos en Éfrata,  
->  Lo hallamos en los campos de Jaar.
+> Oímos hablar de ella en Éfrata,  
+>  y la encontramos en los campos de Jaar.
 
 ## Salmo 132:7
 
-> Entremos en su morada;  
->  Postrémonos ante el estrado de sus pies.
+> Entremos en el lugar donde Él vive;  
+>  inclinémonos ante el lugar donde apoya los pies.
 
 ## Salmo 132:8
 
-> Levántate, Señor, a tu lugar de reposo,  
->  Tú y el arca de tu poder.
+> Señor, levántate y ven al lugar de tu descanso,  
+>  tú y el arca de tu poder.
 
 ## Salmo 132:9
 
-> Que tus sacerdotes se vistan de justicia,  
->  Y que tus fieles griten de alegría.
+> Que tus sacerdotes se revistan de justicia,  
+>  y que tus fieles griten de alegría.
 
 ---
 
 ## Salmo 132:10
 
 > Por amor a tu siervo David,  
->  No rechaces el rostro de tu ungido.
+>  no le des la espalda a tu ungido.
 
 ---
 
 ## Salmo 132:11
 
-> El Señor ha hecho una promesa a David Una verdad que no revocará:  
->  “Pondré sobre tu trono A uno de tu propio linaje.
+> El Señor le hizo una promesa a David, una promesa firme de la que no se volverá atrás:  
+>  “A uno de tus propios descendientes lo pondré en tu trono.
 
 ## Salmo 132:12
 
-> Si tus hijos guardan mi pacto Y los decretos que les enseñaré,  
->  Sus descendientes también se sentarán sobre tu trono para siempre.  
+> Si tus hijos cumplen mi pacto y los mandatos que les voy a enseñar,  
+>  también sus descendientes se sentarán en tu trono para siempre.  
 > ”
 
 ---
 
 ## Salmo 132:13
 
-> Porque el Señor ha escogido a Sion;  
->  La ha deseado como su morada.
+> Porque el Señor ha elegido Sion;  
+>  quiso que fuera el lugar donde vivir.
 
 ## Salmo 132:14
 
-> “Este es mi lugar de reposo para siempre;  
->  Aquí residiré, porque lo he anhelado.
+> “Aquí descansaré para siempre;  
+>  aquí viviré, porque así lo he querido.
 
 ## Salmo 132:15
 
-> Bendeciré en gran manera sus provisiones;  
->  Satisfaré a sus pobres con pan.
+> Llenaré de bendiciones sus provisiones;  
+>  daré pan hasta saciar a sus pobres.
 
 ## Salmo 132:16
 
-> También vestiré a sus sacerdotes con salvación,  
->  Y sus fieles cantarán con alegría.
+> Vestiré a sus sacerdotes de salvación,  
+>  y sus fieles cantarán llenos de alegría.
 
 ---
 
 ## Salmo 132:17
 
-> Haré que el cuerno de David florezca allí;  
->  He preparado una lámpara para mi ungido.
+> Allí haré que crezca el poder de David;  
+>  he preparado una lámpara para mi ungido.
 
 ## Salmo 132:18
 
 > Cubriré de vergüenza a sus enemigos,  
->  Pero sobre él, su corona resplandecerá.”
+>  pero sobre su cabeza brillará su corona.”

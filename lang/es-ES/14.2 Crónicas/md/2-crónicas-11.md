@@ -2,7 +2,7 @@
 
 ## 2 Crónicas 11:1
 
-Al llegar Roboam a Jerusalén, reunió a la casa de Judá y de Benjamín, 180,000 guerreros escogidos, para hacer la guerra contra Israel con el propósito de restaurar el reino para sí mismo.
+Al llegar Roboam a Jerusalén, reunió a la casa de Judá y de Benjamín, 180 000 guerreros escogidos, para hacer la guerra contra Israel con el propósito de restaurar el reino para sí mismo.
 
 ---
 
@@ -104,7 +104,7 @@ Fortalecieron el reino de Judá y apoyaron a Roboam, el hijo de Salomón, durant
 
 ## 2 Crónicas 11:18
 
-Roboam se casó con Mahalath, hija de Jerimot, hijo de David, y Abihail, hija de Eliab, hijo de Jesé.
+Roboam se casó con Mahalat, hija de Jerimot, hijo de David, y Abihail, hija de Eliab, hijo de Isaí.
 
 ---
 

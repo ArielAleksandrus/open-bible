@@ -122,7 +122,7 @@ Jacob también estuvo con Raquel, y amaba a Raquel más que a Lea. Trabajó para
 
 ## Génesis 29:31
 
-Cuando el Señor vio que Lea no era amada, le permitió concebir, pero Raquel permaneció sin hijos.
+Cuando el Señor vio que Lea no era amada, hizo que concibiera, pero Raquel permaneció sin hijos.
 
 ## Génesis 29:32
 

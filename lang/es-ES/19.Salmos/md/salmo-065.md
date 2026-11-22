@@ -5,23 +5,23 @@
 ## Salmo 65:1
 
 > Habrá silencio ante Ti, y alabanza en Sion, Dios,  
->  Y el voto será cumplido para Ti.
+>  y el voto será cumplido para Ti.
 
 ## Salmo 65:2
 
-> Tú que escuchas la oración,  
->  A Ti vendrán todos los pueblos.
+> Tú escuchas cuando se te ora;  
+>  por eso toda la gente acude a Ti.
 
 ## Salmo 65:3
 
-> Las iniquidades prevalecen contra mí;  
->  En cuanto a nuestras ofensas, Tú las perdonas.
+> Mis culpas me tienen dominado;  
+>  pero Tú perdonas nuestras faltas.
 
 ## Salmo 65:4
 
-> Bienaventurado el que Tú eliges y acercas a Ti;  
->  Él habitará en Tus atrios.  
->  Seremos saciados con la bondad de Tu casa,  
+> Feliz aquel a quien Tú eliges y acercas a Ti;  
+>  Él vivirá en Tus atrios.  
+>  Quedaremos satisfechos de lo bueno que hay en Tu casa,  
 >  Tu santo templo.
 
 ---
@@ -35,13 +35,13 @@
 ## Salmo 65:6
 
 > Que establece los montes con Su fuerza,  
->  Que está rodeado de poder;
+>  que está rodeado de poder;
 
 ## Salmo 65:7
 
-> Que calma el rugido de los mares,  
->  El rugido de sus olas,  
->  Y el tumulto de las naciones.
+> Que hace callar el rugido de los mares,  
+>  el estruendo de sus olas,  
+>  y el alboroto de las naciones.
 
 ## Salmo 65:8
 
@@ -52,30 +52,29 @@
 
 ## Salmo 65:9
 
-> Visitas la tierra y la haces rebosar;  
->  La enriqueces en gran manera;  
->  El arroyo de Dios está lleno de agua;  
->  Preparas su grano, porque así preparas la tierra.
+> Tú cuidas de la tierra y la haces desbordar;  
+>  la llenas de riquezas;  
+>  el río de Dios va lleno de agua;  
+>  Haces crecer el trigo, porque así preparas la tierra.
 
 ## Salmo 65:10
 
-> Riegas abundantemente sus surcos,  
->  Nivelas sus lomos,  
->  La ablandas con lluvias,  
->  Bendices su crecimiento.
+> Empapas sus surcos, Allanas los terrones,  
+>  la ablandas con lluvias,  
+>  Bendices lo que en ella brota.
 
 ## Salmo 65:11
 
 > Has coronado el año con Tu bondad,  
->  Y Tus senderos rebosan de abundancia.
+>  y Tus senderos rebosan de abundancia.
 
 ## Salmo 65:12
 
 > Los pastos del desierto rebosan,  
->  Y las colinas se visten de alegría.
+>  y las colinas se visten de alegría.
 
 ## Salmo 65:13
 
-> Los prados se adornan con rebaños,  
->  Y los valles se cubren de grano;  
->  Gritan de alegría, sí, cantan.
+> Las praderas se llenan de rebaños,  
+>  y los valles se cubren de trigo;  
+>  Todo grita de alegría, sí, todo canta.

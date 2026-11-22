@@ -4,13 +4,13 @@
 
 ## Salmo 13:1
 
-> ¿Hasta cuándo, Señor? ¿Me olvidarás para siempre?  
->  ¿Hasta cuándo esconderás Tu rostro de mí?
+> ¿Hasta cuándo, Señor? ¿Te vas a olvidar de mí para siempre?  
+>  ¿Hasta cuándo me vas a ocultar Tu rostro?
 
 ## Salmo 13:2
 
 > ¿Hasta cuándo llevaré esta preocupación en mi alma,  
->  Con tristeza en mi corazón todo el día?  
+>  con tristeza en mi corazón todo el día?  
 >  ¿Hasta cuándo triunfará mi enemigo sobre mí?
 
 ---
@@ -35,4 +35,4 @@
 ## Salmo 13:6
 
 > Cantaré al Señor,  
->  Porque Él ha sido bondadoso conmigo.
+>  porque Él ha sido bondadoso conmigo.

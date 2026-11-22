@@ -4,32 +4,32 @@
 
 ## Salmo 59:1
 
-> Líbrame de mis enemigos, Dios mío;  
->  Ponme a salvo en lo alto, lejos de los que se levantan contra mí.
+> Dios mío, sálvame de mis enemigos;  
+>  Ponme en un lugar alto y seguro, lejos de los que me atacan.
 
 ## Salmo 59:2
 
-> Líbrame de los que cometen injusticia,  
->  Y sálvame de los hombres violentos.
+> Sálvame de los que hacen el mal,  
+>  y ponme a salvo de los violentos.
 
 ---
 
 ## Salmo 59:3
 
-> Porque he aquí, han tendido una trampa para mi vida;  
+> Porque mira, me han puesto una trampa para quitarme la vida;  
 >  Hombres feroces me atacan,  
->  No por ninguna falta o pecado mío, Señor,
+>  y no es por ninguna falta ni pecado mío, Señor,
 
 ## Salmo 59:4
 
-> Sin culpa alguna de mi parte, corren y se posicionan contra mí.  
->  Despiértate para ayudarme, ¡y mira!
+> Yo no tengo ninguna culpa, pero ellos corren a ocupar sus puestos contra mí.  
+>  ¡Despierta, ven a ayudarme, y mira!
 
 ## Salmo 59:5
 
 > Tú, Señor Dios de los ejércitos, el Dios de Israel,  
->  Despierta para hacer justicia a todas las naciones;  
->  No muestres favor a los que actúan traidoramente en maldad.
+>  Levántate para hacer justicia a todas las naciones;  
+>  no tengas compasión de los traidores que hacen el mal.
 
 >  Selah
 
@@ -37,51 +37,51 @@
 
 ## Salmo 59:6
 
-> Regresan al anochecer, gruñen como un perro,  
->  Y rondan por la ciudad.
+> Vuelven al caer la tarde, gruñendo como perros,  
+>  y dan vueltas por la ciudad.
 
 ## Salmo 59:7
 
-> He aquí, vomitan con sus bocas;  
->  Espadas están en sus labios,  
->  Porque, dicen, “¿Quién oye?”
+> Mira lo que sale de su boca;  
+>  Tienen espadas en los labios,  
+>  porque piensan: “¿Quién nos va a oír?”
 
 ## Salmo 59:8
 
-> Sin embargo, Tú, Señor, los encuentras risibles;  
->  Tienes a todas las naciones en burla.
+> Pero Tú, Señor, te ríes de ellos;  
+>  Te burlas de todas las naciones.
 
 ---
 
 ## Salmo 59:9
 
 > En Su fuerza, vigilaré por Ti,  
->  Porque Dios es mi refugio.
+>  porque Dios es mi refugio.
 
 ## Salmo 59:10
 
 > Mi Dios en Su fidelidad vendrá a mí;  
->  Dios me permitirá ver en triunfo sobre mis enemigos.
+>  Dios me hará ver mi triunfo sobre mis enemigos.
 
 ---
 
 ## Salmo 59:11
 
-> No los destruyas, para que mi pueblo no olvide;  
->  Dispérsalos con Tu poder y derríbalos,  
->  Señor, nuestro escudo.
+> No acabes con ellos, para que mi pueblo no lo olvide;  
+>  Hazlos andar sin rumbo con Tu poder y échalos por tierra,  
+>  Señor, escudo nuestro.
 
 ## Salmo 59:12
 
-> Por el pecado de sus bocas y las palabras de sus labios,  
->  Que sean atrapados en su orgullo,  
->  Y por las maldiciones y mentiras que hablan.
+> Por los pecados que salen de su boca y por lo que dicen sus labios,  
+>  que caigan presos de su orgullo,  
+>  y por las maldiciones y mentiras que dicen.
 
 ## Salmo 59:13
 
-> Consúmelos con ira, consúmelos para que no sean más;  
->  Para que la gente sepa que Dios gobierna en Jacob,  
->  Hasta los confines de la tierra.
+> Acaba con ellos en Tu ira, acaba con ellos hasta que no quede ninguno;  
+>  para que la gente sepa que Dios reina en Jacob,  
+>  hasta los últimos rincones de la tierra.
 
 >  Selah
 
@@ -89,23 +89,23 @@
 
 ## Salmo 59:14
 
-> Regresan al anochecer, gruñen como un perro,  
->  Y rondan por la ciudad.
+> Vuelven al caer la tarde, gruñendo como perros,  
+>  y dan vueltas por la ciudad.
 
 ## Salmo 59:15
 
 > Vagan en busca de comida,  
->  Y refunfuñan si no se sacian.
+>  y refunfuñan si no se sacian.
 
 ## Salmo 59:16
 
-> Pero en cuanto a mí, cantaré de Tu fuerza;  
->  Sí, cantaré con gozo de Tu misericordia por la mañana,  
->  Porque has sido mi refugio Y un lugar de amparo en el día de mi angustia.
+> Pero yo cantaré de Tu fuerza; Sí,  
+>  por la mañana cantaré lleno de alegría de Tu misericordia,  
+>  porque has sido mi refugio Y el lugar donde me protejo cuando estoy en apuros.
 
 ---
 
 ## Salmo 59:17
 
-> Mi fuerza, cantaré alabanzas a Ti;  
->  Porque Dios es mi refugio, el Dios que me muestra misericordia.
+> Fuerza mía, a Ti te cantaré alabanzas;  
+>  porque Dios es mi refugio, el Dios que tiene misericordia de mí.

@@ -4,7 +4,7 @@
 ¡Ay de la corona orgullosa de los borrachos de Efraín, y de la flor marchita de su gloriosa belleza, que está sobre la cabeza del fértil valle, de aquellos que son vencidos por el vino!
 
 ## Isaías 28:2
-He aquí, el Señor tiene uno fuerte y poderoso. Como una tormenta de granizo y un torbellino de destrucción, como una tormenta de aguas desbordantes poderosas, lo echará a tierra con fuerza.
+Mirad: el Señor tiene a alguien fuerte y poderoso. Como una tormenta de granizo y un viento que lo destroza todo, como un temporal de aguas que lo inundan todo, lo tirará por tierra con violencia.
 
 ## Isaías 28:3
 La corona orgullosa de los borrachos de Efraín será pisoteada.
@@ -13,13 +13,13 @@ La corona orgullosa de los borrachos de Efraín será pisoteada.
 La flor marchita de su gloriosa belleza, que está sobre la cabeza del fértil valle, será como el higo maduro antes del verano; tan pronto como alguien lo ve, mientras aún está en su mano, lo traga.
 
 ## Isaías 28:5
-En ese día, el Señor Todopoderoso será una hermosa corona y una diadema gloriosa para el remanente de su pueblo.
+En ese día, el Señor de los ejércitos será una hermosa corona y una diadema gloriosa para el remanente de su pueblo.
 
 ## Isaías 28:6
-Él será un espíritu de justicia para el que se sienta en juicio, y una fuente de fuerza para aquellos que devuelven la batalla en la puerta.
+Él será un espíritu de justicia para el que se sienta en juicio, y una fuente de fuerza para los que rechazan el ataque en la puerta.
 
 ## Isaías 28:7
-Estos también tambalean por el vino y se tambalean por la bebida embriagante: el sacerdote y el profeta tambalean por la bebida, están confundidos por el vino, tambalean por la bebida embriagante; se tambalean mientras tienen visiones, tropiezan al tomar decisiones.
+Estos también se tambalean por el vino y dan traspiés por la bebida embriagante: el sacerdote y el profeta se tambalean por la bebida, están confundidos por el vino, dan traspiés por la bebida embriagante; se tambalean mientras tienen visiones, tropiezan al tomar decisiones.
 
 ## Isaías 28:8
 Todas las mesas están cubiertas de vómito; no hay un lugar limpio en ningún lado.
@@ -40,34 +40,34 @@ a quienes declaró, “Este es el lugar de descanso; que el cansado encuentre de
 Así que la palabra del Señor para ellos será: Orden sobre orden, orden sobre orden, línea sobre línea, línea sobre línea, un poco aquí, un poco allá, para que vayan y caigan hacia atrás, sean quebrantados, atrapados y capturados.
 
 ## Isaías 28:14
-Por lo tanto, escuchen la palabra del Señor, ustedes que se burlan y gobiernan a este pueblo en Jerusalén.
+Por lo tanto, escuchad la palabra del Señor, vosotros que os burláis y gobiernan a este pueblo en Jerusalén.
 
 ## Isaías 28:15
-Porque han dicho, “Hemos hecho un pacto con la muerte, y con el Sheol hemos hecho un acuerdo. Cuando el azote abrumador pase, no nos alcanzará, porque hemos hecho de la falsedad nuestro refugio y nos hemos ocultado con engaño.”
+Porque habéis dicho: “Hemos hecho un pacto con la muerte, y con el Seol hemos hecho un acuerdo. Cuando el azote abrumador pase, no nos alcanzará, porque hemos hecho de la falsedad nuestro refugio y nos hemos ocultado con engaño.”
 
 ## Isaías 28:16
-Por lo tanto, esto es lo que dice el Señor Soberano: “He aquí, pongo una piedra en Sion, una piedra probada, una preciosa piedra angular para un cimiento seguro; el que crea en ella no será perturbado.
+Por eso, así dice el Señor Dios: “Mirad, voy a poner en Sion una piedra, una piedra bien probada, una valiosa piedra angular que sirve de cimiento firme; el que crea en ella no perderá la calma.
 
 ## Isaías 28:17
 Haré de la justicia la línea de medida y de la rectitud la plomada; el granizo barrerá el refugio de mentiras, y las aguas desbordarán el escondite.
 
 ## Isaías 28:18
-Su pacto con la muerte será anulado, y su acuerdo con el Sheol no se mantendrá; cuando el azote abrumador pase, serán pisoteados por él.
+Vuestro pacto con la muerte será anulado, y vuestro acuerdo con el Seol no se mantendrá; cuando el azote abrumador pase, seréis pisoteados por él.
 
 ## Isaías 28:19
-Cada vez que pase, los atrapará; mañana tras mañana, de día y de noche, pasará. La comprensión de este mensaje traerá puro terror.
+Cada vez que pase, os atrapará; mañana tras mañana, de día y de noche, pasará. La comprensión de este mensaje traerá puro terror.
 
 ## Isaías 28:20
-La cama es demasiado corta para estirarse en ella, y la manta demasiado estrecha para envolverse en ella.
+La cama se queda corta para estirarse, y la manta es demasiado estrecha para taparse.
 
 ## Isaías 28:21
 Porque el Señor se levantará como lo hizo en el monte Perazim, se agitará como en el Valle de Gabaón, para hacer su obra, su obra extraña, y para realizar su tarea, su tarea ajena.
 
 ## Isaías 28:22
-Ahora dejen de burlarse, o sus cadenas se harán más pesadas; porque he oído del Señor Dios de los ejércitos acerca de una destrucción decisiva sobre toda la tierra.
+Ahora dejad de burlaros, o vuestras cadenas se harán más pesadas; porque he oído del Señor Dios de los ejércitos acerca de una destrucción decisiva sobre toda la tierra.
 
 ## Isaías 28:23
-Escuchen y oigan mi voz; estén atentos y presten atención a mis palabras.
+Escuchad y oíd mi voz; estad atentos y prestad atención a mis palabras.
 
 ## Isaías 28:24
 ¿Acaso el agricultor ara continuamente para sembrar semilla? ¿Continúa volteando y rompiendo su terreno?

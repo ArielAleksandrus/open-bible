@@ -52,7 +52,7 @@ Así que Hiram envió palabra a Salomón, diciendo,
 ## 1 Reyes 5:9
 
 Mis siervos las bajarán del Líbano al mar;  
- y las haré en balsas para ir por mar al lugar que designes,  
+ y haré con ellas balsas para ir por mar al lugar que designes,  
  y allí las desmantelaré,  
  y tú las llevarás.  
  Entonces cumplirás mi petición proveyendo alimento para mi casa.  

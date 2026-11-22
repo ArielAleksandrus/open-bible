@@ -2,50 +2,48 @@
 
 ## Salmo 137:1
 
-> Junto a los ríos de Babilonia,  
->  Allí nos sentamos y lloramos,  
->  Y recordamos a Sion.
+> A la orilla de los ríos de Babilonia nos sentábamos a llorar al acordarnos de Sion.
 
 ## Salmo 137:2
 
-> En los sauces de en medio Colgamos nuestras arpas.
+> En los sauces de aquella tierra dejamos colgadas nuestras arpas.
 
 ## Salmo 137:3
 
-> Porque allí nuestros captores nos pedían canciones,  
->  Y nuestros torturadores alegría, diciendo,  
->  “¡Cantadnos una de las canciones de Sion!”
+> Allí, los que nos tenían prisioneros nos pedían canciones,  
+>  y los que nos atormentaban querían vernos alegres:  
+>  “¡Cantadnos alguna de las canciones de Sion!”
 
 ---
 
 ## Salmo 137:4
 
-> ¿Cómo podemos cantar la canción del Señor En tierra extranjera?
+> ¿Cómo vamos a cantar la canción del Señor en un país extranjero?
 
 ## Salmo 137:5
 
-> Si te olvido, Jerusalén,  
->  Que mi mano derecha pierda su destreza.
+> Jerusalén, si llego a olvidarme de ti,  
+>  que mi mano derecha se olvide de lo que sabe hacer.
 
 ## Salmo 137:6
 
-> Que mi lengua se adhiera al paladar Si no te recuerdo,  
->  Si no honro a Jerusalén Por encima de mi mayor alegría.
+> Que la lengua se me quede pegada al paladar si dejo de acordarme de ti,  
+>  si no pongo a Jerusalén por encima de mi mayor alegría.
 
 ---
 
 ## Salmo 137:7
 
-> Recuerda, Señor, contra los hijos de Edom El día de Jerusalén,  
->  Aquellos que decían,  
->  “¡Derribadla,  
->  derribadla Hasta sus cimientos!”
+> Señor, no olvides lo que hicieron los edomitas el día en que cayó Jerusalén,  
+>  cuando gritaban:  
+>  “¡Arrasadla,  
+>  arrasadla hasta no dejar ni los cimientos!”
 
 ## Salmo 137:8
 
-> Hija de Babilonia, devastada,  
->  Bendito será el que te pague Con la recompensa que nos has dado.
+> Babilonia, ciudad que serás destruida,  
+>  ¡feliz el que te devuelva el mal que nos hiciste!
 
 ## Salmo 137:9
 
-> Bendito será aquel que tome a tus hijos Y los estrelle contra las rocas.
+> ¡Feliz el que agarre a tus niños y los estrelle contra las rocas!

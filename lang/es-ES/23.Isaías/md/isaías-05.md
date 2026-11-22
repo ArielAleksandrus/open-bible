@@ -2,7 +2,7 @@
 
 ## Isaías 5:1
 
-Voy a cantar por mi amado una canción acerca de su viña: Mi amado tenía una viña en una ladera fértil.
+Voy a cantarle a mi amado una canción sobre su viña: Mi amado tenía una viña en una colina de tierra muy buena.
 
 ## Isaías 5:2
 
@@ -10,33 +10,33 @@ La cavó, la limpió de piedras y la plantó con las mejores vides. Construyó u
 
 ## Isaías 5:3
 
-“Y ahora, habitantes de Jerusalén y hombres de Judá, juzgad entre mí y mi viña.
+“Y ahora, vecinos de Jerusalén y gente de Judá, decidid vosotros quién tiene la culpa: si yo o mi viña.
 
 ## Isaías 5:4
 
-¿Qué más se podría hacer por mi viña que no haya hecho ya? Cuando esperaba que produjera uvas buenas, ¿por qué dio solo malas?
+¿Qué más podía hacer por mi viña que no haya hecho ya? Yo esperaba que diera uvas buenas, ¿por qué solo dio uvas malas?
 
 ## Isaías 5:5
 
-Ahora os diré lo que voy a hacer con mi viña: Le quitaré su cerca, y será consumida; derribaré su muro, y será pisoteada.
+Pues ahora os voy a decir lo que pienso hacer con mi viña: le quitaré la cerca de arbustos para que se la coman; le derribaré el muro para que la pisoteen.
 
 ## Isaías 5:6
 
-La dejaré en ruinas; no será podada ni cultivada, y crecerán zarzas y espinos. Ordenaré a las nubes que no lluevan sobre ella.”
+La dejaré abandonada; nadie la podará ni la cultivará, y se llenará de zarzas y espinos. Y a las nubes les mandaré que no le den ni una gota de lluvia.”
 
 ## Isaías 5:7
 
-Porque la viña del Señor Todopoderoso es la casa de Israel, y los hombres de Judá son las vides en las que se deleitaba. Esperó justicia, pero vio derramamiento de sangre; rectitud, pero escuchó gritos de angustia.
+Porque la viña del Señor de los ejércitos es la casa de Israel, y los hombres de Judá son las vides en las que se deleitaba. Esperó justicia, pero vio derramamiento de sangre; rectitud, pero escuchó gritos de angustia.
 
 ---
 
 ## Isaías 5:8
 
-¡Ay de aquellos que añaden casa a casa y juntan campo con campo, hasta que no queda espacio y habitan solos en la tierra!
+¡Ay de vosotros, que compráis casa tras casa y juntáis un campo con otro, hasta que no queda sitio para nadie y os quedáis solos en el país!
 
 ## Isaías 5:9
 
-El Señor Todopoderoso ha declarado en mi oído: “Muchas casas quedarán desoladas, incluso las grandes y hermosas, sin habitantes.
+El Señor de los ejércitos ha declarado en mi oído: “Muchas casas quedarán desoladas, incluso las grandes y hermosas, sin habitantes.
 
 ## Isaías 5:10
 
@@ -58,7 +58,7 @@ Por tanto, mi pueblo irá al exilio por su falta de entendimiento; sus nobles mo
 
 ## Isaías 5:14
 
-Por tanto, el Seol ha ensanchado su garganta y ha abierto su boca sin medida; en él descenderán sus nobles y masas, con toda su alegría y júbilo.
+Por tanto, el Seol ha ensanchado su garganta y ha abierto su boca sin medida; a él descenderán sus nobles y la multitud, con toda su alegría y júbilo.
 
 ## Isaías 5:15
 
@@ -66,7 +66,7 @@ Así que la gente será humillada y todos serán abatidos, los ojos de los altiv
 
 ## Isaías 5:16
 
-Pero el Señor Todopoderoso será exaltado por su justicia, y el Dios santo se mostrará santo por su rectitud.
+Pero el Señor de los ejércitos será exaltado por su justicia, y el Dios santo se mostrará santo por su rectitud.
 
 ## Isaías 5:17
 
@@ -84,7 +84,7 @@ de aquellos que dicen: “Que Dios se apresure, que acelere su obra para que la 
 
 ## Isaías 5:20
 
-¡Ay de aquellos que llaman al mal bien y al bien mal, que cambian las tinieblas por luz y la luz por tinieblas, que ponen lo amargo por dulce y lo dulce por amargo!
+¡Ay de los que llaman bueno a lo malo y malo a lo bueno, que hacen pasar la oscuridad por luz y la luz por oscuridad, que hacen pasar lo amargo por dulce y lo dulce por amargo!
 
 ## Isaías 5:21
 
@@ -100,7 +100,7 @@ que absuelven al culpable por un soborno, y niegan justicia al inocente!
 
 ## Isaías 5:24
 
-Por tanto, como una lengua de fuego consume el rastrojo y la hierba seca se derrumba en las llamas, así sus raíces se pudrirán y sus flores se desvanecerán como polvo; porque han rechazado la ley del Señor Todopoderoso y despreciado la palabra del Santo de Israel.
+Por tanto, como una lengua de fuego consume el rastrojo y la hierba seca se derrumba en las llamas, así sus raíces se pudrirán y sus flores se desvanecerán como polvo; porque han rechazado la ley del Señor de los ejércitos y despreciado la palabra del Santo de Israel.
 
 ## Isaías 5:25
 

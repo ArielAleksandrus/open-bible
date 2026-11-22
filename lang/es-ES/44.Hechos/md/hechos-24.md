@@ -74,7 +74,7 @@ Después de varios años, vine a traer donativos a mi nación y a presentar ofre
 
 ## Hechos 24:18
 
-Estaba ceremonialmente limpio cuando me encontraron en los patios del templo haciendo esto, sin ninguna multitud ni disturbio. Pero había unos judíos de Asia—
+Estaba ceremonialmente limpio cuando me encontraron en los patios del templo haciendo esto, sin ninguna multitud ni disturbio. Pero había unos judíos de Asia,
 
 ## Hechos 24:19
 
@@ -82,11 +82,11 @@ que deberían estar aquí ante ti y presentar cargos si tienen algo contra mí.
 
 ## Hechos 24:20
 
-O que estos hombres aquí digan qué crimen encontraron en mí cuando estuve ante el Consejo—
+O que estos hombres aquí digan qué crimen encontraron en mí cuando estuve ante el Consejo,
 
 ## Hechos 24:21
 
-a menos que fuera esta única declaración que grité estando entre ellos: ‘Es por la resurrección de los muertos que estoy siendo juzgado hoy ante ustedes.’”
+a menos que fuera esta única declaración que grité estando entre ellos: ‘Es por la resurrección de los muertos que estoy siendo juzgado hoy ante vosotros.’”
 
 ---
 
@@ -106,7 +106,7 @@ Algunos días después, Félix llegó con su esposa Drusila, que era judía. Man
 
 ## Hechos 24:25
 
-Mientras Pablo hablaba de la justicia, el dominio propio y el juicio venidero, Félix se asustó y dijo: “¡Basta por ahora! Puedes retirarte. Cuando encuentre conveniente, te llamaré.”
+Mientras Pablo hablaba de la justicia, el dominio propio y el juicio venidero, Félix se asustó y dijo: “¡Basta por ahora! Puedes retirarte. Cuando tenga ocasión, te llamaré.”
 
 ## Hechos 24:26
 

@@ -46,11 +46,11 @@ Dije: “No veré al Señor en la tierra de los vivientes; ya no miraré a la hu
 
 ## Isaías 38:12
 
-Como la tienda de un pastor, mi morada es arrancada y quitada de mí. Como un tejedor, he enrollado mi vida, y él me corta del telar; de día a noche me llevas a un fin.
+Como la tienda de un pastor, mi morada es arrancada y quitada de mí. Como un tejedor, he enrollado mi vida, y él me corta del telar; del día a la noche acabas conmigo.
 
 ## Isaías 38:13
 
-Me compuse hasta la mañana, pero como un león, él quiebra todos mis huesos; de día a noche me llevas a un fin.
+Me calmé hasta la mañana, pero como un león, él quiebra todos mis huesos; del día a la noche acabas conmigo.
 
 ## Isaías 38:14
 
@@ -66,7 +66,7 @@ Señor, por tales cosas vive la gente; y en todas estas está la vida de mi esp�
 
 ## Isaías 38:17
 
-Ciertamente fue para mi beneficio que sufrí tal amargura. En tu amor, me has mantenido del pozo de la destrucción; has echado todos mis pecados detrás de tu espalda.
+Ciertamente fue para mi beneficio que sufrí tal amargura. En tu amor, me has guardado del pozo de la destrucción; has echado todos mis pecados detrás de tu espalda.
 
 ## Isaías 38:18
 
@@ -74,7 +74,7 @@ Porque el reino de los muertos no puede agradecerte, ni la muerte puede alabarte
 
 ## Isaías 38:19
 
-Los vivos, los vivos —te dan gracias, como yo hoy; los padres cuentan a sus hijos sobre tu fidelidad—.
+Los vivos, los vivos son los que te dan gracias, como yo hoy; los padres cuentan a sus hijos tu fidelidad.
 
 ## Isaías 38:20
 

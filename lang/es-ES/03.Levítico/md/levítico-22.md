@@ -10,7 +10,7 @@ El Señor habló a Moisés y dijo,
 
 ## Levítico 22:3
 
-“Diles: ‘A lo largo de sus generaciones, si alguno de tus descendientes se acerca a los dones sagrados dedicados al Señor estando ceremonialmente impuro, esa persona será excluida de mi presencia. Yo soy el Señor.
+“Diles: ‘A lo largo de sus generaciones, si alguno de sus descendientes se acerca a los dones sagrados dedicados al Señor estando ceremonialmente impuro, esa persona será excluida de mi presencia. Yo soy el Señor.
 
 ## Levítico 22:4
 
@@ -82,7 +82,7 @@ No presentéis nada con defecto, porque no será aceptado en vuestro favor.
 
 ## Levítico 22:21
 
-Cuando alguien traiga una ofrenda de comunión al Señor para cumplir un voto especial o como ofrenda voluntaria del rebaño o del ganado, debe ser sin defecto ni mancha para ser aceptable.
+Cuando alguien traiga una ofrenda de paz al Señor para cumplir un voto especial o como ofrenda voluntaria del rebaño o del ganado, debe ser sin defecto ni mancha para ser aceptable.
 
 ## Levítico 22:22
 

@@ -64,15 +64,15 @@ De la misma manera, no es la voluntad de vuestro Padre que está en el cielo que
 
 ## Mateo 18:15
 
-“Si tu hermano o hermana peca, ve y muéstrales su falta en privado; si te escuchan, has ganado a tu hermano.
+“Si tu hermano o hermana peca, ve y muéstrale su falta en privado; si te escucha, has ganado a tu hermano.
 
 ## Mateo 18:16
 
-Pero si no te escuchan, lleva contigo a uno o dos más, para que todo asunto se establezca por el testimonio de dos o tres testigos.
+Pero si no te escucha, lleva contigo a uno o dos más, para que todo asunto se establezca por el testimonio de dos o tres testigos.
 
 ## Mateo 18:17
 
-Si se niegan a escucharlos, díselo a la iglesia; y si se niegan a escuchar incluso a la iglesia, trátalos como tratarías a un gentil o a un recaudador de impuestos.
+Si se niega a escucharlos, díselo a la iglesia; y si se niega a escuchar incluso a la iglesia, trátalo como tratarías a un gentil o a un recaudador de impuestos.
 
 ## Mateo 18:18
 
@@ -108,7 +108,7 @@ Al comenzar el ajuste de cuentas, le fue presentado un hombre que le debía diez
 
 ## Mateo 18:25
 
-Como no podía pagar, el maestro ordenó que él, su esposa, sus hijos y todo lo que tenía fueran vendidos para pagar la deuda.
+Como no podía pagar, el señor ordenó que él, su esposa, sus hijos y todo lo que tenía fueran vendidos para pagar la deuda.
 
 ## Mateo 18:26
 
@@ -116,7 +116,7 @@ El siervo se arrodilló ante él. ‘Por favor, ten paciencia conmigo,’ suplic
 
 ## Mateo 18:27
 
-El maestro de aquel siervo tuvo compasión de él, canceló la deuda y lo dejó ir.
+El señor de aquel siervo tuvo compasión de él, canceló la deuda y lo dejó ir.
 
 ## Mateo 18:28
 
@@ -132,11 +132,11 @@ Pero él se negó. En cambio, fue y lo hizo encarcelar hasta que pudiera pagar l
 
 ## Mateo 18:31
 
-Cuando los otros siervos vieron lo que había ocurrido, se indignaron y fueron a informar a su maestro de todo lo que había sucedido.
+Cuando los otros siervos vieron lo que había ocurrido, se indignaron y fueron a informar a su señor de todo lo que había sucedido.
 
 ## Mateo 18:32
 
-Entonces el maestro llamó al siervo. ‘Siervo malvado,’ le dijo, ‘cancelé toda esa deuda tuya porque me lo suplicaste.
+Entonces el señor llamó al siervo. ‘Siervo malvado,’ le dijo, ‘cancelé toda esa deuda tuya porque me lo suplicaste.
 
 ## Mateo 18:33
 
@@ -144,7 +144,7 @@ Entonces el maestro llamó al siervo. ‘Siervo malvado,’ le dijo, ‘cancelé
 
 ## Mateo 18:34
 
-En su ira, el maestro lo entregó a los carceleros para que lo torturaran hasta que pudiera pagar todo lo que debía.
+En su ira, el señor lo entregó a los carceleros para que lo torturaran hasta que pudiera pagar todo lo que debía.
 
 ## Mateo 18:35
 

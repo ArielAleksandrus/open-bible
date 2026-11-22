@@ -75,7 +75,7 @@ Que el Señor sea el juez entre tú y yo, y que Él traiga justicia sobre ti;
 Como dice el antiguo proverbio,
 
 >  ‘De los malvados sale la maldad’;  
->  Pero mi mano no estará contra ti.
+>  pero mi mano no estará contra ti.
 
 ## 1 Samuel 24:14
 

@@ -16,16 +16,16 @@ Hizo varas de madera de acacia y las recubrió de oro.
 Introdujo las varas en los anillos a los lados del arca para transportarla.
 
 ## Éxodo 37:6
-También hizo la cubierta del propiciatorio de oro puro, de dos codos y medio de largo y un codo y medio de ancho.
+También hizo el propiciatorio de oro puro, de dos codos y medio de largo y un codo y medio de ancho.
 
 ## Éxodo 37:7
-Modeló dos querubines de oro batido en los dos extremos de la cubierta del propiciatorio.
+Modeló dos querubines de oro batido en los dos extremos del propiciatorio.
 
 ## Éxodo 37:8
-Un querubín estaba en un extremo y el otro querubín en el extremo opuesto; hizo los querubines de una sola pieza con la cubierta del propiciatorio en los dos extremos.
+Un querubín estaba en un extremo y el otro querubín en el extremo opuesto; hizo los querubines de una sola pieza con el propiciatorio en los dos extremos.
 
 ## Éxodo 37:9
-Los querubines tenían sus alas extendidas hacia arriba, cubriendo con ellas la cubierta del propiciatorio. Se miraban el uno al otro, mirando hacia la cubierta.
+Los querubines tenían sus alas extendidas hacia arriba, cubriendo con ellas el propiciatorio. Se miraban el uno al otro, mirando hacia el propiciatorio.
 
 ## Éxodo 37:10
 Hizo la mesa de madera de acacia, de dos codos de largo, un codo de ancho y un codo y medio de alto.
@@ -46,7 +46,7 @@ Los anillos estaban colocados cerca del borde para sostener las varas para lleva
 Hizo las varas de madera de acacia, recubriéndolas de oro, para el propósito de llevar la mesa.
 
 ## Éxodo 37:16
-Hizo de oro puro los utensilios para la mesa: sus platos, fuentes, tazones y jarras para verter las ofrendas de bebida.
+Hizo de oro puro los utensilios para la mesa: sus platos, fuentes, tazones y jarras para verter las libaciones.
 
 ## Éxodo 37:17
 Hizo el candelabro de oro puro, martillando su base y su asta, con sus copas en forma de flores, sus botones y flores, todo de una sola pieza con él.

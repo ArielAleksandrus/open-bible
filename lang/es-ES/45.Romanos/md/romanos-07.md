@@ -40,7 +40,7 @@ Por lo tanto, la ley es santa, y el mandamiento es santo, justo y bueno.
 ¿Entonces, lo que es bueno se convirtió en muerte para mí? ¡De ninguna manera! Más bien, fue el pecado, para que se reconociera como pecado al provocar mi muerte a través de lo que es bueno, para que por medio del mandamiento el pecado llegara a ser completamente pecaminoso.
 
 ## Romanos 7:14
-Porque sabemos que la ley es espiritual, pero yo soy no espiritual, vendido como esclavo al pecado.
+Porque sabemos que la ley es espiritual, pero yo no soy espiritual; estoy vendido como esclavo al pecado.
 
 ## Romanos 7:15
 Estoy confundido por mis acciones. Porque no hago lo que quiero hacer, sino más bien lo que detesto.
@@ -49,7 +49,7 @@ Estoy confundido por mis acciones. Porque no hago lo que quiero hacer, sino más
 Y si actúo contra mis propios deseos, reconozco que la ley es buena.
 
 ## Romanos 7:17
-Tal como está, ya no soy yo quien actúa, sino el pecado que reside en mí.
+Así que ya no soy yo quien actúa, sino el pecado que reside en mí.
 
 ## Romanos 7:18
 Porque sé que lo bueno en sí mismo no habita en mí, es decir, en mi carne. Porque tengo el deseo de hacer lo que es bueno, pero no puedo llevarlo a cabo.
@@ -61,7 +61,7 @@ Porque no hago el bien que deseo hacer, sino que continúo haciendo el mal que n
 Ahora bien, si hago lo que no quiero hacer, ya no soy yo quien lo hace, sino el pecado que reside en mí lo que lo hace.
 
 ## Romanos 7:21
-Así que encuentro este principio en acción: Aunque quiero hacer el bien, el mal está justo allí conmigo.
+Así que encuentro este principio en acción: aunque quiero hacer el bien, el mal está presente en mí.
 
 ## Romanos 7:22
 Porque en lo más profundo, me deleito en la ley de Dios;

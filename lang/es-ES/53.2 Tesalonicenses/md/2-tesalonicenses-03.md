@@ -10,7 +10,7 @@ y para que seamos rescatados de personas perversas y malvadas; porque no todos t
 
 ## 2 Tesalonicenses 3:3
 
-Sin embargo, el Señor es fiel, y Él os fortalecerá y guardará del maligno.
+Pero el Señor es fiel; Él os dará fuerzas y os protegerá del maligno.
 
 ## 2 Tesalonicenses 3:4
 
@@ -18,7 +18,7 @@ Tenemos confianza en el Señor respecto a vosotros, que estáis haciendo y conti
 
 ## 2 Tesalonicenses 3:5
 
-Que el Señor guíe vuestros corazones hacia el amor de Dios y la paciencia de Cristo.
+Que el Señor dirija vuestros corazones hacia el amor de Dios y la constancia de Cristo.
 
 ## 2 Tesalonicenses 3:6
 
@@ -30,7 +30,7 @@ Porque vosotros mismos sabéis cómo debéis seguir nuestro ejemplo, porque no n
 
 ## 2 Tesalonicenses 3:8
 
-ni comimos el pan de nadie sin pagarlo, sino que con trabajo y esfuerzo trabajamos noche y día para no ser una carga para ninguno de vosotros;
+ni comimos de nadie sin pagar lo que comíamos, sino que trabajamos con esfuerzo y cansancio de día y de noche para no ser una carga para ninguno de vosotros;
 
 ## 2 Tesalonicenses 3:9
 
@@ -38,19 +38,19 @@ no porque nos falte el derecho a tal apoyo, sino para presentarnos como un ejemp
 
 ## 2 Tesalonicenses 3:10
 
-Porque incluso cuando estábamos con vosotros, os dimos esta instrucción: si alguien no quiere trabajar, que no coma.
+Cuando estábamos con vosotros, ya os dimos esta norma: el que no quiera trabajar, que tampoco coma.
 
 ## 2 Tesalonicenses 3:11
 
-Porque oímos que algunos entre vosotros están viviendo de manera desordenada, sin trabajar en absoluto, sino entrometiéndose en lo ajeno.
+Porque nos hemos enterado de que algunos de vosotros viven sin orden ni concierto, sin trabajar en nada y metiéndose en lo que no les importa.
 
 ## 2 Tesalonicenses 3:12
 
-Ahora mandamos y exhortamos a tales individuos en el Señor Jesucristo a que trabajen tranquilamente y coman su propio pan.
+A esas personas les ordenamos y les pedimos, por el Señor Jesucristo, que trabajen con tranquilidad y se ganen el pan que comen.
 
 ## 2 Tesalonicenses 3:13
 
-Pero en cuanto a vosotros, queridos amigos, no os canséis de hacer el bien.
+Y vosotros, queridos amigos, no os canséis nunca de hacer el bien.
 
 ## 2 Tesalonicenses 3:14
 
@@ -58,7 +58,7 @@ Si alguien no cumple con nuestras instrucciones en esta carta, tomad nota especi
 
 ## 2 Tesalonicenses 3:15
 
-Sin embargo, no la consideréis como a un enemigo, sino advertidla como a un hermano.
+Pero no la tratéis como a una enemiga, sino llamadle la atención como a un hermano.
 
 ## 2 Tesalonicenses 3:16
 

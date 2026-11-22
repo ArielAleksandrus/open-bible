@@ -14,7 +14,7 @@ Jacob envió mensajeros por delante a su hermano Esaú en la tierra de Seir, la 
 
 ## Génesis 32:4
 
-Les instruyó: “Esto es lo que deben decir a mi señor Esaú: ‘Tu siervo Jacob informa: He estado residiendo con Labán y me he quedado hasta ahora.
+Les instruyó: “Esto es lo que diréis a mi señor Esaú: ‘Tu siervo Jacob informa: He estado residiendo con Labán y me he quedado hasta ahora.
 
 ## Génesis 32:5
 
@@ -62,11 +62,11 @@ treinta camellos lecheros con sus crías, cuarenta vacas y diez toros, y veinte 
 
 ## Génesis 32:16
 
-Los puso al cuidado de sus siervos, cada rebaño por separado, y les instruyó: “Vayan delante de mí y mantengan cierta distancia entre los rebaños.”
+Los puso al cuidado de sus siervos, cada rebaño por separado, y les instruyó: “Id delante de mí y mantened cierta distancia entre los rebaños.”
 
 ## Génesis 32:17
 
-Dirigió al que iba delante, “Cuando mi hermano Esaú te encuentre y pregunte, ‘¿A quién perteneces, y a dónde vas, y de quién son todos estos animales delante de ti?’
+Ordenó al primero: “Cuando mi hermano Esaú te encuentre y pregunte, ‘¿A quién perteneces, y a dónde vas, y de quién son todos estos animales delante de ti?’
 
 ## Génesis 32:18
 
@@ -74,11 +74,11 @@ debes responder, ‘Pertenecen a tu siervo Jacob. Son un regalo enviado a mi se�
 
 ## Génesis 32:19
 
-Instruyó al segundo, al tercero, y a todos los que seguían los rebaños, “Deben decir lo mismo a Esaú cuando lo encuentren.
+Instruyó al segundo, al tercero, y a todos los que seguían los rebaños, “Diréis lo mismo a Esaú cuando lo encontréis.
 
 ## Génesis 32:20
 
-Y asegúrense de decir, ‘Tu siervo Jacob viene detrás de nosotros.’” Porque pensó, “Lo apaciguaré con estos regalos que envío por delante; después, cuando lo vea, tal vez me acepte.”
+Y aseguraos de decir, ‘Tu siervo Jacob viene detrás de nosotros.’” Porque pensó, “Lo apaciguaré con estos regalos que envío por delante; después, cuando lo vea, tal vez me acepte.”
 
 ## Génesis 32:21
 

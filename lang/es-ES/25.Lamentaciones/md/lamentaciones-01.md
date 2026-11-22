@@ -14,7 +14,7 @@ Judá ha ido al exilio, sufriendo aflicción y dura servidumbre. Habita entre la
 
 ## Lamentaciones 1:4
 
-Los caminos hacia Sion están de luto, porque nadie viene a sus fiestas señaladas. Todas sus puertas están desoladas; sus sacerdotes gimen, sus jóvenes están atribulados, y ella misma está en amarga angustia.
+Los caminos hacia Sion están de luto, porque nadie viene a sus fiestas señaladas. Todas sus puertas están desoladas; sus sacerdotes gimen, sus doncellas están afligidas, y ella misma está en amarga angustia.
 
 ## Lamentaciones 1:5
 
@@ -72,7 +72,7 @@ Sion extiende sus manos, pero no hay quien la consuele. El Señor ha mandado res
 
 ## Lamentaciones 1:18
 
-“El Señor es justo, pero yo me he rebelado contra su mandato. Escuchad, todos los pueblos; mirad mi sufrimiento. Mis jóvenes y mis jóvenes han ido al cautiverio.
+“El Señor es justo, pero yo me he rebelado contra su mandato. Escuchad, todos los pueblos; mirad mi sufrimiento. Mis jóvenes y mis doncellas han ido al cautiverio.
 
 ## Lamentaciones 1:19
 
@@ -84,7 +84,7 @@ Mira, Señor, cuán angustiada estoy. Estoy en tormento dentro de mí, y mi cora
 
 ## Lamentaciones 1:21
 
-Mi gemido es conocido por todos, pero no hay quien me consuele. Todos mis enemigos están al tanto de mi angustia; se regocijan por lo que Tú has hecho. Que traigas el día que has anunciado para que se conviertan en como yo.
+Mi gemido es conocido por todos, pero no hay quien me consuele. Todos mis enemigos están al tanto de mi angustia; se regocijan por lo que Tú has hecho. Que traigas el día que has anunciado para que sean como yo.
 
 ## Lamentaciones 1:22
 

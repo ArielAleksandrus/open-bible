@@ -14,7 +14,7 @@ No lo comas con pan leudado; durante siete días come pan sin levadura, el pan d
 
 ## Deuteronomio 16:4
 
-No se hallará levadura contigo en todo tu territorio durante siete días. No dejes que ninguna de la carne que sacrifiques en la tarde del primer día quede hasta la mañana.
+No se hallará levadura contigo en todo tu territorio durante siete días. No dejes que nada de la carne que sacrifiques en la tarde del primer día quede hasta la mañana.
 
 ## Deuteronomio 16:5
 

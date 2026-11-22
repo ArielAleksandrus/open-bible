@@ -4,7 +4,7 @@
 Entonces el Señor dijo a Moisés: “Ve a Faraón, porque he endurecido su corazón y el corazón de sus siervos, para que yo pueda realizar estas señales mías entre ellos,
 
 ## Éxodo 10:2
-para que cuentes a tus hijos y nietos cómo me burlé de los egipcios y cómo realicé mis señales entre ellos, para que sepan que yo soy el Señor.”
+para que cuentes a tus hijos y nietos cómo me burlé de los egipcios y cómo realicé mis señales entre ellos, para que sepáis que yo soy el Señor.”
 
 ## Éxodo 10:3
 Así que Moisés y Aarón se acercaron a Faraón y transmitieron el mensaje: “Esto es lo que declara el Señor, el Dios de los hebreos: ‘¿Hasta cuándo te negarás a humillarte ante mí? Deja ir a mi pueblo, para que me sirvan.
@@ -22,16 +22,16 @@ Tus casas se llenarán de ellas, junto con las casas de todos tus siervos y todo
 Entonces los siervos de Faraón le dijeron: “¿Hasta cuándo será este hombre un lazo para nosotros? Deja ir al pueblo, para que sirvan al Señor su Dios. ¿No te das cuenta aún de que Egipto está destruido?”
 
 ## Éxodo 10:8
-Así que Moisés y Aarón fueron llevados de nuevo a Faraón, y él les dijo: “¡Vayan, sirvan al Señor su Dios! Pero díganme quiénes irán.”
+Así que Moisés y Aarón fueron llevados de nuevo a Faraón, y él les dijo: “¡Id, servid al Señor vuestro Dios! Pero decidme quiénes irán.”
 
 ## Éxodo 10:9
 Moisés dijo: “Iremos con nuestros jóvenes y nuestros viejos, con nuestros hijos y nuestras hijas, y con nuestros rebaños y manadas, porque debemos celebrar una fiesta al Señor.”
 
 ## Éxodo 10:10
-Entonces él les dijo: “¡El Señor esté con ustedes si dejo que se vayan con sus pequeños! Claramente, tienen malas intenciones.
+Entonces él les dijo: “¡El Señor esté con vosotros si dejo que os vayáis con vuestros pequeños! Claramente, tenéis malas intenciones.
 
 ## Éxodo 10:11
-¡No! Solo los hombres pueden ir y servir al Señor, ya que eso es lo que desean.” Entonces Moisés y Aarón fueron expulsados de la presencia de Faraón.
+¡No! Solo los hombres pueden ir y servir al Señor, ya que eso es lo que deseáis.” Entonces Moisés y Aarón fueron expulsados de la presencia de Faraón.
 
 ## Éxodo 10:12
 Entonces el Señor dijo a Moisés: “Extiende tu mano sobre la tierra de Egipto para que vengan las langostas y devoren toda planta de la tierra, todo lo que dejó el granizo.”
@@ -46,13 +46,13 @@ Las langostas subieron sobre toda la tierra de Egipto y se asentaron en todo el 
 Cubrieron la superficie de toda la tierra hasta que se oscureció. Devoraron toda planta de la tierra y todo el fruto de los árboles que el granizo había dejado. Nada verde quedó en árbol o planta en toda la tierra de Egipto.
 
 ## Éxodo 10:16
-Entonces Faraón apresuradamente llamó a Moisés y Aarón y dijo: “He pecado contra el Señor su Dios y contra ustedes.
+Entonces Faraón apresuradamente llamó a Moisés y Aarón y dijo: “He pecado contra el Señor vuestro Dios y contra vosotros.
 
 ## Éxodo 10:17
-Ahora perdona mi pecado, por favor, solo esta vez, e intercede con el Señor su Dios para que quite de mí esta muerte.”
+Ahora perdona mi pecado, por favor, solo esta vez, e intercede ante el Señor tu Dios para que quite de mí esta muerte.”
 
 ## Éxodo 10:18
-Entonces Moisés dejó a Faraón e intercedió con el Señor.
+Entonces Moisés dejó a Faraón e intercedió ante el Señor.
 
 ## Éxodo 10:19
 Así que el Señor cambió el viento a un viento del oeste muy fuerte, que recogió las langostas y las arrojó al Mar Rojo. No quedó ni una sola langosta en todo el territorio de Egipto.
@@ -70,7 +70,7 @@ Así que Moisés extendió su mano hacia el cielo, y una densa oscuridad cubrió
 Nadie podía ver a otro, ni nadie se levantó de su lugar durante tres días. Sin embargo, todos los israelitas tenían luz en sus moradas.
 
 ## Éxodo 10:24
-Entonces Faraón llamó a Moisés y dijo: “Vayan, sirvan al Señor; incluso sus pequeños pueden ir con ustedes, pero dejen atrás sus rebaños y manadas.”
+Entonces Faraón llamó a Moisés y dijo: “Id, servid al Señor; incluso vuestros pequeños pueden ir con vosotros, pero dejad atrás vuestros rebaños y manadas.”
 
 ## Éxodo 10:25
 Pero Moisés dijo: “También debes dejarnos tener sacrificios y holocaustos para presentar al Señor nuestro Dios.

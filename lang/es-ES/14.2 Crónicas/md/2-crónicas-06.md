@@ -10,7 +10,7 @@ Entonces Salomón habló,
 ## 2 Crónicas 6:2
 
 He construido para Ti una casa grandiosa,  
- Y un lugar para Tu morada eterna.”
+ y un lugar para Tu morada eterna.”
 
 ---
 
@@ -97,7 +97,7 @@ Porque Salomón había hecho una plataforma de bronce,
  de cinco codos de largo, cinco codos de ancho y tres codos de alto,  
  y la había colocado en medio del patio;  
  y se puso de pie sobre ella,  
- luego se arrodilló sobre sus rodillas en presencia de toda la asamblea de Israel,  
+ luego se puso de rodillas en presencia de toda la asamblea de Israel,  
  y extendió sus manos hacia el cielo.
 
 ---
@@ -135,9 +135,9 @@ Ahora pues, Señor, Dios de Israel, que se confirme Tu palabra que has hablado a
 
 ## 2 Crónicas 6:18
 
-Pero, ¿habitará verdaderamente Dios con la humanidad en la tierra?  
- He aquí, el cielo y el cielo de los cielos no pueden contenerte;  
- ¡cuánto menos esta casa que he construido!
+Pero ¿de verdad habitará Dios con los seres humanos en la tierra?  
+ Mira, ni el cielo ni el más alto de los cielos pueden contenerte;  
+ ¡mucho menos esta casa que he construido!
 
 ---
 
@@ -251,7 +251,7 @@ para que te teman,
 También en cuanto al extranjero que no es de Tu pueblo Israel,  
  pero viene de un país lejano a causa de Tu gran nombre,  
  y Tu mano poderosa,  
- y Tu brazo extendido —cuando vengan y oren hacia esta casa,—
+ y Tu brazo extendido —cuando vengan y oren hacia esta casa—
 
 ---
 
@@ -319,10 +319,10 @@ Ahora, mi Dios, que Tus ojos estén abiertos y Tus oídos atentos a la oración 
 
 ## 2 Crónicas 6:41
 
-> Ahora pues, levántate, Señor Dios, a Tu lugar de descanso,  
->  Tú y el arca de Tu poder;  
->  que Tus sacerdotes, Señor Dios, sean vestidos de salvación,  
->  y que Tus fieles se regocijen en la bondad.
+> Ahora, pues, Señor Dios, levántate y ven a Tu lugar de reposo,  
+>  Tú y el arca de Tu poder.  
+>  Que Tus sacerdotes, Señor Dios, se revistan de salvación,  
+>  y que Tus fieles disfruten del bien con alegría.
 
 ---
 

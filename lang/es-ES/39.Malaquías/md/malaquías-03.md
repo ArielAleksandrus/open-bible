@@ -6,68 +6,68 @@
 
 ## Malaquías 3:2
 
-"¿Pero quién podrá soportar el día de su venida? ¿Y quién podrá estar en pie cuando él aparezca? Porque él es como fuego purificador y como jabón de lavadores.
+“Pero ¿quién aguantará hasta el día de su llegada? ¿Y quién se mantendrá en pie cuando él se presente? Porque él es como el fuego del que funde los metales y como la lejía del que lava la ropa.
 
 ## Malaquías 3:3
 
-Él se sentará como fundidor y purificador de plata, y purificará a los hijos de Leví y los refinará como a oro y a plata, para que ofrezcan al Señor una ofrenda en justicia.
+Se sentará como quien funde y limpia la plata; purificará a los hijos de Leví y los refinará como se refinan el oro y la plata, para que presenten al Señor una ofrenda con justicia.
 
 ## Malaquías 3:4
 
-Entonces la ofrenda de Judá y de Jerusalén será grata al Señor, como en los tiempos antiguos y como en los años pasados.
+Entonces el Señor recibirá con agrado la ofrenda de Judá y de Jerusalén, como sucedía en tiempos antiguos, en los años de antes.
 
 ## Malaquías 3:5
 
-"Y me acercaré a vosotros para juicio; y seré un testigo veloz contra los hechiceros, contra los adúlteros, contra los que juran en falso, y contra los que oprimen al jornalero en su salario, a la viuda y al huérfano, y que apartan al extranjero de su derecho, y no me temen," dice el Señor de los Ejércitos.
+“Me acercaré a vosotros para juzgar, y testificaré sin demora contra los hechiceros, contra los adúlteros, contra los mentirosos, contra los que oprimen al jornalero en su paga, a la viuda y al huérfano, contra los que privan de justicia al extranjero y no me temen,” dice el Señor de los ejércitos.
 
 ## Malaquías 3:6
 
-"Porque yo soy el Señor, no cambio; por eso vosotros, hijos de Jacob, no habéis sido consumidos.
+“Pues yo soy el Señor, y no cambio; por eso vosotros, hijos de Jacob, no habéis sido aniquilados.
 
 ## Malaquías 3:7
 
-Desde los días de vuestros padres os habéis apartado de mis ordenanzas y no las habéis guardado. Volved a mí, y yo volveré a vosotros," dice el Señor de los Ejércitos. "Pero decís, '¿En qué hemos de volver?'
+Desde el tiempo de vuestros padres os habéis alejado de mis ordenanzas y no las habéis cumplido. Regresad a mí, y yo regresaré a vosotros,” dice el Señor de los ejércitos. “Pero preguntáis: ‘¿Cómo vamos a regresar?’
 
 ## Malaquías 3:8
 
-"¿Robará el hombre a Dios? Pues vosotros me habéis robado. Pero decís, '¿En qué te hemos robado?' En los diezmos y ofrendas.
+“¿Puede un hombre robarle a Dios? Sin embargo, vosotros me habéis robado. Y preguntáis: ‘¿Cómo te hemos robado?’ En los diezmos y en las ofrendas.
 
 ## Malaquías 3:9
 
-Estáis bajo maldición, porque me habéis robado, aun toda esta nación.
+Pesa sobre vosotros una maldición, porque me habéis robado; toda la nación lo ha hecho.
 
 ## Malaquías 3:10
 
-Traed todos los diezmos al alfolí, para que haya alimento en mi casa, y probadme ahora en esto," dice el Señor de los Ejércitos, "si no os abriré las ventanas del cielo y derramaré sobre vosotros bendición hasta que sobreabunde.
+Traed todos los diezmos al almacén, para que haya comida en mi casa. Ponedme ahora a prueba en esto,” dice el Señor de los ejércitos, “y veréis si no os abro las ventanas del cielo y derramo sobre vosotros una bendición tan grande que no tendréis dónde guardarla.
 
 ## Malaquías 3:11
 
-Y reprenderé por vosotros al devorador, y no destruirá los frutos de vuestra tierra; ni vuestra vid en el campo será estéril," dice el Señor de los Ejércitos.
+Por vosotros reprenderé al devorador, para que no arruine los frutos de vuestra tierra, y vuestra vid en el campo no dejará caer su fruto antes de tiempo,” dice el Señor de los ejércitos.
 
 ## Malaquías 3:12
 
-"Y todas las naciones os llamarán bienaventurados, porque seréis tierra deseable," dice el Señor de los Ejércitos.
+“Todas las naciones os llamarán dichosos, porque seréis una tierra de delicias,” dice el Señor de los ejércitos.
 
 ## Malaquías 3:13
 
-"Vuestras palabras han sido duras contra mí," dice el Señor. "Pero decís, '¿Qué hemos hablado contra ti?'
+“Habéis hablado contra mí,” dice el Señor. “Y todavía preguntáis: ‘¿Y qué tanto hemos dicho contra ti?’
 
 ## Malaquías 3:14
 
-Habéis dicho, 'Es vano servir a Dios, y ¿qué provecho hay en que guardemos su ordenanza y que andemos afligidos delante del Señor de los Ejércitos?
+Vosotros habéis dicho: ‘Es inútil servir a Dios. ¿Qué hemos ganado con guardar su ordenanza y andar entristecidos delante del Señor de los ejércitos?
 
 ## Malaquías 3:15
 
-Y ahora consideramos bienaventurados a los soberbios; de hecho, los que hacen el mal son exaltados, y los que desafían a Dios escapan.'"
+Ahora tenemos por dichosos a los orgullosos; es más, a los que hacen el mal los llamamos exaltados, y los que desprecian a Dios se libran.’”
 
 ## Malaquías 3:16
 
-Entonces los que temían al Señor hablaron a menudo unos con otros, y el Señor escuchó y oyó, y un libro de memoria fue escrito delante de él para los que temían al Señor y pensaban en su nombre.
+Entonces los que temían al Señor hablaban a menudo entre sí, y el Señor prestó atención y los oyó, y delante de él se escribió un libro de recuerdo para los que temían al Señor y pensaban en su nombre.
 
 ## Malaquías 3:17
 
-"Y serán míos," dice el Señor de los Ejércitos, "en el día en que yo haga mis joyas, y los perdonaré como un hombre perdona a su propio hijo que le sirve."
+“Ellos serán míos,” dice el Señor de los ejércitos, “el día en que yo junte mi tesoro, y me compadeceré de ellos, como un hombre se compadece de su propio hijo que le sirve.
 
 ## Malaquías 3:18
 
-Entonces volveréis y discerniréis entre el justo y el malvado, entre el que sirve a Dios y el que no le sirve.
+Entonces volveréis a ver la diferencia entre el justo y el malvado, entre el que sirve a Dios y el que no lo sirve.”

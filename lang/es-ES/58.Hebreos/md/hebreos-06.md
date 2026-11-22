@@ -10,7 +10,7 @@ la instrucción sobre los lavados ceremoniales, la imposición de manos, la resu
 Y esto haremos, si Dios lo permite.
 
 ## Hebreos 6:4
-Porque es imposible que aquellos que una vez fueron iluminados, que han probado el don celestial y han sido partícipes del Espíritu Santo,
+Porque a los que una vez recibieron la luz, saborearon el regalo del cielo y tuvieron parte en el Espíritu Santo,
 
 ## Hebreos 6:5
 y han gustado la bondad de la palabra de Dios y los poderes del siglo venidero,
@@ -22,10 +22,10 @@ y luego han caído, sean restaurados nuevamente al arrepentimiento, ya que está
 Porque la tierra que bebe la lluvia que cae frecuentemente sobre ella y produce vegetación útil para aquellos por quienes es cultivada recibe la bendición de Dios;
 
 ## Hebreos 6:8
-pero si produce espinos y abrojos, es inútil y está cerca de ser maldecida, y al final es quemada.
+pero si da espinos y cardos, no sirve para nada, está a punto de ser maldecida, y acaba quemada.
 
 ## Hebreos 6:9
-Pero, amados, estamos convencidos de cosas mejores en cuanto a vosotros, cosas que acompañan a la salvación, aunque hablemos de esta manera.
+Pero, queridos hermanos, aunque hablemos así, estamos seguros de que en vuestro caso hay cosas mejores, cosas que van unidas a la salvación.
 
 ## Hebreos 6:10
 Porque Dios no es injusto; Él no olvidará vuestra obra y el amor que habéis mostrado hacia Su nombre, habiendo servido y continuando en servir a los santos.

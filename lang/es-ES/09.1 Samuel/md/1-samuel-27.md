@@ -31,8 +31,8 @@ Entonces David dijo a Aquis:
 
 ## 1 Samuel 27:6
 
-Aquis entonces le concedió Ziklag aquel día;  
- como resultado, Ziklag ha pertenecido a los reyes de Judá hasta hoy.
+Aquis entonces le concedió Siclag aquel día;  
+ como resultado, Siclag ha pertenecido a los reyes de Judá hasta hoy.
 
 ## 1 Samuel 27:7
 

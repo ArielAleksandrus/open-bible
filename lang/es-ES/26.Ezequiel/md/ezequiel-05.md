@@ -13,28 +13,28 @@ Toma unos pocos cabellos de ellos y átatelos en los bordes de tu vestidura.
 Toma algunos de estos nuevamente y échalos al fuego y quémalos; de allí se extenderá un fuego a toda la casa de Israel.
 
 ## Ezequiel 5:5
-“Esto es lo que dice el Señor Soberano: Esta es Jerusalén, la cual he colocado en el centro de las naciones, con tierras a su alrededor.
+“Esto es lo que dice el Señor Dios: Esta es Jerusalén, la cual he colocado en el centro de las naciones, con tierras a su alrededor.
 
 ## Ezequiel 5:6
 Sin embargo, ella se ha rebelado contra mis ordenanzas más perversamente que las naciones, y contra mis estatutos más que las tierras a su alrededor; porque han rechazado mis leyes y no han seguido mis decretos.
 
 ## Ezequiel 5:7
-Por lo tanto, esto es lo que dice el Señor Soberano: Porque habéis sido más rebeldes que las naciones a vuestro alrededor y no habéis seguido mis estatutos ni guardado mis leyes, ni siquiera os habéis conformado a las normas de las naciones a vuestro alrededor,
+Por lo tanto, esto es lo que dice el Señor Dios: Porque habéis sido más rebeldes que las naciones a vuestro alrededor y no habéis seguido mis estatutos ni guardado mis leyes, ni siquiera os habéis conformado a las normas de las naciones a vuestro alrededor,
 
 ## Ezequiel 5:8
-por lo tanto, esto es lo que dice el Señor Soberano: He aquí, estoy contra ti, Jerusalén, y ejecutaré juicios sobre ti a la vista de las naciones.
+por lo tanto, esto es lo que dice el Señor Dios: He aquí, estoy contra ti, Jerusalén, y ejecutaré juicios sobre ti a la vista de las naciones.
 
 ## Ezequiel 5:9
-Por todas tus abominaciones, haré entre vosotros lo que no he hecho antes y nunca volveré a hacer.
+Por todas tus abominaciones, haré en ti lo que no he hecho antes y nunca volveré a hacer.
 
 ## Ezequiel 5:10
-Por lo tanto, los padres comerán a sus hijos entre vosotros, y los hijos comerán a sus padres. Ejecutaré juicios sobre vosotros y esparciré a todos vuestros sobrevivientes a todos los vientos.
+Por lo tanto, los padres comerán a sus hijos en medio de ti, y los hijos comerán a sus padres. Ejecutaré juicios sobre ti y esparciré a todos tus sobrevivientes a todos los vientos.
 
 ## Ezequiel 5:11
-Por lo tanto, tan cierto como que vivo, declara el Señor Soberano, porque habéis profanado mi santuario con todos vuestros ídolos detestables y abominaciones, me retiraré, y mi ojo no perdonará, ni tendré piedad.
+Por lo tanto, tan cierto como que vivo, declara el Señor Dios, porque has profanado mi santuario con todos tus ídolos detestables y abominaciones, me retiraré, y mi ojo no perdonará, ni tendré piedad.
 
 ## Ezequiel 5:12
-Una tercera parte de vuestro pueblo morirá por la peste o perecerá de hambre dentro de ti; una tercera parte caerá a espada alrededor de ti; y una tercera parte esparciré a todos los vientos y perseguiré con una espada desenvainada.
+Una tercera parte de tu pueblo morirá por la peste o perecerá de hambre dentro de ti; una tercera parte caerá a espada alrededor de ti; y una tercera parte esparciré a todos los vientos y perseguiré con una espada desenvainada.
 
 ## Ezequiel 5:13
 Entonces se agotará mi ira, y satisfaré mi furia sobre ellos, y seré apaciguado. Sabrán que yo, el Señor, he hablado en mi celo cuando haya agotado mi furia sobre ellos.

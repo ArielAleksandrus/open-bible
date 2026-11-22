@@ -22,7 +22,7 @@ Entonces hizo preparar su carro y tomó a su pueblo con él.
 Tomó seiscientos carros selectos, junto con todos los otros carros de Egipto, con oficiales sobre todos ellos.
 
 ## Éxodo 14:8
-El Señor hizo que el faraón, rey de Egipto, se determinara, de modo que persiguió a los israelitas, que marchaban con valentía.
+El Señor hizo que el faraón, rey de Egipto, se obstinara, de modo que persiguió a los israelitas, que marchaban con valentía.
 
 ## Éxodo 14:9
 Los egipcios los persiguieron con todos los caballos y carros del faraón, sus jinetes y tropas, y los alcanzaron mientras acampaban junto al mar, cerca de Pi-hahirot, frente a Baal-zefón.
@@ -31,13 +31,13 @@ Los egipcios los persiguieron con todos los caballos y carros del faraón, sus j
 Cuando el faraón se acercaba, los israelitas levantaron la vista y vieron a los egipcios marchando tras ellos, y se aterrorizaron y clamaron al Señor.
 
 ## Éxodo 14:11
-Dijeron a Moisés: “¿Acaso no había tumbas en Egipto que nos has traído al desierto para morir? ¿Qué nos has hecho al sacarnos de Egipto?
+Dijeron a Moisés: “¿Acaso porque no había tumbas en Egipto nos has traído al desierto para morir? ¿Qué nos has hecho al sacarnos de Egipto?
 
 ## Éxodo 14:12
 ¿No te dijimos en Egipto: ‘Déjanos en paz para que sirvamos a los egipcios’? ¡Hubiera sido mejor para nosotros servir a los egipcios que morir en el desierto!”
 
 ## Éxodo 14:13
-Pero Moisés dijo al pueblo: “No tengáis miedo. Mantened firmes y veréis la liberación que el Señor os traerá hoy; a los egipcios que veis hoy, no los volveréis a ver jamás.
+Pero Moisés dijo al pueblo: “No tengáis miedo. Manteneos firmes y veréis la liberación que el Señor os traerá hoy; a los egipcios que veis hoy, no los volveréis a ver jamás.
 
 ## Éxodo 14:14
 El Señor peleará por vosotros; solo necesitáis estar en silencio.”
@@ -49,7 +49,7 @@ Entonces el Señor dijo a Moisés: “¿Por qué clamas a mí? Di a los israelit
 Levanta tu vara y extiende tu mano sobre el mar para dividir las aguas, de modo que los israelitas puedan pasar por el mar en seco.
 
 ## Éxodo 14:17
-Haré que los egipcios se determinen para que los sigan. Y me glorificaré en el faraón y en todo su ejército, en sus carros y en sus jinetes.
+Haré que los egipcios se obstinen y los sigan. Y me glorificaré en el faraón y en todo su ejército, en sus carros y en sus jinetes.
 
 ## Éxodo 14:18
 Los egipcios llegarán a entender que yo soy el Señor cuando me glorifique en el faraón, sus carros y sus jinetes.”

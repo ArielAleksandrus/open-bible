@@ -82,7 +82,7 @@ Pero si te has desviado mientras estabas casada con tu esposo y te has hecho imp
 
 ## Números 5:21
 
-entonces el sacerdote hará que la mujer jure un juramento de maldición, y le dirá: “que el Señor te haga una maldición entre tu pueblo cuando haga que tu vientre aborte y tu abdomen se hinche.
+entonces el sacerdote hará que la mujer jure un juramento de maldición, y le dirá: “Que el Señor te haga una maldición entre tu pueblo cuando haga que tu vientre aborte y tu abdomen se hinche.
 
 ## Números 5:22
 

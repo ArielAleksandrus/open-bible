@@ -93,7 +93,7 @@
 ## Joel 2:14
 
 > ¿Quién sabe?
->  Puede que se vuelva y se arrepienta y deje tras de sí una bendición —una ofrenda de cereal y una ofrenda de libación para el Señor vuestro Dios—.
+>  Puede que se vuelva y se arrepienta y deje tras de sí una bendición —una ofrenda de cereal y una libación para el Señor vuestro Dios—.
 
 ## Joel 2:15
 

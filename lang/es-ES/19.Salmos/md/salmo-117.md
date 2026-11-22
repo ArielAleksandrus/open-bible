@@ -2,13 +2,13 @@
 
 ## Salmo 117:1
 
-> Alabad al Señor, todas las naciones;  
->  ¡Celebrad su nombre, todos los pueblos!
+> ¡Alabad al Señor, naciones todas!  
+>  ¡Pueblos todos, celebrad su nombre!
 
 ## Salmo 117:2
 
-> Porque su bondad hacia nosotros es inmensa,  
->  Y la fidelidad del Señor perdura para siempre.
+> Porque es muy grande su amor por nosotros,  
+>  y la fidelidad del Señor no se acaba nunca.
 
 ---
 

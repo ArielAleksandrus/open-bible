@@ -66,7 +66,7 @@ No descubrirás la desnudez de la esposa de tu hermano, ya que sería deshonrar 
 
 ## Levítico 18:17
 
-No descubrirás la desnudez de una mujer y de su hija, ni tomarás a la hija de su hijo o a la hija de su hija para descubrir su desnudez; son parientes cercanos. Es una maldad.
+No descubrirás la desnudez de una mujer y de su hija, ni tomarás a la hija de su hijo o a la hija de su hija para descubrir su desnudez; son parientes cercanas. Es una maldad.
 
 ## Levítico 18:18
 

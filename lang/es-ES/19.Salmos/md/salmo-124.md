@@ -4,40 +4,39 @@
 
 ## Salmo 124:1
 
-> “Si no hubiera sido el Señor quien estuvo de nuestra parte,”  
->  Diga ahora Israel,
+> “Si el Señor no hubiera estado de nuestro lado,”  
+>  que lo diga ahora Israel,
 
 ## Salmo 124:2
 
-> “Si no hubiera sido el Señor quien estuvo de nuestra parte Cuando la gente se levantó contra nosotros,
+> “si el Señor no hubiera estado de nuestro lado cuando la gente se alzó contra nosotros,
 
 ## Salmo 124:3
 
-> Entonces nos habrían devorado completamente,  
->  Cuando su ira ardía ferozmente contra nosotros;
+> nos habrían tragado enteros cuando su enojo ardía contra nosotros;
 
 ## Salmo 124:4
 
-> Entonces las aguas nos habrían inundado,  
->  El torrente habría pasado sobre nuestra alma;
+> las aguas nos habrían inundado,  
+>  la corriente nos habría arrastrado;
 
 ## Salmo 124:5
 
-> y las aguas impetuosas habrían pasado sobre nuestra alma.”
+> las aguas embravecidas nos habrían pasado por encima.”
 
 ---
 
 ## Salmo 124:6
 
-> Bendito sea el Señor,  
->  Que no nos ha permitido ser desgarrados por sus dientes.
+> ¡Alabado sea el Señor,  
+>  que no dejó que nos despedazaran con sus dientes!
 
 ## Salmo 124:7
 
-> Nuestra alma ha escapado como un pájaro del lazo del cazador;  
->  El lazo se rompió y hemos escapado.
+> Nos escapamos como un pájaro de la trampa del cazador;  
+>  la trampa se rompió, y quedamos libres.
 
 ## Salmo 124:8
 
-> Nuestro auxilio está en el nombre del Señor,  
->  Que hizo el cielo y la tierra.
+> Nuestra ayuda está en el nombre del Señor,  
+>  que creó el cielo y la tierra.

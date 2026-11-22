@@ -67,25 +67,25 @@ Estas son las cantidades de materiales usados para el tabernáculo, el tabernác
 Bezalel, hijo de Uri, hijo de Hur, de la tribu de Judá, ejecutó todo lo que el Señor mandó a Moisés.
 
 ## Éxodo 38:23
-Con él estaba Aholiab, hijo de Ahisamac, de la tribu de Dan, grabador, diseñador y hábil bordador en hilo azul, púrpura y escarlata y lino fino.
+Con él estaba Oholiab, hijo de Ahisamac, de la tribu de Dan, grabador, diseñador y hábil bordador en hilo azul, púrpura y escarlata y lino fino.
 
 ## Éxodo 38:24
 La cantidad total de oro de la ofrenda mecida usada para toda la obra del santuario fue de veintinueve talentos y 730 siclos, según el siclo del santuario.
 
 ## Éxodo 38:25
-La plata recolectada del censo de la comunidad ascendió a cien talentos y 1,775 siclos, según el siclo del santuario.
+La plata recolectada del censo de la comunidad ascendió a cien talentos y 1 775 siclos, según el siclo del santuario.
 
 ## Éxodo 38:26
-Esto fue un beka por persona, es decir, medio siclo, según el siclo del santuario, de cada hombre de veinte años o más, sumando un total de 603,550 hombres.
+Esto fue un beka por persona, es decir, medio siclo, según el siclo del santuario, de cada hombre de veinte años o más, sumando un total de 603 550 hombres.
 
 ## Éxodo 38:27
 Los cien talentos de plata se usaron para fundir las bases del santuario y la cortina: cien bases de los cien talentos, un talento por base.
 
 ## Éxodo 38:28
-Los 1,775 siclos se usaron para hacer ganchos para las columnas, para recubrir sus capiteles y para hacer bandas para ellas.
+Los 1 775 siclos se usaron para hacer ganchos para las columnas, para recubrir sus capiteles y para hacer bandas para ellas.
 
 ## Éxodo 38:29
-El bronce de la ofrenda mecida ascendió a setenta talentos y 2,400 siclos.
+El bronce de la ofrenda mecida ascendió a setenta talentos y 2 400 siclos.
 
 ## Éxodo 38:30
 Este bronce se usó para hacer las bases para la entrada de la tienda de reunión, el altar de bronce con su rejilla de bronce, y todos sus utensilios.

@@ -35,7 +35,7 @@ Las mujeres cantaban mientras celebraban y decían:
 
 ## 1 Samuel 18:8
 
-Entonces Saúl se enojó mucho, porque esta declaración le desagradó, y dijo: “Han atribuido a David diez miles, pero a mí solo me han atribuido miles. ¿Qué más puede tener sino el reino?”
+Entonces Saúl se enojó mucho, porque esta declaración le desagradó, y dijo: “Han atribuido a David decenas de miles, pero a mí solo me han atribuido miles. ¿Qué más puede tener sino el reino?”
 
 ## 1 Samuel 18:9
 
@@ -83,7 +83,7 @@ Pero David dijo a Saúl: “¿Quién soy yo, y qué es mi vida o la familia de m
 
 ## 1 Samuel 18:19
 
-Así que sucedió que, cuando llegó el momento de que Merab, la hija de Saúl, fuera dada a David, fue dada a Adriel el Meholatita como esposa.
+Así que sucedió que, cuando llegó el momento de que Merab, la hija de Saúl, fuera dada a David, fue dada a Adriel el meholatita como esposa.
 
 ---
 
@@ -129,7 +129,7 @@ Cuando Saúl observó y entendió que el Señor estaba con David, y que Mical, l
 
 ## 1 Samuel 18:29
 
-El miedo de Saúl hacia David aumentó. Así, Saúl permaneció como adversario de David continuamente.
+el miedo de Saúl hacia David aumentó. Así, Saúl permaneció como adversario de David continuamente.
 
 ## 1 Samuel 18:30
 

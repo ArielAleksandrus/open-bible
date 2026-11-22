@@ -18,7 +18,7 @@ Por un tiempo no quiso, pero después se dijo a sí mismo: ‘Aunque no temo a D
 
 ## Lucas 18:5
 
-sin embargo, porque esta viuda sigue molestándome, le haré justicia, para que no venga eventualmente y me agote.’”
+sin embargo, porque esta viuda sigue molestándome, le haré justicia, para que no siga viniendo hasta agotarme.’”
 
 ## Lucas 18:6
 
@@ -26,7 +26,7 @@ Y el Señor dijo: “Escuchad lo que dice el juez injusto.
 
 ## Lucas 18:7
 
-¿No hará Dios justicia a Sus escogidos, que claman a Él día y noche? ¿Se demorará en responderles?
+¿Acaso Dios no se encargará de hacer justicia a Sus escogidos, que claman a Él día y noche? ¿Seguirá haciéndolos esperar?
 
 ## Lucas 18:8
 
@@ -44,7 +44,7 @@ También contó esta parábola a algunos que confiaban en su propia justicia y m
 
 ## Lucas 18:11
 
-El fariseo, de pie, oraba para sí: ‘Dios, te doy gracias porque no soy como los demás hombres —ladrones, malhechores, adúlteros— o incluso como este recaudador de impuestos.
+El fariseo, de pie y aparte, oraba así: ‘Dios, te doy gracias porque no soy como los demás: estafadores, malhechores, adúlteros, ni siquiera como este recaudador de impuestos.
 
 ## Lucas 18:12
 
@@ -128,7 +128,7 @@ Jesús les dijo, “En verdad os digo, no hay nadie que haya dejado casa, o espo
 
 ## Lucas 18:30
 
-que no reciba muchas veces más en esta edad, y en la edad venidera, la vida eterna.”
+que no reciba muchas veces más en este tiempo, y en el mundo venidero, la vida eterna.”
 
 ---
 

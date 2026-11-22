@@ -40,7 +40,7 @@ A causa de la rebelión, el ejército y el sacrificio diario fueron entregados a
 Entonces oí a un santo que hablaba, y otro santo le preguntó: “¿Hasta cuándo durará la visión sobre el sacrificio diario, la desolación causada por la rebelión, y el pisoteo del santuario y del ejército?”
 
 ## Daniel 8:14
-Él me dijo: “Durará 2,300 tardes y mañanas; luego el santuario será restaurado.”
+Él me dijo: “Durará 2 300 tardes y mañanas; luego el santuario será restaurado.”
 
 ## Daniel 8:15
 Mientras yo, Daniel, observaba la visión y buscaba entenderla, se presentó ante mí uno que parecía un hombre.
@@ -76,7 +76,7 @@ Su poder será grande, pero no por su propia fuerza. Causará destrucción extra
 Por su astucia, hará prosperar el engaño bajo su mano, y se engrandecerá en su corazón. Cuando se sientan seguros, destruirá a muchos y se levantará contra el Príncipe de los príncipes. Sin embargo, será quebrantado, pero no por poder humano.
 
 ## Daniel 8:26
-La visión de las tardes y mañanas que se ha contado es verdadera. Pero sella la visión, porque se refiere a muchos días en el futuro.
+La visión de las tardes y mañanas que se ha contado es verdadera. Pero sella la visión, porque se refiere a muchos días en el futuro.”
 
 ## Daniel 8:27
 Yo, Daniel, estaba exhausto y estuve enfermo varios días. Luego me levanté y me ocupé de los asuntos del rey. Estaba asombrado por la visión; era incomprensible.

@@ -58,7 +58,7 @@ Cuando comenzó a soplar un suave viento del sur, pensaron que habían logrado s
 
 ## Hechos 27:14
 
-Pero poco después, un fuerte viento llamado Euroclidón descendió de la isla.
+Pero poco después, un fuerte viento llamado Euroaquilón descendió de la isla.
 
 ## Hechos 27:15
 
@@ -118,7 +118,7 @@ En la decimocuarta noche, mientras éramos llevados a la deriva por el mar Adri�
 
 ## Hechos 27:28
 
-Tomaron sondas y encontraron que el agua tenía veinte brazas de profundidad. Poco después, tomaron sondas nuevamente y encontraron que tenía quince brazas de profundidad.
+Echaron la sonda y encontraron que el agua tenía veinte brazas de profundidad. Poco después, la echaron nuevamente y encontraron que tenía quince brazas de profundidad.
 
 ## Hechos 27:29
 

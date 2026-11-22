@@ -24,7 +24,7 @@ El ángel dijo a las mujeres: “No temáis, porque sé que buscáis a Jesús, q
 
 ## Mateo 28:6
 
-Él no está aquí; ha resucitado, tal como dijo. Venid, ved el lugar donde yacía.
+Él no está aquí; ha resucitado, como Él mismo dijo. Venid a ver el lugar donde estaba.
 
 ## Mateo 28:7
 
@@ -82,8 +82,8 @@ Entonces Jesús se acercó y les habló, diciendo: “Toda autoridad en el cielo
 
 ## Mateo 28:19
 
-Por tanto, id y haced discípulos de todas las naciones, bautizándolos en el nombre del Padre, del Hijo y del Espíritu Santo,
+Por eso, id a todas las naciones y haced discípulos, bautizándolos en el nombre del Padre, del Hijo y del Espíritu Santo,
 
 ## Mateo 28:20
 
-enseñándoles a obedecer todo lo que os he mandado. Y ciertamente yo estoy con vosotros siempre, hasta el fin del mundo.”
+y enseñadles a cumplir todo lo que os he mandado. Y tened por seguro que yo estoy con vosotros siempre, hasta el final de esta era.”

@@ -2,11 +2,11 @@
 
 ## Juan 4:1
 
-Cuando Jesús se dio cuenta de que los fariseos habían oído que Él estaba haciendo y bautizando más discípulos que Juan—
+Cuando Jesús se dio cuenta de que los fariseos habían oído que Él estaba haciendo y bautizando más discípulos que Juan,
 
 ## Juan 4:2
 
-aunque no era Jesús mismo quien bautizaba, sino sus discípulos—
+aunque no era Jesús mismo quien bautizaba, sino sus discípulos,
 
 ## Juan 4:3
 
@@ -66,7 +66,7 @@ La mujer le dijo: “Señor, dame de esa agua para que no tenga sed ni tenga que
 
 ## Juan 4:16
 
-Él le instruyó: “Ve, llama a tu marido y regresa.”
+Él le dijo: “Ve, llama a tu marido y regresa.”
 
 ## Juan 4:17
 
@@ -86,15 +86,15 @@ Nuestros antepasados adoraron en este monte, pero ustedes los judíos dicen que 
 
 ## Juan 4:21
 
-Jesús le dijo: “Créeme, mujer, se acerca la hora en que adorarás al Padre ni en este monte ni en Jerusalén.
+Jesús le dijo: “Créeme, mujer: llega el momento en que no adoraréis al Padre ni en este monte ni en Jerusalén.
 
 ## Juan 4:22
 
-Ustedes los samaritanos adoran lo que no entienden; nosotros adoramos lo que conocemos, porque la salvación viene de los judíos.
+Vosotros los samaritanos adoráis lo que no entendéis; nosotros adoramos lo que conocemos, porque la salvación viene de los judíos.
 
 ## Juan 4:23
 
-Sin embargo, se acerca la hora, y ha llegado ya, en que los verdaderos adoradores adorarán al Padre en espíritu y en verdad, porque así quiere el Padre que sean los que le adoren.
+Pero llega el momento, y ya ha llegado, en que los que adoran de verdad adorarán al Padre en espíritu y en verdad, porque esa es la clase de adoradores que el Padre busca.
 
 ## Juan 4:24
 
@@ -134,7 +134,7 @@ Mientras tanto, sus discípulos le rogaban: “Rabí, por favor come algo.”
 
 ## Juan 4:32
 
-Pero Él les respondió: “Yo tengo una comida que ustedes no conocen.”
+Pero Él les respondió: “Yo tengo una comida que vosotros no conocéis.”
 
 ## Juan 4:33
 
@@ -146,7 +146,7 @@ Al oír esto, sus discípulos se preguntaron entre sí: “¿Alguien le habrá t
 
 ## Juan 4:35
 
-¿No dicen ustedes, ‘Todavía faltan cuatro meses para la cosecha’? Yo les digo, ¡abran los ojos y miren los campos! Están maduros para la cosecha.
+¿No decís vosotros, ‘Todavía faltan cuatro meses para la cosecha’? Yo os digo, ¡abrid los ojos y mirad los campos! Están maduros para la cosecha.
 
 ## Juan 4:36
 
@@ -158,7 +158,7 @@ Así se cumple el dicho ‘Uno siembra y otro siega’.
 
 ## Juan 4:38
 
-Yo los envié a segar lo que no les costó ningún trabajo. Otros han hecho el trabajo duro, y ustedes han cosechado los beneficios de su labor.”
+Yo os envié a segar lo que no os costó ningún trabajo. Otros han hecho el trabajo duro, y vosotros habéis cosechado los beneficios de su labor.”
 
 ---
 
@@ -204,7 +204,7 @@ Cuando este hombre oyó que Jesús había llegado a Galilea desde Judea, fue a �
 
 ## Juan 4:48
 
-Entonces Jesús le dijo: “A menos que ustedes vean señales y prodigios, nunca creerán.”
+Entonces Jesús le dijo: “A menos que veáis señales y prodigios, nunca creeréis.”
 
 ## Juan 4:49
 

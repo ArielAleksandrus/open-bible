@@ -2,11 +2,11 @@
 
 ## 1 Samuel 10:1
 
-Entonces Samuel tomó una redoma de aceite y la derramó sobre la cabeza de Saúl, lo besó y dijo: “¿No te ha ungido el Señor como gobernante sobre su heredad?
+Entonces Samuel tomó un frasco de aceite, lo derramó sobre la cabeza de Saúl, lo besó y dijo: “¿No es el Señor quien te ha ungido como gobernante de su pueblo, que es su herencia?
 
 ## 1 Samuel 10:2
 
-Cuando te apartes de mí hoy, encontrarás a dos hombres cerca de la tumba de Raquel, en el territorio de Benjamín en Zelzah. Ellos te dirán: ‘Los asnos que fuiste a buscar han sido hallados. Ahora tu padre ha dejado de preocuparse por los asnos y está ansioso por ti, diciendo: “¿Qué haré por mi hijo?”’
+Cuando te apartes de mí hoy, encontrarás a dos hombres cerca de la tumba de Raquel, en el territorio de Benjamín en Zelzah. Ellos te dirán: ‘Las asnas que fuiste a buscar han sido halladas. Ahora tu padre ha dejado de preocuparse por las asnas y está ansioso por ti, diciendo: “¿Qué haré por mi hijo?”’
 
 ## 1 Samuel 10:3
 
@@ -40,11 +40,11 @@ Entonces sucedió que cuando Saúl se dio la vuelta para dejar a Samuel, Dios le
 
 ## 1 Samuel 10:10
 
-Cuando llegaron a Gibeah, he aquí, una compañía de profetas lo encontró; y el Espíritu de Dios vino sobre él, y profetizó entre ellos.
+Cuando llegaron a Guibeá, he aquí, una compañía de profetas lo encontró; y el Espíritu de Dios vino sobre él, y profetizó entre ellos.
 
 ## 1 Samuel 10:11
 
-Y cuando todos los que lo conocían anteriormente vieron que profetizaba con los profetas, la gente se dijo unos a otros: “¿Qué le ha pasado al hijo de Cis? ¿Está también Saúl entre los profetas?”
+Y cuando todos los que lo conocían anteriormente vieron que profetizaba con los profetas, la gente se dijo unos a otros: “¿Qué le ha pasado al hijo de Quis? ¿Está también Saúl entre los profetas?”
 
 ## 1 Samuel 10:12
 
@@ -59,7 +59,7 @@ Después de terminar de profetizar, subió al lugar alto.
 ## 1 Samuel 10:14
 
 El tío de Saúl le dijo a él y a su criado: “¿Dónde fuisteis?”  
- Y él dijo: “A buscar los asnos. Cuando vimos que no se encontraban, fuimos a Samuel.”
+ Y él dijo: “A buscar las asnas. Cuando vimos que no se encontraban, fuimos a Samuel.”
 
 ## 1 Samuel 10:15
 
@@ -67,7 +67,7 @@ El tío de Saúl preguntó: “Por favor, dime qué te dijo Samuel.”
 
 ## 1 Samuel 10:16
 
-Saúl le dijo a su tío: “Nos dijo claramente que los asnos habían sido hallados.” Pero no le contó sobre el asunto del reino del cual Samuel había hablado.
+Saúl le dijo a su tío: “Nos dijo claramente que las asnas habían sido halladas.” Pero no le contó sobre el asunto del reino del cual Samuel había hablado.
 
 ---
 
@@ -89,7 +89,7 @@ Así que Samuel hizo que todas las tribus de Israel se acercaran, y la tribu de 
 
 ## 1 Samuel 10:21
 
-Luego hizo que la tribu de Benjamín se acercara por sus familias, y fue tomada la familia de Matri, y fue tomado Saúl hijo de Cis. Pero cuando lo buscaron, no pudo ser hallado.
+Luego hizo que la tribu de Benjamín se acercara por sus familias, y fue tomada la familia de Matri, y fue tomado Saúl hijo de Quis. Pero cuando lo buscaron, no pudo ser hallado.
 
 ## 1 Samuel 10:22
 
@@ -112,7 +112,7 @@ Entonces Samuel dijo al pueblo las regulaciones de la realeza y las escribió en
 
 ## 1 Samuel 10:26
 
-Saúl regresó a su casa en Gibeah, acompañado por los hombres valientes cuyos corazones Dios había tocado.
+Saúl regresó a su casa en Guibeá, acompañado por los hombres valientes cuyos corazones Dios había tocado.
 
 ## 1 Samuel 10:27
 

@@ -50,7 +50,7 @@ Como no podía ver a causa del resplandor de esa luz, fui llevado de la mano por
 
 ## Hechos 22:12
 
-“Ahora un cierto Ananías, un hombre devoto según la ley y bien hablado por todos los judíos que vivían allí,
+“Un tal Ananías, hombre devoto según la ley y de quien hablaban bien todos los judíos que vivían allí,
 
 ## Hechos 22:13
 
@@ -88,7 +88,7 @@ Y cuando se derramaba la sangre de tu mártir Esteban, yo estaba allí, dando mi
 
 ## Hechos 22:21
 
-Entonces él me dijo, ‘¡Ve! Porque te envío lejos a los gentiles.’
+Entonces él me dijo, ‘¡Ve! Porque te envío lejos a los gentiles.’”
 
 ---
 

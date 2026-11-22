@@ -46,7 +46,7 @@ En ese tiempo el vidente Hanani vino a Asa, rey de Judá, y le dijo:
 
 ## 2 Crónicas 16:8
 
-¿No tenían los etíopes y los lubim un ejército inmenso con numerosos carros y jinetes?  
+¿No tenían los etíopes y los libios un ejército inmenso con numerosos carros y jinetes?  
  Sin embargo, porque confiaste en el Señor, Él los entregó en tus manos.
 
 ---

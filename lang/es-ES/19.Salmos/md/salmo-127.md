@@ -4,31 +4,30 @@
 
 ## Salmo 127:1
 
-> Si el Señor no construye la casa,  
->  En vano trabajan los que la edifican;  
->  Si el Señor no guarda la ciudad,  
->  En vano vela el centinela.
+> Si el Señor no levanta la casa,  
+>  de nada sirve que se esfuercen los que la construyen;  
+>  si el Señor no protege la ciudad,  
+>  de nada sirve que el guardia se quede despierto.
 
 ## Salmo 127:2
 
-> Es inútil que os levantéis temprano,  
->  Que os acostéis tarde,  
->  Que comáis el pan de trabajos penosos;  
->  Porque Él da a su amado aun mientras duerme.
+> De nada os sirve madrugar y acostaros tarde,  
+>  comiendo un pan ganado con tanto esfuerzo;  
+>  porque Dios a su amado le da,  
+>  incluso mientras duerme.
 
 ---
 
 ## Salmo 127:3
 
-> Mirad, los hijos son una bendición del Señor,  
->  El fruto del vientre es una recompensa graciosa.
+> Mirad: los hijos son una bendición que viene del Señor;  
+>  los niños que nacen son un regalo de Él.
 
 ## Salmo 127:4
 
-> Así como las flechas en la mano del guerrero,  
->  Así son los hijos nacidos en la juventud.
+> Los hijos que se tienen en la juventud son como flechas en las manos de un guerrero.
 
 ## Salmo 127:5
 
-> Bienaventurado el hombre que llena su aljaba de ellos;  
->  No serán avergonzados Cuando se enfrenten con sus adversarios en la puerta.
+> ¡Feliz el hombre que tiene su aljaba llena de ellas!  
+>  No quedarán avergonzados cuando se enfrenten a sus enemigos en la puerta de la ciudad.

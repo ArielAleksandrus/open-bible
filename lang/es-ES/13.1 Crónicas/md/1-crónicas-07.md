@@ -196,7 +196,7 @@ Su padre Efraín lloró por muchos días,
 
 ## 1 Crónicas 7:23
 
-Luego fue a su esposa, y ella concibió y dio a luz un hijo,
+Luego se unió a su esposa, y ella concibió y dio a luz un hijo,
 
 >  al que llamó Bería, porque la desgracia había caído sobre su casa.
 
@@ -241,7 +241,7 @@ Sus posesiones y asentamientos fueron:
 Y a lo largo de las fronteras de los hijos de Manasés:
 
 >  Bet-seán, Taanac, Meguido y Dor, con sus aldeas.  
->  En estos vivieron los hijos de José, el hijo de Israel.
+>  En estas ciudades vivieron los hijos de José, el hijo de Israel.
 
 ---
 

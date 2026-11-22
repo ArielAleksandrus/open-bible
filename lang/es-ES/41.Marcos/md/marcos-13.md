@@ -28,7 +28,7 @@ Muchos vendrán en mi nombre, afirmando, ‘Yo soy,’ y engañarán a muchos.
 
 ## Marcos 13:7
 
-Cuando oigáis de guerras y rumores de guerras, no os alarméis; tales cosas deben suceder, pero el fin aún no es.
+Cuando oigáis de guerras y rumores de guerras, no os alarméis; tales cosas deben suceder, pero aún no es el fin.
 
 ## Marcos 13:8
 

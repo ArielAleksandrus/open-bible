@@ -6,15 +6,15 @@ El mensaje del Señor vino a mí, diciendo,
 
 ## Ezequiel 22:2
 
-“Hijo de hombre, ¿juzgarás, juzgarás la ciudad de derramamiento de sangre? Entonces infórmale de todas sus abominaciones.
+“Hijo de hombre, ¿juzgarás, juzgarás la ciudad de derramamiento de sangre? Entonces hazle saber todas sus abominaciones.
 
 ## Ezequiel 22:3
 
-Y di: ‘Esto es lo que dice el Señor Soberano: Una ciudad que se trae a sí misma la perdición derramando sangre en medio de ella y se contamina con ídolos, en contra de su propio bien.
+Y di: ‘Esto es lo que dice el Señor Dios: Una ciudad que se trae a sí misma la perdición derramando sangre en medio de ella y se contamina con ídolos, en contra de su propio bien.
 
 ## Ezequiel 22:4
 
-Te has hecho culpable por la sangre que has derramado y contaminada por los ídolos que has hecho. Has acercado tus días y has llegado al final de tus años. Por lo tanto, te haré un deshonor para las naciones y un hazmerreír para todas las tierras.
+Te has hecho culpable por la sangre que has derramado y te has contaminado con los ídolos que has hecho. Has acercado tus días y has llegado al final de tus años. Por lo tanto, te haré objeto de deshonra para las naciones y un hazmerreír para todas las tierras.
 
 ## Ezequiel 22:5
 
@@ -46,11 +46,11 @@ En ti un hombre comete abominación con la esposa de su vecino, otro deshonra ve
 
 ## Ezequiel 22:12
 
-En ti hay personas que aceptan sobornos para cometer violencia; tomas interés y obtienes ganancias del pobre. Extorsionas ganancias injustas de tus vecinos. Y te has olvidado de mí, declara el Señor Soberano.
+En ti hay personas que aceptan sobornos para cometer violencia; tomas interés y obtienes ganancias del pobre. Extorsionas ganancias injustas de tus vecinos. Y te has olvidado de mí, declara el Señor Dios.
 
 ## Ezequiel 22:13
 
-“Mira, golpearé mis manos juntas por tu ganancia deshonesta y el derramamiento de sangre en medio de ti.
+“Mira, batiré las palmas contra tu ganancia deshonesta y el derramamiento de sangre en medio de ti.
 
 ## Ezequiel 22:14
 
@@ -74,19 +74,19 @@ Entonces el mensaje del Señor vino a mí, diciendo,
 
 ## Ezequiel 22:19
 
-Por lo tanto, esto es lo que dice el Señor Soberano: ‘Porque todos ustedes se han convertido en escoria, los reuniré en medio de Jerusalén.
+Por lo tanto, esto es lo que dice el Señor Dios: ‘Porque todos vosotros os habéis convertido en escoria, os reuniré en medio de Jerusalén.
 
 ## Ezequiel 22:20
 
-Como se reúne la plata, el bronce, el hierro, el plomo y el estaño en un horno para ser fundidos con un soplo de fuego, así los reuniré en mi ira y furia y los pondré dentro de la ciudad y los fundiré.
+Como se reúne la plata, el bronce, el hierro, el plomo y el estaño en un horno para ser fundidos con un soplo de fuego, así os reuniré en mi ira y furia y os pondré dentro de la ciudad y os fundiré.
 
 ## Ezequiel 22:21
 
-Los reuniré y soplaré sobre ustedes con el fuego de mi ira, y serán fundidos dentro de ella.
+Os reuniré y soplaré sobre vosotros con el fuego de mi ira, y seréis fundidos dentro de ella.
 
 ## Ezequiel 22:22
 
-Así como la plata se funde en un horno, así serán fundidos dentro de ella, y reconocerán que yo, el Señor, he derramado mi ira sobre ustedes.’”
+Así como la plata se funde en un horno, así seréis fundidos dentro de ella, y reconoceréis que yo, el Señor, he derramado mi ira sobre vosotros.’”
 
 ## Ezequiel 22:23
 
@@ -110,7 +110,7 @@ Sus oficiales dentro de ella son como lobos que desgarran a su presa; derraman s
 
 ## Ezequiel 22:28
 
-Sus profetas encubren estos actos para ellos con visiones falsas y adivinaciones engañosas. Afirman, ‘Esto es lo que dice el Señor Soberano’ —cuando el Señor no ha hablado—.
+Sus profetas encubren estos actos para ellos con visiones falsas y adivinaciones engañosas. Afirman, ‘Esto es lo que dice el Señor Dios’ —cuando el Señor no ha hablado—.
 
 ## Ezequiel 22:29
 
@@ -122,4 +122,4 @@ Busqué a alguien entre ellos que construyera el muro y se pusiera delante de m�
 
 ## Ezequiel 22:31
 
-Por lo tanto, derramaré mi ira sobre ellos y los consumiré con mi furia ardiente, haciendo caer sobre sus propias cabezas todo lo que han hecho, declara el Señor Soberano.”
+Por lo tanto, derramaré mi ira sobre ellos y los consumiré con mi furia ardiente, haciendo caer sobre sus propias cabezas todo lo que han hecho, declara el Señor Dios.”

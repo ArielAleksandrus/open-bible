@@ -44,7 +44,7 @@ Quien lleva a los rectos por mal camino caerá en su propia fosa, pero los ínte
 
 ## Proverbios 28:11
 
-Los ricos son sabios a sus propios ojos, pero el pobre con entendimiento ve a través de ellos.
+Los ricos son sabios a sus propios ojos, pero el pobre con entendimiento los desenmascara.
 
 ## Proverbios 28:12
 
@@ -98,7 +98,7 @@ Quien reprende a una persona hallará más favor al final que quien halaga con l
 
 ## Proverbios 28:24
 
-Quien roba a su padre o madre y dice: "No está mal", es compañero de quien destruye.
+Quien roba a su padre o madre y dice: “No está mal”, es compañero de quien destruye.
 
 ## Proverbios 28:25
 

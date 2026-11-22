@@ -16,7 +16,7 @@ Luego dijeron: “Vamos, construyamos una ciudad para nosotros, con una torre qu
 El Señor descendió para ver la ciudad y la torre que la gente estaba construyendo.
 
 ## Génesis 11:6
-El Señor dijo: “He aquí, son un solo pueblo con el mismo idioma, y esto es lo que han comenzado a hacer. Ahora nada de lo que planeen les será imposible.
+El Señor dijo: “Mirad, son un solo pueblo con un mismo idioma, y esto es lo que han comenzado a hacer. De ahora en adelante nada de lo que planeen les resultará imposible.
 
 ## Génesis 11:7
 Vamos, bajemos y confundamos su lengua para que no entiendan el habla del otro.”

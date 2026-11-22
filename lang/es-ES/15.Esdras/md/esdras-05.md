@@ -12,7 +12,7 @@ Zorobabel, hijo de Sealtiel, y Jesúa, hijo de Jozadac, se levantaron y comenzar
 
 ## Esdras 5:3
 
-Durante este período, Tatenai, el gobernador de la región más allá del Éufrates, junto con Setar-Boznai y sus colegas, se acercaron a ellos y preguntaron: “¿Quién les ha dado la autoridad para reconstruir este templo y completar esta estructura?”
+Durante este período, Tatenai, el gobernador de la región más allá del Éufrates, junto con Setar-Boznai y sus colegas, se acercaron a ellos y preguntaron: “¿Quién os ha dado la autoridad para reconstruir este templo y completar esta estructura?”
 
 ## Esdras 5:4
 
@@ -28,7 +28,7 @@ Aquí está una copia de la carta que Tatenai, el gobernador de la región más 
 
 ## Esdras 5:7
 
-El informe que enviaron a él fue escrito de la siguiente manera:
+El informe que le enviaron fue escrito de la siguiente manera:
  “Al rey Darío:
 
  Toda paz.
@@ -41,11 +41,11 @@ Deseamos informar al rey que visitamos la provincia de Judá, al templo del gran
 
 ## Esdras 5:9
 
-Cuestionamos a los ancianos, preguntándoles, ‘¿Quién les autorizó a reconstruir este templo y completar esta estructura?’
+Cuestionamos a los ancianos, preguntándoles: ‘¿Quién os autorizó a reconstruir este templo y completar esta estructura?’
 
 ## Esdras 5:10
 
-También solicitamos sus nombres para informarle, para que podamos registrar los nombres de los líderes para su conocimiento.
+También solicitamos sus nombres para informarte, y así registrar los nombres de los líderes para tu conocimiento.
 
 ## Esdras 5:11
 
@@ -65,7 +65,7 @@ Además, los artículos de oro y plata de la casa de Dios, que Nabucodonosor hab
 
 ## Esdras 5:15
 
-Él le instruyó, “Toma estos artículos y depósitalos en el templo en Jerusalén, y que la casa de Dios sea reconstruida en su sitio original.”
+Él le instruyó, “Toma estos artículos y deposítalos en el templo en Jerusalén, y que la casa de Dios sea reconstruida en su sitio original.”
 
 ## Esdras 5:16
 

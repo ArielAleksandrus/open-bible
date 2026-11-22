@@ -30,7 +30,7 @@ El enfermo respondió: “Señor, no tengo a nadie que me ayude a entrar en el e
 
 ## Juan 5:8
 
-Jesús le instruyó: “Levántate, toma tu camilla y anda.”
+Jesús le dijo: “Levántate, toma tu camilla y anda.”
 
 ## Juan 5:9
 
@@ -48,7 +48,7 @@ Pero él respondió: “El que me sanó me dijo: ‘Toma tu camilla y anda.’�
 
 ## Juan 5:12
 
-Le preguntaron: “¿Quién es la persona que te instruyó que la tomaras y anduvieras?”
+Le preguntaron: “¿Quién es la persona que te dijo que la tomaras y anduvieras?”
 
 ## Juan 5:13
 
@@ -58,7 +58,7 @@ El hombre que había sido sanado no sabía quién era, porque Jesús se había e
 
 ## Juan 5:14
 
-Más tarde Jesús lo encontró en el templo y le dijo: “Mira, has sido sanado. No peques más, para que no te suceda algo peor.”
+Más tarde Jesús lo encontró en el templo y le dijo: “Mira, ya estás sano. Deja de pecar, para que no te pase algo peor.”
 
 ## Juan 5:15
 
@@ -70,7 +70,7 @@ Por esta razón, los líderes judíos comenzaron a perseguir a Jesús, porque ha
 
 ## Juan 5:17
 
-Pero Jesús les respondió: “Mi Padre hasta ahora trabaja, y yo también trabajo.”
+Pero Jesús les respondió: “Mi Padre sigue trabajando hasta hoy, y yo también trabajo.”
 
 ## Juan 5:18
 
@@ -202,4 +202,4 @@ Si tuvierais fe en Moisés, tendríais fe en mí, porque él escribió acerca de
 
 ## Juan 5:47
 
-Pero si no creéis lo que él escribió, ¿cómo confiaréis en lo que digo?
+Pero si no creéis lo que él escribió, ¿cómo confiaréis en lo que digo?”

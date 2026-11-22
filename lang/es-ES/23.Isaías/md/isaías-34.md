@@ -18,11 +18,11 @@ Todos los astros del cielo se desvanecerán, y el cielo se enrollará como un pe
 
 ## Isaías 34:5
 
-Porque mi espada se ha saciado en los cielos; he aquí, descenderá en juicio sobre Edom, sobre el pueblo que he destinado a la destrucción.
+Mi espada ya se ha saciado en los cielos; mirad, ahora caerá sobre Edom para juzgarlo, sobre el pueblo que he destinado a la destrucción.
 
 ## Isaías 34:6
 
-La espada del Señor está empapada en sangre, y cubierta de grasa, con la sangre de corderos y cabras, con la grasa de los riñones de carneros. Porque el Señor tiene un sacrificio en Bozrah, y una gran matanza en la tierra de Edom.
+La espada del Señor está empapada en sangre, y cubierta de grasa, con la sangre de corderos y cabras, con la grasa de los riñones de carneros. Porque el Señor tiene un sacrificio en Bozra, y una gran matanza en la tierra de Edom.
 
 ## Isaías 34:7
 

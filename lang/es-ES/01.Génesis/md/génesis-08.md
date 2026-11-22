@@ -2,7 +2,7 @@
 
 ## Génesis 8:1
 
-Pero Dios se acordó de Noé y de todos los animales y ganado que estaban con él en el arca, y envió un viento sobre la tierra, haciendo que las aguas se calmaran.
+Pero Dios se acordó de Noé y de todos los animales y ganado que estaban con él en el arca, y envió un viento sobre la tierra, haciendo que las aguas bajaran.
 
 ## Génesis 8:2
 
@@ -86,4 +86,4 @@ El Señor percibió el aroma agradable y se dijo a sí mismo: “Nunca más volv
 
 ## Génesis 8:22
 
-Mientras la tierra permanezca, la siembra y la cosecha, el frío y el calor, el verano y el invierno, el día y la noche no cesarán.”
+Mientras exista la tierra, nunca dejará de haber siembra y cosecha, frío y calor, verano e invierno, día y noche.”

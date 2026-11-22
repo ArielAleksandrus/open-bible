@@ -3,20 +3,20 @@
 ## Sofonías 3:1
 
 > ¡Ay de la ciudad rebelde y contaminada,  
->  La ciudad opresora!
+>  la ciudad opresora!
 
 ## Sofonías 3:2
 
 > No escuchó la voz,  
->  No aceptó la corrección.  
+>  no aceptó la corrección.  
 >  No confió en el Señor,  
->  No se acercó a su Dios.
+>  no se acercó a su Dios.
 
 ## Sofonías 3:3
 
 > Sus oficiales en medio de ella son leones rugientes,  
 >  Sus jueces son lobos al anochecer;  
->  No dejan nada para la mañana.
+>  no dejan nada para la mañana.
 
 ## Sofonías 3:4
 
@@ -27,9 +27,9 @@
 ## Sofonías 3:5
 
 > El Señor es justo en medio de ella;  
->  No hará injusticia.  
+>  no hará injusticia.  
 >  Cada mañana saca a luz su justicia;  
->  No falla.  
+>  no falla.  
 >  Pero el injusto no conoce la vergüenza.
 
 ---
@@ -39,9 +39,9 @@
 > “He eliminado naciones;  
 >  Sus torres de esquina están abandonadas.  
 >  He devastado sus calles,  
->  Sin que nadie pase por ellas;  
+>  sin que nadie pase por ellas;  
 >  Sus ciudades están en ruinas,  
->  Sin persona, sin habitante.
+>  sin persona, sin habitante.
 
 ## Sofonías 3:7
 
@@ -57,17 +57,17 @@
 >  “Para el día en que me levante como testigo.  
 >  En verdad, mi decisión es reunir naciones,  
 >  Congregarlas,  
->  Para derramar sobre ellas mi indignación,  
->  Todo el ardor de mi ira;  
->  Porque toda la tierra será consumida Por el fuego de mi celo.
+>  para derramar sobre ellas mi indignación,  
+>  todo el ardor de mi ira;  
+>  porque toda la tierra será consumida Por el fuego de mi celo.
 
 ---
 
 ## Sofonías 3:9
 
 > Entonces daré a los pueblos Un lenguaje puro,  
->  Para que todos invoquen el nombre del Señor,  
->  Para servirle de común acuerdo.
+>  para que todos invoquen el nombre del Señor,  
+>  para servirle de común acuerdo.
 
 ## Sofonías 3:10
 
@@ -78,24 +78,24 @@
 ## Sofonías 3:11
 
 > En ese día no sentirás vergüenza Por todas tus obras Con las que te rebelaste contra mí;  
->  Porque entonces quitaré de en medio de ti A los que celebran con orgullo,  
->  Y nunca más serás arrogante en mi monte santo.
+>  porque entonces quitaré de en medio de ti A los que celebran con orgullo,  
+>  y nunca más serás arrogante en mi monte santo.
 
 ## Sofonías 3:12
 
 > Pero dejaré en medio de ti Un pueblo humilde y pobre,  
->  Y encontrarán refugio en el nombre del Señor.
+>  y encontrarán refugio en el nombre del Señor.
 
 ## Sofonías 3:13
 
 > El remanente de Israel no hará injusticia Ni dirá mentiras,  
->  Ni se hallará en su boca Lengua engañosa;  
->  Porque pastarán y se echarán Sin que nadie los atemorice.  
+>  ni se hallará en su boca Lengua engañosa;  
+>  porque pastarán y se echarán Sin que nadie los atemorice.  
 > ”
 
 ## Sofonías 3:14
 
-> ¡Canta de gozo, hija de Sión!  
+> ¡Canta de gozo, hija de Sion!  
 >  ¡Grita de triunfo, Israel!  
 >  ¡Regocíjate y exulta con todo tu corazón,  
 >  Hija de Jerusalén!
@@ -105,39 +105,39 @@
 > El Señor ha levantado sus juicios contra ti,  
 >  Ha alejado a tus enemigos.  
 >  El Rey de Israel, el Señor, está en medio de ti;  
->  Ya no temerás el desastre.
+>  ya no temerás el desastre.
 
 ## Sofonías 3:16
 
 > En ese día se dirá a Jerusalén:  
->  “No temas, Sión;  
->  No dejes que tus manos se debiliten.
+>  “No temas, Sion;  
+>  no dejes que tus manos se debiliten.
 
 ## Sofonías 3:17
 
 > El Señor tu Dios está en medio de ti,  
->  Un poderoso guerrero que salva.  
+>  un poderoso guerrero que salva.  
 >  Se regocijará sobre ti con alegría,  
 >  Guardará silencio en su amor,  
->  Se gozará sobre ti con cánticos de júbilo.
+>  se gozará sobre ti con cánticos de júbilo.
 
 ## Sofonías 3:18
 
 > Reuniré a los que se lamentan por las fiestas señaladas —Vinieron de ti,  
->  Sión;  
->  La vergüenza del exilio es una carga para ellos—.
+>  Sion;  
+>  la vergüenza del exilio es una carga para ellos—.
 
 ## Sofonías 3:19
 
 > He aquí, voy a actuar en ese tiempo Contra todos tus opresores;  
 >  Salvaré a los cojos Y recogeré a los dispersos,  
->  Y transformaré su vergüenza en alabanza y renombre En toda la tierra.
+>  y transformaré su vergüenza en alabanza y renombre En toda la tierra.
 
 ## Sofonías 3:20
 
 > En ese tiempo te traeré,  
 >  Incluso en el momento en que te reúna;  
->  En verdad,  
+>  en verdad,  
 >  te haré renombrado y alabado Entre todos los pueblos de la tierra,  
->  Cuando restaure tus fortunas ante tus ojos,”  
+>  cuando restaure tus fortunas ante tus ojos,”  
 >  Dice el Señor.

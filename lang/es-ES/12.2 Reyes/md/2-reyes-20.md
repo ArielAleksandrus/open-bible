@@ -4,7 +4,7 @@
 
 En aquel tiempo, Ezequías cayó gravemente enfermo.  
  E Isaías el profeta, hijo de Amoz, lo visitó y le dijo,  
- “Esto es lo que declara el Señor: ‘Prepara tus asuntos, porque no te recuperarás; morirás y pasarás.’”
+ “Esto es lo que declara el Señor: ‘Prepara tus asuntos, porque no te recuperarás; morirás y no vivirás.’”
 
 ## 2 Reyes 20:2
 
@@ -44,8 +44,8 @@ Ahora, antes de que Isaías hubiera salido del patio central,
 
 ## 2 Reyes 20:7
 
-Entonces Isaías dijo, “Toma una masa de higos.”  
- Y la tomaron y la pusieron sobre la llaga, y él se recuperó.
+Entonces Isaías dijo, “Tomad una masa de higos.  
+” Y la tomaron y la pusieron sobre la llaga, y él se recuperó.
 
 ## 2 Reyes 20:8
 
@@ -83,8 +83,8 @@ Por aquel tiempo, Berodac-baladán, hijo de Baladán, rey de Babilonia,
 ## 2 Reyes 20:13
 
 Y Ezequías los escuchó, y les mostró toda su casa del tesoro —la plata,  
- el oro, el bálsamo, el aceite perfumado, su armadura, y todo lo que se encontraba en sus tesoros.  
- No hubo nada en su casa, ni en todo su reino, que Ezequías no les mostrara—.
+ el oro, el bálsamo, el aceite perfumado, su armadura, y todo lo que se encontraba en sus tesoros—.  
+ No hubo nada en su casa, ni en todo su reino, que Ezequías no les mostrara.
 
 ## 2 Reyes 20:14
 
@@ -119,7 +119,7 @@ Isaías entonces se dirigió a Ezequías,
 
 Entonces Ezequías dijo a Isaías,  
  “La palabra del Señor que has hablado es buena.”  
- Porque pensó, “¿No es bueno si habrá paz y verdad en mis días?”
+ Porque pensó, “¿No es bueno que haya paz y verdad en mis días?”
 
 ---
 

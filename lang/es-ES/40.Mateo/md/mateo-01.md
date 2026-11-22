@@ -10,11 +10,11 @@ Abraham engendró a Isaac, Isaac engendró a Jacob, y Jacob engendró a Judá y 
 
 ## Mateo 1:3
 
-Judá engendró a Fares y a Zera, cuya madre fue Tamar; Fares engendró a Esrom, y Esrom engendró a Aram,
+Judá engendró a Fares y a Zera, cuya madre fue Tamar; Fares engendró a Hezrón, y Hezrón engendró a Ram,
 
 ## Mateo 1:4
 
-Aram engendró a Aminadab, Aminadab engendró a Naasón, y Naasón engendró a Salmón,
+Ram engendró a Aminadab, Aminadab engendró a Naasón, y Naasón engendró a Salmón,
 
 ## Mateo 1:5
 
@@ -26,11 +26,11 @@ e Isaí engendró al rey David. David engendró a Salomón, cuya madre había si
 
 ## Mateo 1:7
 
-Salomón engendró a Roboam, Roboam engendró a Abías, y Abías engendró a Asá,
+Salomón engendró a Roboam, Roboam engendró a Abías, y Abías engendró a Asa,
 
 ## Mateo 1:8
 
-Asá engendró a Josafat, Josafat engendró a Joram, y Joram engendró a Uzías,
+Asa engendró a Josafat, Josafat engendró a Joram, y Joram engendró a Uzías,
 
 ## Mateo 1:9
 
@@ -46,7 +46,7 @@ y Josías engendró a Jeconías y a sus hermanos en el tiempo del destierro a Ba
 
 ## Mateo 1:12
 
-Después del destierro a Babilonia: Jeconías engendró a Salatiel, y Salatiel engendró a Zorobabel,
+Después del destierro a Babilonia: Jeconías engendró a Sealtiel, y Sealtiel engendró a Zorobabel,
 
 ## Mateo 1:13
 
@@ -90,7 +90,7 @@ Todo esto sucedió para que se cumpliera lo que el Señor había hablado por med
 
 ## Mateo 1:23
 
-“He aquí, la joven virgen concebirá y dará a luz un hijo, y lo llamarán Emanuel,” que significa “Dios con nosotros.”
+“Mirad, la virgen quedará embarazada y dará a luz un hijo, y le pondrán por nombre Emanuel,” que significa “Dios con nosotros.”
 
 ## Mateo 1:24
 

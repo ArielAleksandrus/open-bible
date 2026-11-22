@@ -86,7 +86,7 @@ Rabit, y Quisión, y la aldea de Ebez,
 
 ## Josué 19:21
 
-Remet, En Ganim, En Hada, y la aldea de Bet Pazez.
+Remet, en Ganim, en Hada, y la aldea de Bet Pazez.
 
 ## Josué 19:22
 
@@ -102,7 +102,7 @@ La quinta suerte salió para la tribu de Aser conforme a sus familias.
 
 ## Josué 19:25
 
-Su territorio incluía Helcat, Hali, Betén, y Aksaf,
+Su territorio incluía Helcat, Hali, Betén, y Acsaf,
 
 ## Josué 19:26
 
@@ -118,7 +118,7 @@ Llegaba a Ebrón, Rehob, Hamón, y Caná, hasta la Gran Sidón.
 
 ## Josué 19:29
 
-La frontera luego se volvía hacia Ramá y llegaba a la ciudad fortificada de Tiro, se dirigía hacia Hosa, y terminaba en el Mar Mediterráneo en la región de Aksib.
+La frontera luego se volvía hacia Ramá y llegaba a la ciudad fortificada de Tiro, se dirigía hacia Hosa, y terminaba en el Mar Mediterráneo en la región de Aczib.
 
 ## Josué 19:30
 
@@ -202,8 +202,8 @@ Una vez que la tierra se había dividido en sus porciones, los israelitas conced
 
 ## Josué 19:50
 
-como el Señor había mandado. Le dieron la ciudad que pidió —Timnat Sera en la región montañosa de Efraín. Él edificó la ciudad y se estableció allí—.
+como el Señor había mandado. Le dieron la ciudad que pidió —Timnat Sera en la región montañosa de Efraín—. Él edificó la ciudad y se estableció allí.
 
 ## Josué 19:51
 
-Estos son los territorios que Eleazar el sacerdote, Josué hijo de Nun, y los jefes de los clanes tribales de Israel asignaron por suerte en Silo en presencia del Señor a la entrada del tabernáculo de reunión. Así completaron la división de la tierra.
+Estos son los territorios que Eleazar el sacerdote, Josué hijo de Nun, y los jefes de los clanes tribales de Israel asignaron por suerte en Silo en presencia del Señor a la entrada del tienda de reunión. Así completaron la división de la tierra.

@@ -46,7 +46,7 @@ Entonces las aves de rapiña descendieron sobre los cadáveres, pero Abram las a
 
 ## Génesis 15:12
 
-Al ponerse el sol, Abram cayó en un profundo sueño, y un gran y terrible oscuridad cayó sobre él.
+Al ponerse el sol, Abram cayó en un profundo sueño, y una oscuridad grande y terrible cayó sobre él.
 
 ## Génesis 15:13
 

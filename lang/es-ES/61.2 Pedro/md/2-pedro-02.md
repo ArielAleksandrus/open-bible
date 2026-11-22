@@ -2,11 +2,11 @@
 
 ## 2 Pedro 2:1
 
-Sin embargo, surgieron falsos profetas entre el pueblo, así como habrá falsos maestros entre vosotros, que introducirán encubiertamente enseñanzas dañinas, incluso negando al Maestro que los redimió, llevándolos a su rápida ruina.
+Sin embargo, surgieron falsos profetas entre el pueblo, así como habrá falsos maestros entre vosotros, que introducirán encubiertamente enseñanzas dañinas, incluso negando al Soberano que los redimió, llevándolos a su rápida ruina.
 
 ## 2 Pedro 2:2
 
-Muchos seguirán su comportamiento indecente, y por causa de ellos el camino de la verdad será maldecido;
+Muchos seguirán su comportamiento indecente, y por causa de ellos el camino de la verdad será difamado;
 
 ## 2 Pedro 2:3
 
@@ -86,10 +86,10 @@ Porque sería preferible para ellos no haber conocido el camino de la justicia, 
 
 ## 2 Pedro 2:22
 
-Esto se muestra por el verdadero proverbio:
+A ellos les pasa lo que dice este proverbio tan cierto:
 
->  “El perro vuelve a su propio vómito,”
+>  “El perro vuelve a su vómito”
 
- y,
+,
 
->  “La cerda, después de lavarse, vuelve a revolcarse en el lodo.”
+>  y también: “La cerda recién lavada vuelve a revolcarse en el barro.”

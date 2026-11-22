@@ -46,7 +46,7 @@ El Señor habló a Moisés, diciendo:
 
 ## Levítico 23:12
 
-El día que meciereis la gavilla, ofreceréis un cordero macho de un año sin defecto como holocausto al Señor,
+El día que mezáis la gavilla, ofreceréis un cordero macho de un año sin defecto como holocausto al Señor,
 
 ## Levítico 23:13
 
@@ -62,7 +62,7 @@ Desde el día siguiente al sábado, el día en que llevasteis la gavilla de la o
 
 ## Levítico 23:16
 
-Contaréis cincuenta días hasta el día siguiente al séptimo sábado, y entonces presentaréis una ofrenda de grano nuevo al Señor.
+Contaréis cincuenta días hasta el día siguiente al séptimo sábado, y entonces presentaréis una ofrenda de cereal nuevo al Señor.
 
 ## Levítico 23:17
 
@@ -74,7 +74,7 @@ Con este pan, presentaréis siete corderos machos, cada uno de un año y sin def
 
 ## Levítico 23:19
 
-Entonces sacrificaréis un macho cabrío como ofrenda por el pecado y dos corderos machos, cada uno de un año, como ofrenda de comunión.
+Entonces sacrificaréis un macho cabrío como ofrenda por el pecado y dos corderos machos, cada uno de un año, como ofrenda de paz.
 
 ## Levítico 23:20
 

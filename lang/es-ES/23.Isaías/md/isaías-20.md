@@ -16,4 +16,4 @@ así el rey de Asiria llevará a los cautivos de Egipto y a los desterrados de C
 Aquellos que pusieron su confianza en Cus y se jactaron de Egipto estarán desalentados y avergonzados.
 
 ## Isaías 20:6
-En ese día, los habitantes de esta costa dirán: ‘¡Miren lo que ha sucedido a aquellos en quienes confiábamos, aquellos a quienes huimos en busca de ayuda y liberación del rey de Asiria! ¿Cómo entonces escaparemos?’”
+En ese día, los habitantes de esta costa dirán: ‘¡Mirad lo que ha sucedido a aquellos en quienes confiábamos, aquellos a quienes huimos en busca de ayuda y liberación del rey de Asiria! ¿Cómo entonces escaparemos?’”

@@ -13,7 +13,7 @@ Quizás escuchen y cada persona se aparte de su mal camino. Entonces me arrepent
 Diles: ‘Esto es lo que declara el Señor: Si no me escucháis y seguís mi ley, que he puesto delante de vosotros,
 
 ## Jeremías 26:5
-y si no prestáis atención a las palabras de mis siervos los profetas, que os he enviado persistentemente, aunque no habéis escuchado,
+y si no prestáis atención a las palabras de mis siervos los profetas, que os he enviado una y otra vez, aunque no habéis escuchado,
 
 ## Jeremías 26:6
 entonces haré que esta casa sea como Silo, y esta ciudad se convertirá en una maldición entre todas las naciones de la tierra.’”
@@ -52,7 +52,7 @@ Entonces los oficiales y todo el pueblo dijeron a los sacerdotes y a los profeta
 Algunos de los ancianos del país se levantaron y se dirigieron a toda la asamblea del pueblo,
 
 ## Jeremías 26:18
-“Miqueas de Moreset profetizó en los días de Ezequías, rey de Judá. Declaró a todo el pueblo de Judá: ‘Esto es lo que dice el Señor de los Ejércitos: “‘Sion será arada como un campo, Jerusalén se convertirá en un montón de ruinas, y el monte del templo en un matorral de árboles.’
+“Miqueas de Moreset profetizó en los días de Ezequías, rey de Judá. Declaró a todo el pueblo de Judá: ‘Esto es lo que dice el Señor de los ejércitos: “Sion será arada como un campo, Jerusalén se convertirá en un montón de ruinas, y el monte del templo en un matorral de árboles.”’
 
 ## Jeremías 26:19
 ¿Acaso Ezequías, rey de Judá, o alguien en Judá lo mató? ¿No temió Ezequías al Señor y buscó su favor? ¿Y no se arrepintió el Señor del desastre que había pronunciado contra ellos? ¡Estamos a punto de traer un gran mal sobre nosotros mismos!”

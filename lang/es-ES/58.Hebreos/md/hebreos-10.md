@@ -2,64 +2,64 @@
 
 ## Hebreos 10:1
 
-Porque la ley, teniendo solo una sombra de los bienes venideros y no la forma misma de las cosas, nunca puede, por los mismos sacrificios que se ofrecen continuamente año tras año, perfeccionar a los que se acercan para adorar.
+Porque la ley es solo una sombra de los bienes que habían de venir, y no la realidad misma; por eso nunca puede hacer perfectos a los que se acercan a adorar, por medio de los mismos sacrificios que se ofrecen sin parar año tras año.
 
 ## Hebreos 10:2
 
-De otro modo, ¿no habrían cesado de ofrecerse? Porque los adoradores, habiendo sido purificados de una vez por todas, ya no tendrían conciencia de pecados.
+Si pudiera, ¿no se habría dejado ya de ofrecer sacrificios? Porque los que adoran, una vez purificados del todo, ya no se sentirían culpables de sus pecados.
 
 ## Hebreos 10:3
 
-Pero en esos sacrificios hay un recordatorio anual de pecados.
+Pero lo que pasa es que esos sacrificios sirven para recordar los pecados cada año.
 
 ## Hebreos 10:4
 
-Porque la sangre de toros y machos cabríos no puede quitar los pecados.
+Porque la sangre de los toros y de los machos cabríos no puede borrar los pecados.
 
 ## Hebreos 10:5
 
-Así que, cuando Cristo entró en el mundo, declaró:
+Por eso, cuando Cristo vino al mundo, dijo:
 
->  “Sacrificio y ofrenda no quisiste,
->  pero un cuerpo me preparaste;
+>  “No quisiste sacrificios ni ofrendas,
+>  sino que me preparaste un cuerpo;
 
 ## Hebreos 10:6
 
-con holocaustos y sacrificios por el pecado no te complaciste.
+no te agradaron los holocaustos ni los sacrificios por el pecado.
 
 ## Hebreos 10:7
 
-> Entonces dije: ‘He aquí,
->  he venido —está escrito de mí en el rollo del libro— para hacer tu voluntad,
->  oh Dios.’”
+> Entonces dije: ‘Aquí estoy,
+>  oh Dios, he venido para hacer tu voluntad, como está escrito de mí en el libro.
+> ’”
 
 ## Hebreos 10:8
 
-Después de decir arriba: “Sacrificios y ofrendas, holocaustos y sacrificios por el pecado no quisiste, ni te complacieron” —aunque se ofrecían según la ley—
+Primero dice: “No quisiste sacrificios ni ofrendas, ni holocaustos ni sacrificios por el pecado, y no te agradaron” —a pesar de que la ley mandaba ofrecerlos—,
 
 ## Hebreos 10:9
 
-entonces dijo: “He aquí, he venido para hacer tu voluntad.” Quita lo primero para establecer lo segundo.
+y luego añade: “Aquí estoy, he venido para hacer tu voluntad.” Así deja sin efecto lo primero para establecer lo segundo.
 
 ## Hebreos 10:10
 
-Y por esa voluntad, hemos sido hechos santos mediante la ofrenda del cuerpo de Jesucristo una vez para siempre.
+Y por esa voluntad de Dios hemos sido hechos santos, gracias a que Jesucristo ofreció su cuerpo una sola vez y para siempre.
 
 ## Hebreos 10:11
 
-Día tras día todo sacerdote está de pie y realiza sus deberes religiosos; repetidamente ofrece los mismos sacrificios, que nunca pueden quitar los pecados.
+Todos los sacerdotes están de pie un día tras otro cumpliendo con su servicio, y ofrecen una y otra vez los mismos sacrificios, que nunca pueden quitar los pecados.
 
 ## Hebreos 10:12
 
-Pero este sacerdote, habiendo ofrecido un sacrificio por los pecados para siempre, se sentó a la diestra de Dios,
+Pero este sacerdote ofreció un solo sacrificio por los pecados, válido para siempre, y se sentó a la derecha de Dios,
 
 ## Hebreos 10:13
 
-esperando el tiempo en que sus enemigos sean puestos por estrado de sus pies.
+y espera desde entonces a que sus enemigos sean puestos como estrado de sus pies.
 
 ## Hebreos 10:14
 
-Porque con una sola ofrenda ha perfeccionado para siempre a los que están siendo santificados.
+Porque con una sola ofrenda ha hecho perfectos para siempre a los que va haciendo santos.
 
 ## Hebreos 10:15
 
@@ -74,58 +74,58 @@ El Espíritu Santo también nos da testimonio acerca de esto. Primero dice:
 
 ## Hebreos 10:17
 
-Luego continúa:
+Y después añade:
 
->  “Y nunca más me acordaré de sus pecados y transgresiones.
+>  “Nunca más me acordaré de sus pecados ni de sus maldades.
 > ”
 
 ## Hebreos 10:18
 
-Ahora bien, donde hay perdón de estos, ya no hay más ofrenda por el pecado.
+Pues bien, cuando los pecados ya han sido perdonados, no hace falta ofrecer más sacrificios por ellos.
 
 ## Hebreos 10:19
 
-Por lo tanto, queridos amigos, ya que tenemos confianza para entrar en el Lugar Santísimo por la sangre de Jesús,
+Por eso, queridos amigos, ya que gracias a la sangre de Jesús podemos entrar con confianza en el Lugar Santísimo,
 
 ## Hebreos 10:20
 
-por un camino nuevo y vivo que él nos abrió a través del velo, es decir, su carne,
+por el camino nuevo y lleno de vida que Él nos abrió a través de la cortina, es decir, de su propio cuerpo,
 
 ## Hebreos 10:21
 
-y tenemos un gran sacerdote sobre la casa de Dios,
+y ya que tenemos un gran sumo sacerdote al frente de la casa de Dios,
 
 ## Hebreos 10:22
 
-acerquémonos a Dios con un corazón sincero y con la plena seguridad de la fe, teniendo nuestros corazones rociados para limpiarnos de una mala conciencia y nuestros cuerpos lavados con agua pura.
+acerquémonos a Dios con un corazón sincero y con la total seguridad que da la fe, con el corazón limpio de una mala conciencia y con el cuerpo lavado con agua pura.
 
 ## Hebreos 10:23
 
-Mantengamos firme la confesión de nuestra esperanza sin vacilar, porque fiel es el que prometió.
+Sigamos firmes, sin dudar, en la esperanza que confesamos, porque el que hizo la promesa es fiel.
 
 ## Hebreos 10:24
 
-Y consideremos cómo estimularnos unos a otros al amor y a las buenas obras,
+Pensemos en cómo animarnos unos a otros a amar y a hacer el bien,
 
 ## Hebreos 10:25
 
-no dejando de congregarnos, como algunos tienen por costumbre, sino animándonos unos a otros, y tanto más cuanto veis que aquel Día se acerca.
+y no dejemos de reunirnos, como algunos tienen la costumbre de hacer; al contrario, animémonos unos a otros, y más aún ahora que veis que se acerca el Día.
 
 ## Hebreos 10:26
 
-Porque si continuamos pecando deliberadamente después de haber recibido el conocimiento de la verdad, ya no queda sacrificio por los pecados,
+Porque si seguimos pecando a propósito después de haber conocido la verdad, ya no queda ningún sacrificio por los pecados,
 
 ## Hebreos 10:27
 
-sino solo una terrible expectativa de juicio y de un fuego ardiente que consumirá a los adversarios.
+sino solo la terrible espera del juicio y de un fuego ardiente que acabará con los enemigos de Dios.
 
 ## Hebreos 10:28
 
-Cualquiera que despreció la ley de Moisés murió sin misericordia por el testimonio de dos o tres testigos.
+Cualquiera que no hacía caso de la ley de Moisés era condenado a muerte sin compasión si lo declaraban dos o tres testigos.
 
 ## Hebreos 10:29
 
-¿Cuánto más severamente pensáis que merece ser castigado el que ha pisoteado al Hijo de Dios, considerado como profana la sangre del pacto que lo santificó, y ultrajado al Espíritu de gracia?
+¿Cuánto más duro pensáis que será el castigo del que ha pisoteado al Hijo de Dios, ha tratado como algo sin valor la sangre del pacto con la que fue hecho santo y ha ofendido al Espíritu que da la gracia?
 
 ## Hebreos 10:30
 
@@ -153,16 +153,16 @@ Por lo tanto, no desechéis vuestra confianza, que será recompensada ricamente.
 
 ## Hebreos 10:36
 
-Porque necesitáis perseverar para que, cuando hayáis hecho la voluntad de Dios, recibáis lo que él ha prometido.
+Necesitáis ser constantes para que, después de haber hecho la voluntad de Dios, recibáis lo que Él ha prometido.
 
 ## Hebreos 10:37
 
-Porque en muy poco tiempo, el que ha de venir vendrá y no tardará.
+Porque dentro de muy poco, el que tiene que venir llegará y no se retrasará.
 
 ## Hebreos 10:38
 
-Pero mi justo vivirá por la fe. Y no me complace el que retrocede.
+Pero mi justo vivirá por la fe. Y si se echa atrás, no estaré contento con él.
 
 ## Hebreos 10:39
 
-Pero nosotros no somos de los que retroceden y son destruidos, sino de los que tienen fe y preservan sus almas.
+Pero nosotros no somos de los que se echan atrás y acaban perdiéndose, sino de los que tienen fe y salvan su vida.

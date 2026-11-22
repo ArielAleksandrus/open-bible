@@ -2,7 +2,7 @@
 
 ## 2 Timoteo 4:1
 
-Te insto solemnemente delante de Dios y de Cristo Jesús, que juzgará a los vivos y a los muertos, por su manifestación y por su reino:
+Delante de Dios y de Cristo Jesús, que juzgará a los vivos y a los muertos, y por su venida y su reino, te pido con toda insistencia:
 
 ## 2 Timoteo 4:2
 
@@ -14,7 +14,7 @@ Porque vendrá el tiempo cuando no aceptarán la sana doctrina; sino que, tenien
 
 ## 2 Timoteo 4:4
 
-y se apartarán de escuchar la verdad y se desviarán hacia mitos.
+dejarán de escuchar la verdad y se irán detrás de los mitos.
 
 ## 2 Timoteo 4:5
 
@@ -22,7 +22,7 @@ Pero en cuanto a ti, ejerce autocontrol en todas las cosas, soporta aflicciones,
 
 ## 2 Timoteo 4:6
 
-Porque ya estoy siendo ofrecido, y el tiempo de mi partida está cerca.
+Porque mi vida ya se está ofreciendo en sacrificio, y se acerca el momento de mi partida.
 
 ## 2 Timoteo 4:7
 
@@ -30,7 +30,7 @@ He peleado la buena batalla, he completado la carrera, he mantenido la fe;
 
 ## 2 Timoteo 4:8
 
-En el futuro, está reservada para mí la corona de justicia, que el Señor, el justo Juez, me otorgará en aquel día; y no solo a mí, sino también a todos los que han anhelado su manifestación.
+Ahora me espera la corona de la justicia, que el Señor, el Juez justo, me dará en aquel día; y no solo a mí, sino también a todos los que han deseado con ansias su venida.
 
 ## 2 Timoteo 4:9
 
@@ -38,11 +38,11 @@ Haz todo lo posible por visitarme pronto;
 
 ## 2 Timoteo 4:10
 
-porque Demas, habiendo amado este mundo presente, me ha dejado y se ha ido a Tesalónica; Crescente se ha ido a Galacia, Tito a Dalmacia.
+porque Demas, por amor a este mundo, me ha abandonado y se ha ido a Tesalónica; Crescente se ha ido a Galacia, y Tito a Dalmacia.
 
 ## 2 Timoteo 4:11
 
-Solo Lucas está conmigo. Toma a Marcos y tráelo contigo, porque me es útil en mi trabajo.
+Solo Lucas está conmigo. Busca a Marcos y tráelo contigo, porque me ayuda mucho en mi trabajo.
 
 ## 2 Timoteo 4:12
 
@@ -50,11 +50,11 @@ Pero he enviado a Tíquico a Éfeso.
 
 ## 2 Timoteo 4:13
 
-Cuando vengas, trae la capa que dejé en Troas con Carpo, y los libros, especialmente los pergaminos.
+Cuando vengas, tráeme la capa que dejé en Troas, en casa de Carpo, y también los libros, sobre todo los pergaminos.
 
 ## 2 Timoteo 4:14
 
-Alejandro el herrero me causó mucho daño; el Señor le pagará conforme a sus acciones.
+Alejandro, el que trabaja el cobre, me ha hecho mucho daño; el Señor le dará su merecido por lo que ha hecho.
 
 ## 2 Timoteo 4:15
 
@@ -62,27 +62,27 @@ Ten cuidado con él tú también, porque se opuso fuertemente a nuestro mensaje.
 
 ## 2 Timoteo 4:16
 
-En mi primera defensa nadie me apoyó, sino que todos me abandonaron; que no se les tenga en cuenta.
+La primera vez que tuve que defenderme ante el tribunal, nadie me apoyó; todos me abandonaron. Que no se les tenga en cuenta.
 
 ## 2 Timoteo 4:17
 
-Pero el Señor estuvo a mi lado y me dio fuerzas, para que por medio de mí el mensaje fuera plenamente proclamado, y todos los gentiles lo oyeran; y fui librado de la boca del león.
+Pero el Señor se puso a mi lado y me dio fuerzas, para que por medio de mí el mensaje se anunciara por completo y lo oyeran todos los gentiles; y así me libré de la boca del león.
 
 ## 2 Timoteo 4:18
 
-El Señor me librará de toda obra mala, y me llevará a salvo a su reino celestial; a Él sea la gloria por los siglos de los siglos. Amén.
+El Señor me librará de toda acción malvada y me llevará sano y salvo a su reino celestial. ¡A Él sea la gloria por siempre jamás! Amén.
 
 ## 2 Timoteo 4:19
 
-Extiende saludos a Priscila y Aquila, y a la casa de Onesíforo.
+Saluda a Priscila y a Aquila, y a la casa de Onesíforo.
 
 ## 2 Timoteo 4:20
 
-Erasto se quedó en Corinto, pero dejé a Trófimo enfermo en Mileto.
+Erasto se quedó en Corinto, y a Trófimo lo dejé enfermo en Mileto.
 
 ## 2 Timoteo 4:21
 
-Haz todo lo posible por venir antes del invierno. Eubulo te saluda, así como Pudente, Lino, Claudia, y todos los hermanos y hermanas.
+Haz todo lo posible por venir antes del invierno. Te mandan saludos Eubulo, Pudente, Lino, Claudia y todos los hermanos y hermanas.
 
 ## 2 Timoteo 4:22
 

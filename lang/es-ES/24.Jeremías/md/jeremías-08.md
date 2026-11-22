@@ -10,7 +10,7 @@ Serán esparcidos ante el sol, la luna y todas las estrellas del cielo, a las qu
 
 ## Jeremías 8:3
 
-Y se elegirá la muerte sobre la vida por todo el resto que quede de esta nación malvada, dondequiera que los haya expulsado,” declara el Señor de los Ejércitos.
+Y todo el resto que quede de esta nación malvada preferirá la muerte a la vida, dondequiera que los haya expulsado,” declara el Señor de los ejércitos.
 
 ---
 
@@ -20,7 +20,7 @@ Y se elegirá la muerte sobre la vida por todo el resto que quede de esta nació
 
 ## Jeremías 8:5
 
-¿Por qué entonces este pueblo, Jerusalén, se ha desviado en un retroceso perpetuo? Se aferran al engaño, se niegan a regresar.
+¿Por qué entonces este pueblo, Jerusalén, se ha desviado en una apostasía perpetua? Se aferran al engaño, se niegan a regresar.
 
 ## Jeremías 8:6
 
@@ -28,7 +28,7 @@ He escuchado atentamente, pero no hablan lo que es correcto. Nadie se arrepiente
 
 ## Jeremías 8:7
 
-Incluso la cigüeña en el cielo conoce sus tiempos señalados, y la tórtola, el vencejo y la grulla observan el tiempo de su migración. Pero mi pueblo no conoce los requisitos del Señor.
+Incluso la cigüeña en el cielo conoce sus tiempos señalados, y la tórtola, el vencejo y la grulla observan el tiempo de su migración. Pero mi pueblo no conoce lo que el Señor exige.
 
 ## Jeremías 8:8
 

@@ -62,7 +62,7 @@ Faraón dijo a José: “He tenido un sueño, y nadie puede interpretarlo. Pero 
 
 ## Génesis 41:16
 
-José respondió a Faraón: “No está en mí; Dios dará a Faraón una respuesta de paz.”
+José respondió a Faraón: “No depende de mí; Dios dará a Faraón una respuesta de paz.”
 
 ## Génesis 41:17
 
@@ -130,7 +130,7 @@ La razón por la que el sueño fue dado a Faraón en dos formas es que el asunto
 
 ## Génesis 41:33
 
-Ahora que Faraón busque un hombre discernido y sabio y lo ponga a cargo de la tierra de Egipto.
+Ahora que Faraón busque un hombre inteligente y sabio y lo ponga a cargo de la tierra de Egipto.
 
 ## Génesis 41:34
 
@@ -218,7 +218,7 @@ y comenzaron los siete años de hambre, tal como José había predicho. Hubo ham
 
 ## Génesis 41:55
 
-Cuando todo Egipto comenzó a sentir el hambre, el pueblo clamó a Faraón por comida. Entonces Faraón instruyó a todos los egipcios: “Vayan a José y hagan lo que él les diga.”
+Cuando todo Egipto comenzó a sentir el hambre, el pueblo clamó a Faraón por comida. Entonces Faraón instruyó a todos los egipcios: “Id a José y haced lo que él os diga.”
 
 ## Génesis 41:56
 

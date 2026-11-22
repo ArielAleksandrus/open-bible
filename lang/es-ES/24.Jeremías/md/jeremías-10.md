@@ -62,7 +62,7 @@ Son inútiles, objetos de burla; en el tiempo de su castigo, perecerán.
 
 ## Jeremías 10:16
 
-La Porción de Jacob no es como estos; porque él es el Hacedor de todas las cosas, e Israel es la tribu de su herencia; el Señor de los Ejércitos es su nombre.
+La Porción de Jacob no es como estos; porque él es el Hacedor de todas las cosas, e Israel es la tribu de su herencia; el Señor de los ejércitos es su nombre.
 
 ## Jeremías 10:17
 
@@ -86,7 +86,7 @@ Los pastores son insensatos y no han buscado al Señor; por lo tanto, no prosper
 
 ## Jeremías 10:22
 
-¡Escuchad! Un informe está llegando —¡un gran alboroto desde la tierra del norte! Hará que las ciudades de Judá queden desoladas, un refugio de chacales—.
+¡Escuchad! Llega una noticia: ¡un gran alboroto desde la tierra del norte! Hará que las ciudades de Judá queden desoladas, guarida de chacales.
 
 ## Jeremías 10:23
 
@@ -94,7 +94,7 @@ Entiendo, Señor, que el camino de una persona no está bajo su propio control, 
 
 ## Jeremías 10:24
 
-Disciplíname, Señor, pero con justicia; no en tu ira, o seré disminuido.
+Disciplíname, Señor, pero con justicia; no en tu ira, o me reducirás a nada.
 
 ## Jeremías 10:25
 

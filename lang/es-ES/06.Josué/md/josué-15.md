@@ -60,7 +60,7 @@ Caleb expulsó de allí a los tres hijos de Anac: Sesai, Ahimán y Talmai, los d
 
 ## Josué 15:15
 
-De allí subió contra los habitantes de Debir (anteriormente conocido como Quiriat-sefer).
+De allí subió contra los habitantes de Debir (anteriormente conocida como Quiriat-sefer).
 
 ## Josué 15:16
 
@@ -90,7 +90,7 @@ Las ciudades más al sur y sus aldeas de la tribu de Judá en el Néguev hacia e
 
 ## Josué 15:22
 
-Kinah, Dimonah y la aldea de Adadah,
+Cina, Dimona y la aldea de Adada,
 
 ## Josué 15:23
 
@@ -140,7 +140,7 @@ En la Sefelá: Estaol, Zora y la aldea de Asná,
 
 ## Josué 15:34
 
-Zanoa, En-ganim, Tapúa y la aldea de Enam,
+Zanoa, en-ganim, Tapúa y la aldea de Enam,
 
 ## Josué 15:35
 
@@ -176,7 +176,7 @@ Gederot, Bet-dagón, Naama y Maqueda —dieciséis ciudades junto con sus aldeas
 
 ## Josué 15:42
 
-Libná, Eter y la aldea de Asán,
+Libna, Eter y la aldea de Asán,
 
 ## Josué 15:43
 

@@ -136,15 +136,15 @@ Porque no trae aflicción o dolor de buena gana a los hijos de los hombres.
 
 ## Lamentaciones 3:34
 
-A aplastar bajo los pies a todos los prisioneros de la tierra,
+Aplastar bajo los pies a todos los prisioneros de la tierra,
 
 ## Lamentaciones 3:35
 
-A negar a una persona justicia ante el Altísimo,
+Negar a una persona justicia ante el Altísimo,
 
 ## Lamentaciones 3:36
 
-A defraudar a alguien en su pleito —estas cosas el Señor no aprueba—.
+Defraudar a alguien en su pleito: estas cosas el Señor no las aprueba.
 
 ## Lamentaciones 3:37
 
@@ -208,7 +208,7 @@ Lo que veo trae dolor a mi alma por todas las hijas de mi ciudad.
 
 ## Lamentaciones 3:52
 
-Aquellos que eran mis enemigos sin causa me persiguieron como un pájaro.
+Aquellos que eran mis enemigos sin causa me cazaron como a un pájaro.
 
 ## Lamentaciones 3:53
 
@@ -216,7 +216,7 @@ Intentaron acabar con mi vida en un pozo y me lanzaron piedras;
 
 ## Lamentaciones 3:54
 
-Las aguas cerraron sobre mi cabeza, y pensé que estaba cortado.
+Las aguas cerraron sobre mi cabeza, y pensé que estaba perdido.
 
 ## Lamentaciones 3:55
 
@@ -252,7 +252,7 @@ Los labios de mis agresores y sus susurros están contra mí todo el día.
 
 ## Lamentaciones 3:63
 
-Observa su sentarse y levantarse; soy su canción de burla.
+Míralos cuando se sientan y cuando se levantan; soy su canción de burla.
 
 ## Lamentaciones 3:64
 

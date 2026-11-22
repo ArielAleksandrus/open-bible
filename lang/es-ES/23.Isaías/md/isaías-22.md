@@ -2,15 +2,15 @@
 
 ## Isaías 22:1
 
-Una proclamación sobre el Valle de la Visión: ¿Qué te preocupa ahora, que todos habéis subido a las azoteas?
+Una proclamación sobre el Valle de la Visión: ¿Qué te ocurre ahora, que todos tus habitantes han subido a las azoteas?
 
 ## Isaías 22:2
 
-Ciudad llena de ruido, ciudad tumultuosa, ciudad de júbilo. Tus muertos no fueron muertos a espada, ni perecieron en batalla.
+Ciudad llena de ruido, ciudad tumultuosa, ciudad de júbilo. Tus muertos no cayeron a espada, ni perecieron en batalla.
 
 ## Isaías 22:3
 
-Todos tus líderes han huido juntos; han sido capturados sin el uso del arco. Todos los que fueron descubiertos fueron llevados cautivos juntos, aunque habíais huido lejos.
+Todos tus líderes han huido juntos; han sido capturados sin el uso del arco. Todos los tuyos que fueron hallados fueron llevados cautivos juntos, aunque habían huido lejos.
 
 ## Isaías 22:4
 
@@ -46,7 +46,7 @@ Construisteis un depósito entre los dos muros para las aguas del Estanque Viejo
 
 ## Isaías 22:12
 
-En ese día, el Señor, el Dios de los ejércitos, os llamó a llorar, a lamentarse, a raparos la cabeza y a vestir de cilicio.
+En ese día, el Señor, el Dios de los ejércitos, os llamó a llorar, a lamentaros, a raparos la cabeza y a vestir de cilicio.
 
 ## Isaías 22:13
 
@@ -66,7 +66,7 @@ Esto es lo que dice el Señor, el Dios de los ejércitos: “Ve, acércate a est
 
 ## Isaías 22:17
 
-He aquí, el Señor está a punto de lanzarte violentamente, hombre fuerte. Está a punto de agarrarte firmemente
+Mira, hombre fuerte: el Señor está a punto de arrojarte lejos con violencia. Está a punto de agarrarte con fuerza
 
 ## Isaías 22:18
 

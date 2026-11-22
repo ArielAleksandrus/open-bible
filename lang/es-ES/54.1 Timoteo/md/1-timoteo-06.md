@@ -10,23 +10,23 @@ Aquellos que tienen creyentes como sus amos no deben faltarles al respeto porque
 
 ## 1 Timoteo 6:3
 
-Si alguien promueve una doctrina diferente y no está de acuerdo con las sanas palabras, las de nuestro Señor Jesucristo, y con la doctrina que se alinea con la piedad,
+Si alguien enseña algo diferente y no está de acuerdo con las palabras sanas de nuestro Señor Jesucristo ni con la enseñanza que lleva a vivir como Dios quiere,
 
 ## 1 Timoteo 6:4
 
-está envanecido y no entiende nada; sino que tiene un deseo insano de cuestiones controvertidas y disputas sobre palabras, de las cuales provienen envidia, contienda, lenguaje abusivo, malas sospechas,
+es un orgulloso que no entiende nada; lo que tiene es una obsesión enfermiza por las discusiones y las peleas sobre palabras, de donde salen envidias, peleas, insultos, malas sospechas,
 
 ## 1 Timoteo 6:5
 
-y fricción constante entre personas de mente corrupta y privadas de la verdad, que piensan que la piedad es un medio para obtener ganancia.
+y roces constantes entre personas de mente corrompida que han perdido la verdad y creen que vivir como Dios quiere es una forma de sacar ganancias.
 
 ## 1 Timoteo 6:6
 
-Pero la piedad en verdad es una fuente de gran ganancia cuando va acompañada de contentamiento.
+Pero vivir como Dios quiere es de verdad una gran ganancia, cuando uno está contento con lo que tiene.
 
 ## 1 Timoteo 6:7
 
-Porque no hemos traído nada al mundo, así que no podemos llevarnos nada de él.
+Porque no trajimos nada a este mundo, y tampoco podremos llevarnos nada de él.
 
 ## 1 Timoteo 6:8
 
@@ -34,39 +34,39 @@ Si tenemos comida y ropa, con esto estaremos contentos.
 
 ## 1 Timoteo 6:9
 
-Pero aquellos que desean ser ricos caen en tentación y en un lazo, y en muchos deseos insensatos y dañinos que hunden a las personas en ruina y destrucción.
+Pero los que quieren hacerse ricos caen en la tentación y en una trampa, y en muchos deseos tontos y dañinos que hunden a las personas en la ruina y la destrucción.
 
 ## 1 Timoteo 6:10
 
-Porque el amor al dinero es raíz de toda clase de males, y algunos por anhelarlo se han desviado de la fe y se han traspasado a sí mismos con muchos dolores.
+Porque el amor al dinero es la raíz de toda clase de males, y algunos, por desearlo tanto, se han alejado de la fe y se han causado a sí mismos muchos sufrimientos.
 
 ## 1 Timoteo 6:11
 
-Pero evita estas cosas, tú hombre de Dios, y sigue la justicia, la piedad, la fe, el amor, la perseverancia y la mansedumbre.
+Pero tú, que eres un hombre de Dios, apártate de todo eso y busca la justicia, una vida que agrade a Dios, la fe, el amor, la constancia y la amabilidad.
 
 ## 1 Timoteo 6:12
 
-Lucha en la noble lucha de la fe; abraza la vida eterna a la que fuiste llamado, y por la cual hiciste la buena confesión en presencia de muchos testigos.
+Lucha la noble lucha de la fe; aférrate a la vida eterna, a la que Dios te llamó y por la que hiciste una buena declaración de fe delante de muchos testigos.
 
 ## 1 Timoteo 6:13
 
-Te encargo en la presencia de Dios, que da vida a todas las cosas, y de Cristo Jesús, que hizo la buena confesión ante Poncio Pilato,
+Delante de Dios, que da vida a todo lo que existe, y de Cristo Jesús, que dio un buen testimonio ante Poncio Pilato, te ordeno
 
 ## 1 Timoteo 6:14
 
-que guardes el mandamiento sin mancha ni reproche hasta la aparición de nuestro Señor Jesucristo,
+que cumplas este mandato de forma intachable y sin que nadie pueda reprocharte nada, hasta que aparezca nuestro Señor Jesucristo,
 
 ## 1 Timoteo 6:15
 
-la cual Él revelará en el tiempo señalado —Él que es el bendito y único Soberano, el Rey de reyes y Señor de señores,—
+cosa que Dios hará en el momento que Él ha fijado. Él es el bendito y único Soberano, el Rey de reyes y Señor de señores,
 
 ## 1 Timoteo 6:16
 
-que solo posee inmortalidad y habita en luz inaccesible, a quien nadie ha visto ni puede ver. ¡A Él sea el honor y el dominio eterno! Amén.
+el único que no puede morir y que vive en una luz a la que nadie puede acercarse; nadie lo ha visto ni lo puede ver. ¡A Él sea la honra y el poder para siempre! Amén.
 
 ## 1 Timoteo 6:17
 
-Instruye a los ricos en este mundo presente a no ser arrogantes ni a poner su esperanza en la incertidumbre de las riquezas, sino en Dios, que nos provee ricamente de todas las cosas para disfrutar.
+A los que son ricos en este mundo, mándales que no sean orgullosos ni pongan su esperanza en las riquezas, que son tan inseguras, sino en Dios, que nos da con abundancia todo lo que necesitamos para disfrutar.
 
 ## 1 Timoteo 6:18
 
@@ -78,7 +78,7 @@ acumulando para sí mismos el tesoro de un buen fundamento para el futuro, para 
 
 ## 1 Timoteo 6:20
 
-Timoteo, guarda lo que se te ha confiado, evitando la charla mundana y vacía y los argumentos opuestos de lo que falsamente se llama "conocimiento"—
+Timoteo, cuida bien lo que se te ha confiado; aléjate de las charlas mundanas y vacías y de las ideas contrarias de lo que algunos llaman falsamente “conocimiento”,
 
 ## 1 Timoteo 6:21
 

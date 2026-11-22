@@ -30,12 +30,12 @@
 ## Salmo 80:5
 
 > Les has dado el pan de lágrimas,  
->  Y les has hecho beber lágrimas en abundancia.
+>  y les has hecho beber lágrimas en abundancia.
 
 ## Salmo 80:6
 
 > Nos haces motivo de contienda para nuestros vecinos,  
->  Y nuestros enemigos se ríen entre sí.
+>  y nuestros enemigos se ríen entre sí.
 
 ---
 
@@ -59,7 +59,7 @@
 ## Salmo 80:10
 
 > Su sombra cubría las montañas,  
->  Y sus ramas alcanzaban los poderosos cedros.
+>  y sus ramas alcanzaban los poderosos cedros.
 
 ## Salmo 80:11
 
@@ -70,12 +70,12 @@
 ## Salmo 80:12
 
 > ¿Por qué has derribado sus muros,  
->  Para que todos los que pasan por el camino arranquen su fruto?
+>  para que todos los que pasan por el camino arranquen su fruto?
 
 ## Salmo 80:13
 
 > Un jabalí del bosque la devasta,  
->  Y lo que se mueve en el campo se alimenta de ella.
+>  y lo que se mueve en el campo se alimenta de ella.
 
 ## Salmo 80:14
 
@@ -85,7 +85,7 @@
 ## Salmo 80:15
 
 > La raíz que Tu mano derecha ha plantado,  
->  Y el hijo que has criado para Ti.
+>  y el hijo que has criado para Ti.
 
 ---
 
@@ -97,7 +97,7 @@
 ## Salmo 80:17
 
 > Que Tu mano repose sobre el hombre a Tu derecha,  
->  Sobre el hijo de hombre que has fortalecido para Ti.
+>  sobre el hijo de hombre que has fortalecido para Ti.
 
 ## Salmo 80:18
 

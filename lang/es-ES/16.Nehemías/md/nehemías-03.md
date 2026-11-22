@@ -1,7 +1,7 @@
 # Nehemías Capítulo 3
 
 ## Nehemías 3:1
-El sumo sacerdote Eliasib, junto con sus compañeros sacerdotes, comenzó la obra en la Puerta de las Ovejas. La consagraron e instalaron sus puertas. Continuaron la consagración hasta la Torre de los Cien y la Torre de Hananeel.
+El sumo sacerdote Eliasib, junto con sus compañeros sacerdotes, comenzó la obra en la Puerta de las Ovejas. La consagraron e instalaron sus puertas. Continuaron la consagración hasta la Torre de los Cien y la Torre de Hananel.
 
 ## Nehemías 3:2
 Junto a ellos, los hombres de Jericó construyeron la sección adyacente, y Zacur hijo de Imri edificó junto a ellos.
@@ -13,7 +13,7 @@ Los hijos de Senaa reconstruyeron la Puerta del Pescado, colocando sus vigas y l
 Junto a ellos, Meremot hijo de Urías, hijo de Hacoz, emprendió reparaciones. Al lado de él, Mesulam hijo de Berequías, hijo de Mesezabel, hizo reparaciones, con Sadoc hijo de Baana reparando junto a él.
 
 ## Nehemías 3:5
-Los tecoítas repararon la siguiente sección, aunque sus nobles no apoyarían el trabajo de sus supervisores.
+Los tecoítas repararon la siguiente sección, aunque sus nobles no quisieron apoyar el trabajo de sus supervisores.
 
 ## Nehemías 3:6
 Joiada hijo de Paseah y Mesulam hijo de Besodeías repararon la Puerta Vieja, colocando sus vigas e instalando sus puertas, cerrojos y barras.

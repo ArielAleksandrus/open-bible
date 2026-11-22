@@ -118,4 +118,4 @@ Requem, Irpeel y la población de Taralá,
 
 ## Josué 18:28
 
-Zela, Haelef, la ciudad jebusea (es decir, Jerusalén), Guibeá y Quiriat —catorce ciudades con sus aldeas. Esta fue la herencia de la tribu de Benjamín según sus clanes—.
+Zela, Haelef, la ciudad jebusea (es decir, Jerusalén), Guibeá y Quiriat —catorce ciudades con sus aldeas—. Esta fue la herencia de la tribu de Benjamín según sus clanes.

@@ -7,10 +7,10 @@ Estos son los jefes de las familias y los registros genealógicos de aquellos qu
 de la línea de Finees, Gersón; de la línea de Itamar, Daniel; de la línea de David, Hatús;
 
 ## Esdras 8:3
-de los descendientes de Secanías, que era de los descendientes de Parós, Zacarías, y con él estaban listados 150 varones;
+de los descendientes de Secanías, que era de los descendientes de Paros, Zacarías, y con él estaban registrados 150 varones;
 
 ## Esdras 8:4
-de los descendientes de Pahat-Moab, Eliehoenai hijo de Zeraías, y con él 200 varones;
+de los descendientes de Pahat-Moab, Elioenai hijo de Zeraías, y con él 200 varones;
 
 ## Esdras 8:5
 de los descendientes de Zatu, Secanías hijo de Jahaziel, y con él 300 varones;
@@ -28,7 +28,7 @@ de los descendientes de Sefatías, Zebadías hijo de Micael, y con él 80 varone
 de los descendientes de Joab, Abdías hijo de Jehiel, y con él 218 varones;
 
 ## Esdras 8:10
-de los descendientes de Baní, Selomit hijo de Josifías, y con él 160 varones;
+de los descendientes de Bani, Selomit hijo de Josifías, y con él 160 varones;
 
 ## Esdras 8:11
 de los descendientes de Bebai, Zacarías hijo de Bebai, y con él 28 varones;
@@ -58,7 +58,7 @@ Porque la mano bondadosa de nuestro Dios estaba sobre nosotros, nos trajeron a S
 y a Hasabías, junto con Jesaías de los descendientes de Merari, y a sus hermanos y sus hijos, 20 en total.
 
 ## Esdras 8:20
-También trajeron 220 de los servidores del templo, a quienes David y los oficiales habían designado para asistir a los levitas, todos registrados por nombre.
+También trajeron 220 de los sirvientes del templo, a quienes David y los oficiales habían designado para asistir a los levitas, todos registrados por nombre.
 
 ## Esdras 8:21
 Allí, junto al río Ahava, proclamé un ayuno, para que nos humilláramos ante nuestro Dios y buscáramos de Él un viaje seguro para nosotros, nuestros hijos y todas nuestras posesiones.
@@ -79,7 +79,7 @@ Pesé para ellos la plata, el oro y los utensilios, la ofrenda para la casa de n
 Pesé para ellos 650 talentos de plata, utensilios de plata que pesaban 100 talentos, y 100 talentos de oro,
 
 ## Esdras 8:27
-20 tazones de oro valorados en 1,000 dracmas, y dos utensilios finos de bronce pulido, tan preciosos como el oro.
+20 tazones de oro valorados en 1 000 dracmas, y dos utensilios finos de bronce pulido, tan preciosos como el oro.
 
 ## Esdras 8:28
 Les dije: “Vosotros sois santos para el Señor, y los utensilios son santos; la plata y el oro son una ofrenda voluntaria al Señor, el Dios de vuestros antepasados.
@@ -103,7 +103,7 @@ El cuarto día, en la casa de nuestro Dios, pesamos la plata, el oro y los utens
 Todo fue verificado por número y peso, y el peso total fue registrado en ese momento.
 
 ## Esdras 8:35
-Entonces los exiliados que habían regresado del cautiverio ofrecieron holocaustos al Dios de Israel: doce toros por todo Israel, noventa y seis carneros, setenta y siete corderos machos, y doce machos cabríos como ofrenda por el pecado. Todo esto fue una ofrenda quemada al Señor.
+Entonces los exiliados que habían regresado del cautiverio ofrecieron holocaustos al Dios de Israel: doce toros por todo Israel, noventa y seis carneros, setenta y siete corderos machos, y doce machos cabríos como ofrenda por el pecado. Todo esto fue un holocausto al Señor.
 
 ## Esdras 8:36
 También entregaron las órdenes del rey a los sátrapas del rey y a los gobernadores de las provincias más allá del Éufrates, quienes luego apoyaron al pueblo y a la casa de Dios.

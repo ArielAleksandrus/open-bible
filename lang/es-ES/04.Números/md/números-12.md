@@ -10,10 +10,10 @@ Y dijeron: “¿Ha hablado el Señor solamente por Moisés? ¿No ha hablado tamb
 (Moisés era un hombre sumamente humilde, más que cualquier otro sobre la faz de la tierra.)
 
 ## Números 12:4
-De repente, el Señor dijo a Moisés, a Aarón y a Miriam: “Salid los tres al tabernáculo de reunión.” Y salieron los tres.
+De repente, el Señor dijo a Moisés, a Aarón y a Miriam: “Salid los tres al tienda de reunión.” Y salieron los tres.
 
 ## Números 12:5
-El Señor descendió en una columna de nube y se detuvo a la entrada del tabernáculo. Llamó a Aarón y a Miriam, y ambos se adelantaron.
+El Señor descendió en una columna de nube y se detuvo a la entrada de la tienda. Llamó a Aarón y a Miriam, y ambos se adelantaron.
 
 ## Números 12:6
 Y Él dijo: “Oíd mis palabras: Si hay un profeta entre vosotros, yo, el Señor, me revelaré a él en visiones y le hablaré en sueños.
@@ -28,7 +28,7 @@ Con él hablo cara a cara, claramente y no en enigmas; él contempla la forma de
 La ira del Señor se encendió contra ellos, y Él se fue.
 
 ## Números 12:10
-Cuando la nube se apartó de encima del tabernáculo, la piel de Miriam se volvió leprosa, blanca como la nieve. Aarón se volvió hacia ella y vio que tenía una enfermedad de la piel.
+Cuando la nube se apartó de encima de la tienda, la piel de Miriam se volvió leprosa, blanca como la nieve. Aarón se volvió hacia ella y vio que tenía una enfermedad de la piel.
 
 ## Números 12:11
 Y Aarón dijo a Moisés: “Oh, mi señor, te ruego que no nos impongas este pecado, porque hemos actuado neciamente y hemos pecado.

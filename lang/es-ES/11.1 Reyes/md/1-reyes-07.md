@@ -41,7 +41,7 @@ Hizo el Salón del Trono donde iba a juzgar, el Salón de Juicio,
 
 Su casa donde iba a habitar,  
  en el otro patio hacia adentro del salón, era de la misma obra.  
- También hizo una casa como este salón para la hija de Faraón, a quien Salomón había tomado por esposa.
+ También hizo una casa como este salón para la hija del faraón, a quien Salomón había tomado por esposa.
 
 ---
 
@@ -196,12 +196,12 @@ La artesanía de las ruedas era como la de una rueda de carro.
 ## 1 Reyes 7:34
 
 Ahora había cuatro soportes en las cuatro esquinas de cada soporte;  
- estos soportes eran integrales al soporte mismo.
+ estos soportes formaban parte del soporte mismo.
 
 ## 1 Reyes 7:35
 
 En la parte superior del soporte había una forma circular de medio codo de alto,  
- y en la parte superior del soporte sus apoyos y sus bordes eran integrales a él.
+ y en la parte superior del soporte sus apoyos y sus bordes formaban parte de él.
 
 ## 1 Reyes 7:36
 
@@ -213,7 +213,7 @@ Y grabó en las placas de sus apoyos y en sus bordes,
 ## 1 Reyes 7:37
 
 Hizo los diez soportes de esta manera:  
- todos ellos tenían una fundición, medida y forma uniforme.
+ todos ellos tenían la misma fundición, medida y forma.
 
 ---
 

@@ -68,7 +68,7 @@ Sin embargo, había allí un profeta del Señor llamado Oded;
 
 ## 2 Crónicas 28:10
 
-Y ahora decís que vais a someter a los hijos de Judá y de Jerusalén como esclavos y esclavas para vosotros?  
+¿Y ahora decís que vais a someter a los hijos de Judá y de Jerusalén como esclavos y esclavas para vosotros?  
  He aquí, ¿no sois también culpables ante el Señor vuestro Dios?
 
 ---
@@ -127,7 +127,7 @@ Porque nuevamente los edomitas habían venido y atacado a Judá, y se llevaron c
 ## 2 Crónicas 28:18
 
 Los filisteos también habían invadido las ciudades de la llanura y del Néguev de Judá,  
- y habían tomado Bet-semes, Ajalón, Gederot, Soco con sus aldeas, Timnah con sus aldeas, y Gimzo con sus aldeas, y se establecieron allí.
+ y habían tomado Bet-semes, Ajalón, Gederot, Soco con sus aldeas, Timna con sus aldeas, y Gimzo con sus aldeas, y se establecieron allí.
 
 ---
 

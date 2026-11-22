@@ -72,7 +72,7 @@ Con este dinero, asegúrate de comprar toros, carneros y corderos, junto con sus
 
 ## Esdras 7:18
 
-Tú y tus compatriotas israelitas podrán hacer lo que mejor les parezca con el resto de la plata y el oro, según la voluntad de vuestro Dios.
+Tú y tus compatriotas israelitas podréis hacer lo que mejor os parezca con el resto de la plata y el oro, según la voluntad de vuestro Dios.
 
 ## Esdras 7:19
 

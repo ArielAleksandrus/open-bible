@@ -85,13 +85,13 @@ Daniel respondió al rey: “Ningún sabio, encantador, mago o adivino puede exp
 pero hay un Dios en el cielo que revela misterios. Él ha mostrado al rey Nabucodonosor lo que sucederá en los últimos días. Tu sueño y las visiones que pasaron por tu mente mientras yacías en la cama son estas:
 
 ## Daniel 2:29
-Mientras Su Majestad yacía allí, su mente se volvió hacia lo que está por venir, y el revelador de misterios le mostró lo que va a suceder.
+Mientras tú, oh rey, yacías allí, tu mente se volvió hacia lo que está por venir, y el revelador de misterios te mostró lo que va a suceder.
 
 ## Daniel 2:30
-En cuanto a mí, este misterio me ha sido revelado no porque tenga más sabiduría que cualquier otro ser vivo, sino para que Su Majestad conozca la interpretación y entienda los pensamientos de su mente.
+En cuanto a mí, este misterio me ha sido revelado no porque tenga más sabiduría que cualquier otro ser vivo, sino para que tú, oh rey, conozcas la interpretación y entiendas los pensamientos de tu mente.
 
 ## Daniel 2:31
-Su Majestad observó, y allí delante de usted había una gran estatua, una estatua enorme y deslumbrante, impresionante en apariencia.
+Tú, oh rey, mirabas, y allí delante de ti había una gran estatua, una estatua enorme y deslumbrante, impresionante en apariencia.
 
 ## Daniel 2:32
 La cabeza de la estatua era de oro fino, su pecho y brazos de plata, su vientre y muslos de bronce,
@@ -100,34 +100,34 @@ La cabeza de la estatua era de oro fino, su pecho y brazos de plata, su vientre 
 sus piernas de hierro, y sus pies una combinación de hierro y barro.
 
 ## Daniel 2:34
-Mientras observaba, una piedra fue cortada, pero no por manos humanas. Golpeó la estatua en sus pies de hierro y barro y los destrozó.
+Mientras observabas, una piedra fue cortada, pero no por manos humanas. Golpeó la estatua en sus pies de hierro y barro y los destrozó.
 
 ## Daniel 2:35
-Entonces el hierro, el barro, el bronce, la plata y el oro fueron hechos pedazos y se convirtieron como paja en una era de verano. El viento se los llevó sin dejar rastro. Pero la piedra que golpeó la estatua se convirtió en una gran montaña y llenó toda la tierra.
+Entonces el hierro, el barro, el bronce, la plata y el oro fueron hechos pedazos y quedaron como paja en una era de verano. El viento se los llevó sin dejar rastro. Pero la piedra que golpeó la estatua se convirtió en una gran montaña y llenó toda la tierra.
 
 ## Daniel 2:36
 Este fue el sueño, y ahora lo explicaremos al rey.
 
 ## Daniel 2:37
-Su Majestad, usted es el rey de reyes. El Dios del cielo le ha dado dominio, poder, fuerza y gloria;
+Tú, oh rey, eres el rey de reyes. El Dios del cielo te ha dado dominio, poder, fuerza y gloria;
 
 ## Daniel 2:38
-Él ha puesto a todas las personas, las bestias del campo y las aves del cielo bajo su autoridad. Dondequiera que habiten, Él lo ha hecho gobernante sobre todos ellos. Usted es esa cabeza de oro.
+Él ha puesto a todas las personas, las bestias del campo y las aves del cielo bajo tu autoridad. Dondequiera que habiten, Él te ha hecho gobernante sobre todos ellos. Tú eres esa cabeza de oro.
 
 ## Daniel 2:39
-Después de usted, surgirá otro reino, inferior al suyo. Luego, un tercer reino, uno de bronce, gobernará sobre toda la tierra.
+Después de ti, surgirá otro reino, inferior al tuyo. Luego, un tercer reino, uno de bronce, gobernará sobre toda la tierra.
 
 ## Daniel 2:40
 Finalmente, habrá un cuarto reino, fuerte como el hierro, porque el hierro rompe y aplasta todo, y como el hierro aplasta todas las cosas, así aplastará y romperá a todos los demás.
 
 ## Daniel 2:41
-Así como vio que los pies y los dedos eran en parte de barro y en parte de hierro, así será este un reino dividido; sin embargo, tendrá algo de la fuerza del hierro en él, así como vio el hierro mezclado con barro.
+Así como viste que los pies y los dedos eran en parte de barro y en parte de hierro, así será este un reino dividido; sin embargo, tendrá algo de la fuerza del hierro en él, así como viste el hierro mezclado con barro.
 
 ## Daniel 2:42
 Como los dedos eran en parte de hierro y en parte de barro, así este reino será en parte fuerte y en parte frágil.
 
 ## Daniel 2:43
-Y así como vio el hierro mezclado con barro, así la gente será una mezcla y no permanecerá unida, al igual que el hierro no se mezcla con el barro.
+Y así como viste el hierro mezclado con barro, así la gente será una mezcla y no permanecerá unida, al igual que el hierro no se mezcla con el barro.
 
 ## Daniel 2:44
 Durante el reinado de esos reyes, el Dios del cielo establecerá un reino que nunca será destruido, ni será dejado a otro pueblo. Aplastará a todos esos reinos y los llevará a su fin, pero él mismo perdurará para siempre.
@@ -145,4 +145,4 @@ El rey dijo a Daniel: “Verdaderamente, tu Dios es el Dios de dioses y el Seño
 Entonces el rey promovió a Daniel y le dio muchos grandes regalos. Lo hizo gobernante sobre toda la provincia de Babilonia y lo puso a cargo de todos sus sabios.
 
 ## Daniel 2:49
-Además, a petición de Daniel, el rey nombró a Sadrac, Mesac y Abednego administradores sobre la provincia de Babilonia, mientras Daniel permanecía en la corte real.
+Además, a petición de Daniel, el rey nombró a Sadrac, Mesac y Abed-nego administradores sobre la provincia de Babilonia, mientras Daniel permanecía en la corte real.

@@ -39,7 +39,7 @@ Entonces Salomón dijo,
  según él caminó delante de Ti en verdad,  
  en justicia y rectitud de corazón hacia Ti;  
  y has reservado esta gran bondad para él,  
- que le has dado un hijo que se siente en su trono, como está hoy.
+ que le has dado un hijo que se siente en su trono, como sucede hoy.
 
 ## 1 Reyes 3:7
 
@@ -157,14 +157,14 @@ Entonces el rey dijo,
 ## 1 Reyes 3:24
 
 Entonces el rey ordenó,  
- “Tráiganme una espada.”  
+ “Traedme una espada.”  
  Así que trajeron una espada al rey.
 
 ## 1 Reyes 3:25
 
 Y el rey instruyó,  
- “Corten al niño vivo en dos,  
- y den la mitad a una y la mitad a la otra.”
+ “Cortad al niño vivo en dos,  
+ y dad la mitad a una y la mitad a la otra.”
 
 ## 1 Reyes 3:26
 
@@ -178,7 +178,7 @@ Entonces la mujer cuyo hijo era el vivo habló al rey,
 ## 1 Reyes 3:27
 
 Entonces el rey respondió,  
- “Den a la primera mujer el niño vivo, y no lo maten.  
+ “Dad a la primera mujer el niño vivo, y no lo matéis.  
  Ella es su madre.”
 
 ---

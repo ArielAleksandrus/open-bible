@@ -7,7 +7,7 @@ Entonces el Señor dijo a Moisés: “Ve a Faraón y dile: ‘Esto es lo que dec
 Si te niegas a dejarlos ir y continúas reteniéndolos,
 
 ## Éxodo 9:3
-he aquí, la mano del Señor traerá una plaga severa sobre tu ganado en el campo —sobre los caballos, asnos, camellos, vacas, ovejas y cabras—.
+ten por seguro que la mano del Señor traerá una plaga terrible sobre tu ganado que está en el campo —sobre los caballos, asnos, camellos, vacas, ovejas y cabras—.
 
 ## Éxodo 9:4
 Sin embargo, el Señor hará una distinción entre el ganado de Israel y el de Egipto, para que no muera ningún animal perteneciente a los israelitas.’”
@@ -22,7 +22,7 @@ Y al día siguiente, el Señor lo hizo: todo el ganado de los egipcios murió, p
 Faraón envió hombres a investigar y descubrió que ni siquiera uno del ganado de los israelitas había muerto. Sin embargo, el corazón de Faraón permaneció endurecido, y no dejó ir al pueblo.
 
 ## Éxodo 9:8
-Entonces el Señor instruyó a Moisés y Aarón: “Tomen puñados de hollín de un horno, y que Moisés lo arroje al aire en presencia de Faraón.
+Entonces el Señor instruyó a Moisés y Aarón: “Tomad puñados de hollín de un horno, y que Moisés lo arroje al aire en presencia de Faraón.
 
 ## Éxodo 9:9
 Se convertirá en polvo fino sobre toda la tierra de Egipto, causando que salgan úlceras con llagas en las personas y los animales por toda la tierra.”
@@ -43,7 +43,7 @@ Entonces el Señor dijo a Moisés: “Levántate temprano por la mañana y pres�
 o esta vez enviaré toda la fuerza de mis plagas contra ti, tus oficiales y tu pueblo, para que sepas que no hay nadie como yo en toda la tierra.
 
 ## Éxodo 9:15
-Porque hasta ahora podría haber extendido mi mano y golpeado a ti y a tu pueblo con una plaga que te habría borrado de la tierra.
+Porque ya podría haber extendido mi mano y haberte herido a ti y a tu pueblo con una plaga que te habría borrado de la tierra.
 
 ## Éxodo 9:16
 Pero te he permitido permanecer por este propósito: para mostrarte mi poder y para que mi nombre sea proclamado por toda la tierra.
@@ -82,13 +82,13 @@ El único lugar donde no cayó granizo fue en la tierra de Gosén, donde residí
 Entonces Faraón llamó a Moisés y Aarón. “He pecado esta vez,” les dijo. “El Señor tiene razón, y yo y mi pueblo estamos equivocados.
 
 ## Éxodo 9:28
-Rueguen al Señor, porque ha habido suficiente de los truenos y el granizo de Dios. Los dejaré ir; no tienen que quedarse más tiempo.”
+Rogad al Señor, porque ya basta de los truenos y el granizo de Dios. Os dejaré ir; no tenéis que quedaros más tiempo.”
 
 ## Éxodo 9:29
 Moisés respondió: “Tan pronto como salga de la ciudad, extenderé mis manos al Señor; cesarán los truenos y no habrá más granizo, para que sepas que la tierra es del Señor.
 
 ## Éxodo 9:30
-Pero sé que tú y tus oficiales todavía no tienen reverencia por el Señor Dios.”
+Pero sé que tú y tus oficiales todavía no tenéis reverencia por el Señor Dios.”
 
 ## Éxodo 9:31
 (El lino y la cebada fueron arruinados, ya que la cebada estaba en espiga y el lino en flor.

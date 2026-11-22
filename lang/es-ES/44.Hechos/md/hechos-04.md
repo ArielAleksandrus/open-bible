@@ -103,7 +103,7 @@ Al ser liberados, Pedro y Juan regresaron a los suyos y les contaron todo lo que
 
 ## Hechos 4:24
 
-Cuando oyeron esto, levantaron unánimes la voz a Dios y dijeron: “Señor Soberano, tú hiciste los cielos y la tierra y el mar, y todo lo que hay en ellos.
+Cuando oyeron esto, levantaron unánimes la voz a Dios y dijeron: “Señor Dios, tú hiciste los cielos y la tierra y el mar, y todo lo que hay en ellos.
 
 ## Hechos 4:25
 

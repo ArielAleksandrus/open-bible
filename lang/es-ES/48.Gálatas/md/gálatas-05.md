@@ -14,7 +14,7 @@ Y repito a todo hombre que se deja circuncidar que está obligado a cumplir toda
 
 ## Gálatas 5:4
 
-Vosotros que buscáis ser justificados por la ley habéis sido separados de Cristo; habéis caído de la gracia.
+Vosotros, los que intentáis ser declarados justos por medio de la ley, os habéis apartado de Cristo; os habéis quedado fuera de la gracia.
 
 ## Gálatas 5:5
 
@@ -46,7 +46,7 @@ Hermanos y hermanas, si todavía predico la circuncisión, ¿por qué sigo siend
 
 ## Gálatas 5:12
 
-¡Ojalá los que os perturban llegaran incluso a mutilarse!
+¡Ojalá los que os perturban llegaran incluso a castrarse!
 
 ## Gálatas 5:13
 
@@ -62,15 +62,15 @@ Si os mordéis y os devoráis unos a otros, tened cuidado de no ser consumidos u
 
 ## Gálatas 5:16
 
-Por eso digo, caminad por el Espíritu, y no cumpliréis los deseos de la carne.
+Por eso os digo: vivid guiados por el Espíritu, y así no haréis lo que desea vuestra naturaleza humana.
 
 ## Gálatas 5:17
 
-Porque la carne desea lo que es contrario al Espíritu, y el Espíritu lo que es contrario a la carne; están en oposición entre sí, para que no hagáis lo que queráis.
+Porque la naturaleza humana desea lo que va contra el Espíritu, y el Espíritu desea lo que va contra ella; los dos se oponen entre sí, para que no hagáis simplemente lo que os apetezca.
 
 ## Gálatas 5:18
 
-Pero si sois guiados por el Espíritu, no estáis bajo la ley.
+Pero si el Espíritu os guía, ya no vivís sometidos a la ley.
 
 ## Gálatas 5:19
 
@@ -86,15 +86,15 @@ envidia, borracheras, orgías y cosas semejantes. Os advierto, como ya lo he hec
 
 ## Gálatas 5:22
 
-Porque el fruto del Espíritu es amor, gozo, paz, paciencia, amabilidad, bondad, fidelidad,
+En cambio, lo que el Espíritu produce es amor, alegría, paz, paciencia, amabilidad, bondad, fidelidad,
 
 ## Gálatas 5:23
 
-mansedumbre y dominio propio. Contra tales cosas no hay ley.
+humildad y dominio propio. No hay ley que vaya en contra de estas cosas.
 
 ## Gálatas 5:24
 
-Los que pertenecen a Cristo Jesús han crucificado la carne con sus pasiones y deseos.
+Los que pertenecen a Cristo Jesús han clavado en la cruz su naturaleza humana, junto con sus pasiones y deseos.
 
 ## Gálatas 5:25
 

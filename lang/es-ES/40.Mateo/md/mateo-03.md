@@ -38,7 +38,7 @@ Y no presumáis de decir entre vosotros, ‘Tenemos a Abraham por padre.’ Porq
 
 ## Mateo 3:10
 
-El hacha ya está puesta a la raíz de los árboles, y todo árbol que no dé buen fruto será cortado y echado al fuego.
+El hacha ya está lista junto a la raíz de los árboles, y todo árbol que no dé buen fruto será cortado y arrojado al fuego.
 
 ## Mateo 3:11
 

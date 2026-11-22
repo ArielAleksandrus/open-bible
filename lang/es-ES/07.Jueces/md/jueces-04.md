@@ -2,7 +2,7 @@
 
 ## Jueces 4:1
 
-Una vez más, los israelitas hicieron lo malo ante los ojos del Señor después de que Ehud había muerto.
+Una vez más, los israelitas hicieron lo malo ante los ojos del Señor después de que Aod había muerto.
 
 ## Jueces 4:2
 
@@ -46,7 +46,7 @@ Barac convocó a Zabulón y Neftalí en Cedes, y diez mil hombres subieron con �
 
 ## Jueces 4:11
 
-Ahora bien, Héber el quenita se había separado de los otros quenitas, los descendientes de Hobab, suegro de Moisés, y había plantado su tienda junto al gran árbol en Zaananim cerca de Cedes.
+Ahora bien, Héber el ceneo se había separado de los otros ceneos, los descendientes de Hobab, suegro de Moisés, y había plantado su tienda junto al gran árbol en Zaananim cerca de Cedes.
 
 ## Jueces 4:12
 
@@ -70,7 +70,7 @@ Barac persiguió los carros y el ejército hasta Haroset-goim, y todos los solda
 
 ## Jueces 4:17
 
-Mientras tanto, Sísara huyó a pie a la tienda de Jael, la esposa de Héber el quenita, porque había paz entre Jabín, rey de Hazor, y la casa de Héber el quenita.
+Mientras tanto, Sísara huyó a pie a la tienda de Jael, la esposa de Héber el ceneo, porque había paz entre Jabín, rey de Hazor, y la casa de Héber el ceneo.
 
 ## Jueces 4:18
 

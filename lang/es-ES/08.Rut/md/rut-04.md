@@ -6,7 +6,7 @@ Booz subió a la puerta de la ciudad y se sentó allí, y justo entonces, el red
 
 ## Rut 4:2
 
-Booz entonces tomó a diez de los ancianos de la ciudad y dijo: “Siéntense aquí.” Y se sentaron.
+Booz entonces tomó a diez de los ancianos de la ciudad y dijo: “Sentaos aquí.” Y se sentaron.
 
 ## Rut 4:3
 
@@ -36,11 +36,11 @@ El redentor entonces le dijo a Booz, “Cómprala tú mismo.” Y se quitó la s
 
 ## Rut 4:9
 
-Entonces Booz declaró a los ancianos y a todo el pueblo, “Hoy ustedes son testigos de que he comprado de Noemí todo lo que pertenecía a Elimelec, Quilión y Mahlón.
+Entonces Booz declaró a los ancianos y a todo el pueblo, “Hoy vosotros sois testigos de que he comprado de Noemí todo lo que pertenecía a Elimelec, Quelión y Mahlón.
 
 ## Rut 4:10
 
-También he adquirido a Rut la moabita, la viuda de Mahlón, para ser mi esposa, para mantener el nombre del difunto con su propiedad, para que su nombre no desaparezca de entre su familia ni de su ciudad natal. Ustedes son testigos hoy.”
+También he adquirido a Rut la moabita, la viuda de Mahlón, para ser mi esposa, para mantener el nombre del difunto con su propiedad, para que su nombre no desaparezca de entre su familia ni de su ciudad natal. Vosotros sois testigos hoy.”
 
 ## Rut 4:11
 
@@ -48,11 +48,11 @@ Entonces todo el pueblo que estaba en la puerta y los ancianos dijeron, “Somos
 
 ## Rut 4:12
 
-Que tu familia, a través de los hijos que el Señor te dé por esta joven, sea como la de Fares, a quien Tamar dio a luz a Judá.”
+Que tu familia, a través de los hijos que el Señor te dé por esta joven, sea como la de Fares, el hijo que Tamar le dio a Judá.”
 
 ## Rut 4:13
 
-Así que Booz tomó a Rut, y ella se convirtió en su esposa. Cuando él tuvo relaciones con ella, el Señor le permitió concebir, y ella dio a luz un hijo.
+Así que Booz tomó a Rut, y ella se convirtió en su esposa. Cuando él tuvo relaciones con ella, el Señor le concedió concebir, y ella dio a luz un hijo.
 
 ## Rut 4:14
 

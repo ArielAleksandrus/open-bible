@@ -50,8 +50,8 @@ David se llenó de temor del Señor ese día;
 
 ## 2 Samuel 6:10
 
-Y David no quiso trasladar el arca del Señor a sí mismo en la ciudad de David;  
- sino que David la llevó a la casa de Obed-edom el geteo.
+Y David no quiso llevar el arca del Señor consigo a la ciudad de David,  
+ sino que la desvió a la casa de Obed-edom el geteo.
 
 ## 2 Samuel 6:11
 

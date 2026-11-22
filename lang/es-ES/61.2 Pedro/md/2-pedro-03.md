@@ -10,11 +10,11 @@ para que recordéis las palabras dichas de antemano por los santos profetas y el
 
 ## 2 Pedro 3:3
 
-Entended primero esto, que en los últimos días vendrán burladores, siguiendo sus propios deseos,
+Ante todo, tened en cuenta que en los últimos días aparecerá gente que se burlará y vivirá según sus propios deseos,
 
 ## 2 Pedro 3:4
 
-y cuestionando: “¿Dónde está la promesa de su venida? Desde que los antepasados murieron, todas las cosas permanecen como han estado desde el principio de la creación.”
+y que preguntará: “¿Qué ha sido de la promesa de que Él vendría? Desde que murieron nuestros antepasados, todo sigue igual que desde que se creó el mundo.”
 
 ## 2 Pedro 3:5
 
@@ -30,15 +30,15 @@ Pero por su palabra los cielos y la tierra actuales están reservados para el fu
 
 ## 2 Pedro 3:8
 
-Sin embargo, no olvidéis esta verdad, amados: para el Señor, un solo día es como mil años, y mil años son como un solo día.
+Pero no olvidéis esto, queridos hermanos: para el Señor, un día es como mil años, y mil años son como un día.
 
 ## 2 Pedro 3:9
 
-El Señor no demora su promesa, como algunos consideran demora, sino que es paciente con vosotros, no queriendo que ninguno perezca, sino que todos lleguen al arrepentimiento.
+El Señor no se retrasa en cumplir su promesa, como algunos piensan, sino que tiene paciencia con vosotros, porque no quiere que nadie se pierda, sino que todos se arrepientan.
 
 ## 2 Pedro 3:10
 
-Pero el día del Señor llegará como un ladrón, cuando los cielos desaparecerán con un estruendo y los elementos serán consumidos por un calor intenso, y la tierra y sus obras serán expuestas.
+Pero el día del Señor llegará como un ladrón; entonces los cielos desaparecerán con un gran estruendo, los elementos se desharán por el fuego, y la tierra y todo lo que se ha hecho en ella quedarán al descubierto.
 
 ## 2 Pedro 3:11
 
@@ -50,7 +50,7 @@ anticipando y apresurando la venida del día de Dios, por causa del cual los cie
 
 ## 2 Pedro 3:13
 
-Pero según su promesa, esperamos cielos nuevos y una tierra nueva, donde mora la justicia.
+Pero nosotros, conforme a su promesa, esperamos unos cielos nuevos y una tierra nueva, donde reine la justicia.
 
 ## 2 Pedro 3:14
 
@@ -66,7 +66,7 @@ como lo hace en todas sus cartas, hablando en ellas de estas materias, en las cu
 
 ## 2 Pedro 3:17
 
-Vosotros, por lo tanto, amados, sabiendo esto de antemano, estad en guardia para que no seáis llevados por el error de personas sin escrúpulos y caigáis de vuestro propio firme compromiso,
+Vosotros, por lo tanto, amados, sabiendo esto de antemano, estad en guardia para que no seáis arrastrados por el error de personas sin escrúpulos y perdáis vuestra propia firmeza,
 
 ## 2 Pedro 3:18
 

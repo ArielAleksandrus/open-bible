@@ -2,7 +2,7 @@
 
 ## Job 22:1
 
-Entonces Elifaz el temanita habló,
+Entonces Elifaz el temanita habló:
 
 ## Job 22:2
 
@@ -63,7 +63,7 @@ Entonces Elifaz el temanita habló,
 
 ## Job 22:13
 
-> Sin embargo, preguntas, ‘¿Qué sabe Dios?
+> Sin embargo, preguntas: ‘¿Qué sabe Dios?
 >  ¿Puede juzgar a través de la densa oscuridad?
 
 ## Job 22:14
@@ -82,7 +82,7 @@ Entonces Elifaz el temanita habló,
 
 ## Job 22:17
 
-> Le dijeron a Dios, ‘¡Déjanos en paz!’
+> Le dijeron a Dios: ‘¡Déjanos en paz!’
 >  y ‘¿Qué puede hacerles el Todopoderoso?’
 
 ## Job 22:18
@@ -93,7 +93,7 @@ Entonces Elifaz el temanita habló,
 ## Job 22:19
 
 > Los justos lo ven y se alegran,
->  y los inocentes se burlan de ellos, diciendo,
+>  y los inocentes se burlan de ellos, diciendo:
 
 ## Job 22:20
 
@@ -104,7 +104,7 @@ Entonces Elifaz el temanita habló,
 
 ## Job 22:21
 
-> “Conócete a Él y estarás en paz;
+> “Acércate a Él y estarás en paz;
 >  así te vendrá el bien.
 
 ## Job 22:22
@@ -142,7 +142,7 @@ Entonces Elifaz el temanita habló,
 
 ## Job 22:29
 
-> Cuando las personas sean humilladas, dirás,
+> Cuando las personas sean humilladas, dirás:
 >  ‘¡Levántalos!’ y Él salvará al humilde.
 
 ## Job 22:30

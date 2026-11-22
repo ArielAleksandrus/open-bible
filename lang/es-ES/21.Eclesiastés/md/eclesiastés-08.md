@@ -10,7 +10,7 @@ Te aconsejo que guardes el mandato del rey por el juramento hecho ante Dios.
 No te apresures a dejar su presencia. No apoyes un asunto malo, porque él actuará como desee.
 
 ## Eclesiastés 8:4
-Puesto que la palabra del rey es autoritaria, ¿quién puede cuestionarlo, “¿Qué estás haciendo?”
+Puesto que la palabra del rey tiene autoridad, ¿quién puede decirle: “¿Qué haces?”?
 
 ## Eclesiastés 8:5
 Quien obedece su mandato no enfrentará daño alguno, y un corazón sabio conoce el momento y el procedimiento adecuados.
@@ -46,7 +46,7 @@ Hay una vanidad que ocurre en la tierra: personas justas que reciben lo que los 
 Así que recomiendo el disfrute, porque no hay nada mejor para una persona bajo el sol que comer, beber y ser feliz, porque esto los acompañará en su trabajo a lo largo de los días de vida que Dios les ha dado bajo el sol.
 
 ## Eclesiastés 8:16
-Cuando puse mi mente a entender la sabiduría y a observar el negocio hecho en la tierra, aunque las personas nunca duermen de día ni de noche,
+Cuando puse mi mente a entender la sabiduría y a observar la tarea que se hace en la tierra, aunque las personas nunca duermen de día ni de noche,
 
 ## Eclesiastés 8:17
 entonces vi toda la obra de Dios. Nadie puede comprender lo que sucede bajo el sol. A pesar de todos sus esfuerzos por buscarlo, nadie puede descubrir su significado. Incluso si los sabios afirman saber, no pueden realmente comprenderlo.

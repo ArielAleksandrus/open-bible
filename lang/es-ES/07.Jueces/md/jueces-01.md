@@ -68,7 +68,7 @@ Ella respondió: “Concédeme una bendición. Ya que me has dado tierra en el N
 
 ## Jueces 1:16
 
-Los descendientes del quenita, suegro de Moisés, subieron de la Ciudad de las Palmeras con el pueblo de Judá al desierto de Judá en el sur de Arad, y se establecieron entre el pueblo.
+Los descendientes del ceneo, suegro de Moisés, subieron de la Ciudad de las Palmeras con el pueblo de Judá al desierto de Judá en el sur de Arad, y se establecieron entre el pueblo.
 
 ## Jueces 1:17
 
@@ -122,7 +122,7 @@ Cuando Israel se fortaleció, sometieron a los cananeos a trabajos forzados, per
 
 ## Jueces 1:29
 
-Efraín no expulsó a los cananeos que vivían en Guézer, por lo que continuaron viviendo entre ellos.
+Efraín no expulsó a los cananeos que vivían en Gezer, por lo que continuaron viviendo entre ellos.
 
 ## Jueces 1:30
 

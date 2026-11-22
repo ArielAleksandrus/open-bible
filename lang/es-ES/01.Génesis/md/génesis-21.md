@@ -2,7 +2,7 @@
 
 ## Génesis 21:1
 
-El Señor fue atento a Sara como había dicho, y el Señor cumplió para Sara lo que había prometido.
+El Señor atendió a Sara como había dicho, y el Señor cumplió para Sara lo que había prometido.
 
 ## Génesis 21:2
 
@@ -18,7 +18,7 @@ Abraham circuncidó a su hijo Isaac cuando tenía ocho días, siguiendo el manda
 
 ## Génesis 21:5
 
-Abraham tenía un siglo de edad cuando su hijo Isaac vino al mundo.
+Abraham tenía cien años cuando su hijo Isaac vino al mundo.
 
 ## Génesis 21:6
 
@@ -74,7 +74,7 @@ Levántate, alza al niño y sostenlo de la mano, porque haré de él una gran na
 
 ## Génesis 21:19
 
-Dios le permitió ver un pozo de agua. Ella fue y llenó el odre con agua y dio de beber al niño.
+Dios hizo que ella viera un pozo de agua. Ella fue y llenó el odre con agua y dio de beber al niño.
 
 ## Génesis 21:20
 
@@ -122,7 +122,7 @@ Abimelec preguntó a Abraham, “¿Cuál es el significado de estas siete corder
 
 ## Génesis 21:31
 
-Por lo tanto, ese lugar fue llamado Beerseba, porque allí los dos juraron un juramento.
+Por lo tanto, ese lugar fue llamado Beerseba, porque allí los dos hicieron un juramento.
 
 ## Génesis 21:32
 
@@ -130,7 +130,7 @@ Después de hacer un pacto en Beerseba, Abimelec y Ficol, el comandante de su ej
 
 ## Génesis 21:33
 
-Abraham estableció un árbol de tamarisco en Beerseba, y allí invocó el nombre del Señor, el Dios Eterno.
+Abraham plantó un tamarisco en Beerseba, y allí invocó el nombre del Señor, el Dios Eterno.
 
 ## Génesis 21:34
 

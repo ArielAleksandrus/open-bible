@@ -30,7 +30,7 @@ Preguntad ahora, y ved: ¿Puede un hombre dar a luz? ¿Por qué entonces veo a c
 
 ## Jeremías 30:8
 
-‘En ese día,’ declara el Señor de los Ejércitos, ‘quebraré el yugo de sus cuellos y romperé sus ataduras; los extranjeros no los esclavizarán más.
+‘En ese día,’ declara el Señor de los ejércitos, ‘quebraré el yugo de sus cuellos y romperé sus ataduras; los extranjeros no los esclavizarán más.
 
 ## Jeremías 30:9
 
@@ -84,7 +84,7 @@ Sus hijos prosperarán como en los días de antaño, y su comunidad será establ
 
 ## Jeremías 30:21
 
-Su líder será uno de los suyos, y su gobernante vendrá de en medio de ellos. Lo acercaré, y él se acercará a Mí —porque ¿quién se atrevería a arriesgar su vida para acercarse a Mí?’ declara el Señor—.
+Su líder será uno de los suyos, y su gobernante vendrá de en medio de ellos. Lo acercaré, y él se acercará a Mí; porque ¿quién se atrevería a arriesgar su vida para acercarse a Mí?’ declara el Señor.
 
 ## Jeremías 30:22
 

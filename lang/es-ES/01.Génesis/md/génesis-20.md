@@ -7,7 +7,7 @@ Ahora Abraham viajó desde allí hacia la región del Néguev y se estableció e
 Y Abraham dijo de su esposa Sara: “Ella es mi hermana”. Así que Abimelec, el rey de Gerar, mandó por Sara y la tomó.
 
 ## Génesis 20:3
-Pero Dios vino a Abimelec en un sueño durante la noche y le dijo: “He aquí, estás a punto de morir a causa de la mujer que has tomado; ella es una mujer casada.”
+Pero Dios vino a Abimelec en un sueño durante la noche y le dijo: “Eres hombre muerto por causa de la mujer que has tomado, porque es una mujer casada.”
 
 ## Génesis 20:4
 Ahora Abimelec no se había acercado a ella, y dijo: “Señor, ¿destruirás una nación, aun si es inocente?
@@ -16,7 +16,7 @@ Ahora Abimelec no se había acercado a ella, y dijo: “Señor, ¿destruirás un
 ¿No me dijo él mismo: ‘Ella es mi hermana’? Y ella misma dijo: ‘Él es mi hermano’. He hecho esto con una conciencia limpia y manos inocentes.”
 
 ## Génesis 20:6
-Entonces Dios le dijo en el sueño: “Sí, sé que hiciste esto con una conciencia limpia, y te he mantenido de pecar contra mí. Por eso no te dejé tocarla.
+Entonces Dios le dijo en el sueño: “Sí, sé que hiciste esto con una conciencia limpia, y te he impedido pecar contra mí. Por eso no te dejé tocarla.
 
 ## Génesis 20:7
 Ahora devuelve la esposa del hombre, porque él es un profeta, y él orará por ti y vivirás. Pero si no la devuelves, ten por seguro que tú y todos los tuyos ciertamente morirán.”
@@ -43,7 +43,7 @@ Y cuando Dios me hizo vagar lejos de la casa de mi padre, le dije: ‘Esta es la
 Entonces Abimelec tomó ovejas y ganado y siervos y siervas, y se los dio a Abraham, y le devolvió a su esposa Sara.
 
 ## Génesis 20:15
-Y Abimelec dijo: “He aquí, mi tierra está delante de ti; establece donde te plazca.”
+Y Abimelec dijo: “Mira, mi tierra está a tu disposición; quédate a vivir donde mejor te parezca.”
 
 ## Génesis 20:16
 A Sara le dijo: “He dado a tu hermano mil siclos de plata. Esto es para cubrir cualquier ofensa contra ti ante todos los que están contigo; estás completamente vindicada.”

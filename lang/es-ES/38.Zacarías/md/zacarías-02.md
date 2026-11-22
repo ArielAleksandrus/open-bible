@@ -19,19 +19,19 @@ Porque yo,’ declara el Señor, ‘seré un muro de fuego alrededor de ella, y 
 “¡Venid! Huid de la tierra del norte,” declara el Señor, “porque os he dispersado a los cuatro vientos de los cielos,” declara el Señor.
 
 ## Zacarías 2:7
-“¡Ven, Sión! ¡Escapa, tú que habitas con la Hija de Babilonia!”
+“¡Ven, Sion! ¡Escapa, tú que habitas con la Hija de Babilonia!”
 
 ## Zacarías 2:8
-Porque esto es lo que dice el Señor de los Ejércitos: “Después de la gloria me ha enviado contra las naciones que os han saqueado —porque quien os toca, toca la niña de su ojo—
+Porque esto es lo que dice el Señor de los ejércitos: “Después de que la gloria me ha enviado contra las naciones que os han saqueado —porque quien os toca, toca la niña de su ojo—
 
 ## Zacarías 2:9
-ciertamente agitaré mi mano sobre ellos para que sus esclavos los saqueen. Entonces sabréis que el Señor de los Ejércitos me ha enviado.
+ciertamente agitaré mi mano sobre ellos para que sus esclavos los saqueen. Entonces sabréis que el Señor de los ejércitos me ha enviado.
 
 ## Zacarías 2:10
-“Grita de alegría y alégrate, Hija de Sión. Porque he aquí, vengo, y habitaré entre vosotros,” declara el Señor.
+“Grita de alegría y alégrate, Hija de Sion. Porque he aquí, vengo, y habitaré en medio de ti,” declara el Señor.
 
 ## Zacarías 2:11
-“Muchas naciones se unirán al Señor en ese día y se convertirán en mi pueblo. Habitaré entre vosotros, y sabréis que el Señor de los Ejércitos me ha enviado a vosotros.
+“Muchas naciones se unirán al Señor en ese día y se convertirán en mi pueblo. Habitaré en medio de ti, y sabrás que el Señor de los ejércitos me ha enviado a ti.
 
 ## Zacarías 2:12
 El Señor tomará posesión de Judá como su porción en la tierra santa y una vez más elegirá a Jerusalén.

@@ -10,7 +10,7 @@ Abraham le dio el diezmo de todo. Primero, por la traducción de su nombre, es r
 
 ## Hebreos 7:3
 
-Sin padre ni madre, sin genealogía, sin principio de días ni fin de vida, pero hecho semejante al Hijo de Dios, permanece sacerdote perpetuamente.
+No tiene padre, ni madre, ni lista de antepasados; no se sabe cuándo nació ni cuándo murió; y así, parecido al Hijo de Dios, sigue siendo sacerdote para siempre.
 
 ## Hebreos 7:4
 
@@ -22,11 +22,11 @@ Los descendientes de Leví que reciben el sacerdocio tienen un mandamiento en la
 
 ## Hebreos 7:6
 
-Sin embargo, este hombre, cuya genealogía no se traza de ellos, recogió el diezmo de Abraham y bendijo al que tenía las promesas.
+Sin embargo, este hombre, cuya genealogía no procede de ellos, recogió el diezmo de Abraham y bendijo al que tenía las promesas.
 
 ## Hebreos 7:7
 
-Sin ninguna disputa, el menor es bendecido por el mayor.
+Y nadie puede discutir que el que bendice es mayor que el que recibe la bendición.
 
 ## Hebreos 7:8
 
@@ -42,7 +42,7 @@ pues aún estaba en el cuerpo de su antepasado cuando Melquisedec lo encontró.
 
 ## Hebreos 7:11
 
-Si la perfección se hubiera podido lograr a través del sacerdocio levítico (pues sobre la base de él el pueblo recibió la Ley), ¿por qué había aún necesidad de que surgiera otro sacerdote según el orden de Melquisedec, y no ser designado según el orden de Aarón?
+Si la perfección se hubiera podido lograr a través del sacerdocio levítico (pues sobre la base de él el pueblo recibió la Ley), ¿por qué había aún necesidad de que surgiera otro sacerdote según el orden de Melquisedec, y que no fuera designado según el orden de Aarón?
 
 ## Hebreos 7:12
 
@@ -101,19 +101,19 @@ Ha habido muchos de esos sacerdotes, ya que la muerte les impidió continuar en 
 
 ## Hebreos 7:24
 
-pero porque Jesús vive para siempre, Él tiene su sacerdocio permanentemente.
+pero como Jesús vive para siempre, Él tiene su sacerdocio permanentemente.
 
 ## Hebreos 7:25
 
-Por lo tanto, Él es capaz de salvar completamente a aquellos que se acercan a Dios a través de Él, porque siempre vive para interceder por ellos.
+Por eso puede salvar por completo a los que se acercan a Dios por medio de Él, porque vive siempre para interceder por ellos.
 
 ## Hebreos 7:26
 
-Porque nos convenía tener tal sumo sacerdote, santo, inocente, sin mancha, apartado de los pecadores, y exaltado sobre los cielos.
+Ese era precisamente el sumo sacerdote que necesitábamos: santo, sin culpa, sin mancha, apartado de los pecadores y elevado por encima de los cielos.
 
 ## Hebreos 7:27
 
-A diferencia de los otros sumos sacerdotes, Él no necesita ofrecer sacrificios día tras día, primero por sus propios pecados, y luego por los pecados del pueblo. Ofreció el sacrificio por sus pecados de una vez por todas cuando se entregó a sí mismo.
+A diferencia de los otros sumos sacerdotes, Él no necesita ofrecer sacrificios día tras día, primero por sus propios pecados, y luego por los pecados del pueblo. Ofreció el sacrificio por los pecados de ellos de una vez por todas cuando se entregó a sí mismo.
 
 ## Hebreos 7:28
 

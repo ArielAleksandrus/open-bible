@@ -4,16 +4,16 @@
 Además, vino a mí la palabra del Señor, diciendo:
 
 ## Ezequiel 7:2
-“Y tú, hijo de hombre, esto es lo que dice el Señor Soberano a la tierra de Israel: ‘¡El fin! El fin viene sobre los cuatro extremos de la tierra.
+“Y tú, hijo de hombre, esto es lo que dice el Señor Dios a la tierra de Israel: ‘¡El fin! El fin viene sobre los cuatro extremos de la tierra.
 
 ## Ezequiel 7:3
 Ahora el fin está sobre ti, y desataré Mi ira contra ti; te juzgaré según tus caminos y traeré sobre ti todas tus abominaciones.
 
 ## Ezequiel 7:4
-Mi ojo no mostrará piedad, ni te perdonaré. Te pagaré según tus caminos, y tus abominaciones estarán entre ti. Entonces sabrás que yo soy el Señor.’
+Mi ojo no mostrará piedad, ni te perdonaré. Te pagaré según tus caminos, y tus abominaciones estarán en medio de ti. Entonces sabrás que yo soy el Señor.’
 
 ## Ezequiel 7:5
-Esto es lo que dice el Señor Soberano: ‘¡Desastre! ¡Un desastre único! ¡He aquí, viene!
+Esto es lo que dice el Señor Dios: ‘¡Desastre! ¡Un desastre único! ¡He aquí, viene!
 
 ## Ezequiel 7:6
 ¡El fin ha llegado! ¡El fin ha llegado! Se ha despertado contra ti; he aquí, viene.
@@ -67,7 +67,7 @@ Y las entregaré a los extranjeros como botín, y a los malvados de la tierra co
 Apartaré Mi rostro de ellos, y profanarán Mi tesoro; los ladrones entrarán y lo profanarán.
 
 ## Ezequiel 7:23
-‘¡Prepara restricciones! Porque la tierra está llena de derramamiento de sangre, y la ciudad está llena de violencia.
+‘¡Prepara cadenas! Porque la tierra está llena de derramamiento de sangre, y la ciudad está llena de violencia.
 
 ## Ezequiel 7:24
 Por lo tanto, traeré a las naciones más malvadas para que tomen posesión de sus casas. Pondré fin al orgullo de los poderosos, y sus santuarios serán profanados.

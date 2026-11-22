@@ -2,7 +2,7 @@
 
 ## Ezequiel 48:1
 
-“Estos son los nombres de las tribus: En el extremo norte, a lo largo del camino de Hethlón hasta Lebo Hamat, hasta Hazar Enán en la frontera de Damasco, hacia el norte junto a Hamat, y extendiéndose de este a oeste, Dan tendrá una parte.
+“Estos son los nombres de las tribus: En el extremo norte, a lo largo del camino de Hetlón hasta Lebó Hamat, hasta Hazar Enán en la frontera de Damasco, hacia el norte junto a Hamat, y extendiéndose de este a oeste, Dan tendrá una parte.
 
 ## Ezequiel 48:2
 
@@ -114,7 +114,7 @@
 
 ## Ezequiel 48:29
 
-“Esta es la tierra que repartiréis como herencia a las tribus de Israel, y estas serán sus porciones”, declara el Señor Soberano.
+“Esta es la tierra que repartiréis como herencia a las tribus de Israel, y estas serán sus porciones”, declara el Señor Dios.
 
 ## Ezequiel 48:30
 

@@ -18,31 +18,31 @@
 
 ## Salmo 27:3
 
-> Aunque un ejército acampe contra mí,  
->  Mi corazón no temerá;  
->  Aunque se levante guerra contra mí,  
->  Aun así estaré confiado.
+> Aunque todo un ejército me rodee con sus tiendas,  
+>  Mi corazón no tendrá miedo;  
+>  aunque estalle una guerra contra mí,  
+>  aun entonces me sentiré seguro.
 
 ---
 
 ## Salmo 27:4
 
-> Una cosa he pedido al Señor, eso buscaré:  
->  Que pueda habitar en la casa del Señor todos los días de mi vida,  
->  Para contemplar la hermosura del Señor Y reflexionar en Su templo.
+> Le he pedido una sola cosa al Señor,  
+>  y eso es lo que buscaré: vivir en la casa del Señor todos los días de mi vida,  
+>  para admirar la belleza del Señor Y meditar en Su templo.
 
 ## Salmo 27:5
 
-> Porque en el día de la angustia me protegerá en Su tabernáculo;  
->  Me esconderá en el lugar secreto de Su tienda;  
->  Me pondrá en alto sobre una roca.
+> Porque cuando lleguen los tiempos difíciles, Él me dará refugio en Su tabernáculo;  
+>  me esconderá en lo más íntimo de Su tienda;  
+>  me subirá a lo alto de una roca.
 
 ---
 
 ## Salmo 27:6
 
 > Y ahora mi cabeza será exaltada sobre mis enemigos que me rodean,  
->  Y ofreceré sacrificios en Su tienda con gritos de júbilo;  
+>  y ofreceré sacrificios en Su tienda con gritos de júbilo;  
 >  Cantaré, sí, cantaré alabanzas al Señor.
 
 ---
@@ -50,7 +50,7 @@
 ## Salmo 27:7
 
 > Escúchame, Señor, cuando clamo con mi voz,  
->  Y sé misericordioso conmigo y respóndeme.
+>  y sé misericordioso conmigo y respóndeme.
 
 ## Salmo 27:8
 
@@ -59,36 +59,36 @@
 
 ## Salmo 27:9
 
-> No escondas Tu rostro de mí,  
->  No rechaces a Tu siervo con ira;  
->  Tú has sido mi ayuda;  
->  No me abandones ni me desampares,  
->  ¡Dios de mi salvación!
+> No me escondas Tu rostro,  
+>  no eches con enojo a Tu siervo;  
+>  Tú has sido quien me ayuda;  
+>  no me dejes solo ni me abandones,  
+>  ¡oh Dios que me salvas!
 
 ## Salmo 27:10
 
-> Aunque mi padre y mi madre me abandonen,  
->  El Señor me recogerá.
+> Aunque mi padre y mi madre me hayan dejado solo,  
+>  el Señor me acogerá.
 
 ## Salmo 27:11
 
 > Enséñame Tu camino, Señor,  
->  Y guíame por una senda llana a causa de mis enemigos.
+>  y guíame por una senda llana a causa de mis enemigos.
 
 ## Salmo 27:12
 
-> No me entregues a la voluntad de mis adversarios,  
->  Porque se han levantado contra mí falsos testigos,  
->  Y los violentos respiran violencia.
+> No me dejes en manos de mis adversarios, que quieren mi mal,  
+>  porque hay testigos falsos que se han alzado contra mí,  
+>  y la gente violenta solo respira violencia.
 
 ---
 
 ## Salmo 27:13
 
-> Estoy seguro de que veré la bondad del Señor En la tierra de los vivientes.
+> Tengo la plena seguridad de que veré la bondad del Señor Mientras viva en esta tierra.
 
 ## Salmo 27:14
 
-> Espera al Señor;  
->  Sé fuerte y que tu corazón tome ánimo;  
->  Sí, espera al Señor.
+> Pon tu esperanza en el Señor;  
+>  Ten valor y que tu corazón se llene de ánimo; ¡Sí,  
+>  pon tu esperanza en el Señor!

@@ -2,7 +2,7 @@
 
 ## 1 Samuel 26:1
 
-Los zifeos se acercaron a Saúl en Gibeá y dijeron:  
+Los zifeos se acercaron a Saúl en Guibeá y dijeron:  
  “¿No se está escondiendo David en la colina de Haquilá, que está frente a Jesimón?”
 
 ## 1 Samuel 26:2

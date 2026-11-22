@@ -7,7 +7,7 @@ Acerca de los amonitas: Así dice el Señor: “¿No tiene hijos Israel? ¿No ti
 Por tanto, he aquí que vienen días,” declara el Señor, “cuando haré sonar el grito de batalla contra Rabá de los amonitas; se convertirá en un montón desolado, y sus ciudades circundantes serán incendiadas. Entonces Israel tomará posesión de aquellos que la desposeyeron,” dice el Señor.
 
 ## Jeremías 49:3
-“¡Lamenta, Hesbón, porque Hai está destruida! ¡Clamad, habitantes de Rabá! Vestíos de cilicio y lamentaos; movedos dentro de los muros, porque Malcam irá al exilio, junto con sus sacerdotes y líderes.
+“¡Lamenta, Hesbón, porque Hai está destruida! ¡Clamad, habitantes de Rabá! Vestíos de cilicio y lamentaos; corred de un lado a otro dentro de los muros, porque Malcam irá al exilio, junto con sus sacerdotes y líderes.
 
 ## Jeremías 49:4
 ¿Por qué te jactas de tus valles, tu valle tan fértil? Hija rebelde Amón, confías en tus tesoros y dices: ‘¿Quién me atacará?’
@@ -70,7 +70,7 @@ He aquí, un águila se elevará y descenderá, extendiendo sus alas sobre Bozra
 Acerca de Damasco: “Hamat y Arfad están consternadas, porque han oído noticias angustiosas. Están desalentadas, turbadas como el mar inquieto.
 
 ## Jeremías 49:24
-Damasco se ha debilitado; ha vuelto a huir y el pánico se ha apoderado de ella; la angustia y el dolor la han tomado, dolor como el de una mujer en parto.
+Damasco se ha debilitado; se ha dado a la fuga y el pánico se ha apoderado de ella; la angustia y el dolor la han tomado, dolor como el de una mujer en parto.
 
 ## Jeremías 49:25
 ¿Cómo no ha sido abandonada la ciudad de renombre, la ciudad en la que me deleito?

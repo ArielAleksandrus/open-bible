@@ -20,7 +20,7 @@ Dijo: “He pecado entregando sangre inocente.” Ellos respondieron: “¿Qué 
 
 ## Mateo 27:5
 
-Judas arrojó la plata en el templo y se fue. Luego se fue y se ahorcó.
+Judas arrojó la plata en el templo y salió. Luego fue y se ahorcó.
 
 ## Mateo 27:6
 
@@ -140,7 +140,7 @@ Al salir, encontraron a un hombre de Cirene llamado Simón, a quien obligaron a 
 
 ## Mateo 27:33
 
-Llegaron a un lugar llamado Gólgota, que se traduce como "El Lugar de la Calavera."
+Llegaron a un lugar llamado Gólgota, que se traduce como “El Lugar de la Calavera.”
 
 ## Mateo 27:34
 
@@ -196,7 +196,7 @@ Desde el mediodía hasta las tres de la tarde, la oscuridad cubrió toda la tier
 
 ## Mateo 27:46
 
-Cerca de las tres de la tarde, Jesús clamó en alta voz, “Eli, Eli, lema sabactani?” que significa, “Dios mío, Dios mío, ¿por qué me has desamparado?”
+Cerca de las tres de la tarde, Jesús gritó con fuerza: “Eli, Eli, ¿lema sabactani?”, que significa: “Dios mío, Dios mío, ¿por qué me has abandonado?”
 
 ## Mateo 27:47
 
@@ -240,7 +240,7 @@ Muchas mujeres estaban allí, mirando desde lejos. Habían seguido a Jesús desd
 
 ## Mateo 27:56
 
-Entre ellas estaban María Magdalena, María la madre de Jacobo y José, y la madre de los hijos de Zebedeo.
+Entre ellas estaban María Magdalena, María la madre de Santiago y José, y la madre de los hijos de Zebedeo.
 
 ---
 

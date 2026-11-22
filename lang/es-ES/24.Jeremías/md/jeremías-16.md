@@ -25,7 +25,7 @@ Nadie partirá pan en duelo por ellos, para consolar a alguien por los muertos, 
 “Y no entres en la casa de banquete, para sentarte con ellos a comer y beber.”
 
 ## Jeremías 16:9
-Porque esto es lo que dice el Señor de los Ejércitos, el Dios de Israel: “Haré cesar los sonidos de alegría y gozo, la voz del novio y la voz de la novia en este lugar, ante vuestros ojos y en vuestros días.
+Porque esto es lo que dice el Señor de los ejércitos, el Dios de Israel: “Haré cesar los sonidos de alegría y gozo, la voz del novio y la voz de la novia en este lugar, ante vuestros ojos y en vuestros días.
 
 ## Jeremías 16:10
 “Y sucederá que, cuando digas a este pueblo todas estas palabras, y te digan: ‘¿Por qué ha pronunciado el Señor todo este gran desastre contra nosotros? ¿Cuál es nuestra iniquidad? ¿Cuál es nuestro pecado que hemos cometido contra el Señor nuestro Dios?’
@@ -61,4 +61,4 @@ Oh Señor, mi fuerza y mi fortaleza, mi refugio en el día de la angustia, a ti 
 ¿Puede una persona hacerse dioses a sí misma? ¡Pero no son dioses!
 
 ## Jeremías 16:21
-“Por lo tanto, he aquí, les haré saber —esta vez les haré conocer mi poder y mi fuerza; y sabrán que mi nombre es el Señor—.”
+“Por lo tanto, he aquí, les haré saber; esta vez les haré conocer mi poder y mi fuerza; y sabrán que mi nombre es el Señor.”

@@ -22,7 +22,7 @@ y lo que hizo a Datán y Abiram, hijos de Eliab, hijo de Rubén, cuando la tierr
 pero fueron vuestros propios ojos los que vieron todas las grandes obras que el Señor ha hecho.
 
 ## Deuteronomio 11:8
-Por tanto, observad todos los mandamientos que os doy hoy, para que tengáis la fuerza para entrar y tomar posesión de la tierra que cruzáis el Jordán para poseer,
+Por tanto, observad todos los mandamientos que os doy hoy, para que tengáis la fuerza para entrar y tomar posesión de la tierra que vais a poseer al otro lado del Jordán,
 
 ## Deuteronomio 11:9
 y para que tengáis una larga vida en la tierra que el Señor prometió a vuestros antepasados y a sus descendientes, una tierra abundante en leche y miel.
@@ -31,7 +31,7 @@ y para que tengáis una larga vida en la tierra que el Señor prometió a vuestr
 Porque la tierra que vais a tomar en posesión no es como la tierra de Egipto, de donde vinisteis, donde sembrabais vuestra semilla y la regabais a pie como en un huerto.
 
 ## Deuteronomio 11:11
-Pero la tierra que cruzáis el Jordán para tomar posesión es una tierra de colinas y valles que recibe lluvia del cielo.
+Pero la tierra que vais a poseer al otro lado del Jordán es una tierra de colinas y valles que recibe lluvia del cielo.
 
 ## Deuteronomio 11:12
 Es una tierra de la que el Señor vuestro Dios cuida; sus ojos están continuamente sobre ella desde el principio del año hasta el fin.

@@ -28,7 +28,7 @@ Tomó cuajada, leche y el becerro que había preparado, y lo puso delante de ell
 Ellos le preguntaron: “¿Dónde está tu esposa Sara?” Él respondió: “Allí, en la tienda.”
 
 ## Génesis 18:10
-Uno de ellos dijo: “Ciertamente volveré a ti en esta época el año próximo, y he aquí que tu esposa Sara tendrá un hijo.” Sara estaba escuchando a la entrada de la tienda, que estaba detrás de él.
+Uno de ellos dijo: “Sin falta volveré a ti por esta época el año que viene, y para entonces tu esposa Sara tendrá un hijo.” Sara estaba escuchando a la entrada de la tienda, que estaba detrás de él.
 
 ## Génesis 18:11
 Abraham y Sara eran ya viejos, de edad avanzada; Sara había pasado la edad de tener hijos.
@@ -49,7 +49,7 @@ Sara tuvo miedo, así que lo negó, diciendo: “No me reí.” Pero Él dijo: �
 Cuando los hombres se levantaron para partir, miraron hacia Sodoma, y Abraham caminó con ellos para despedirlos.
 
 ## Génesis 18:17
-El Señor consideró: “¿Ocultaré a Abraham lo que voy a hacer?
+El Señor consideró: “¿Ocultaré a Abraham lo que voy a hacer,
 
 ## Génesis 18:18
 puesto que Abraham ciertamente se convertirá en una nación grande y poderosa, y en él serán bendecidas todas las naciones de la tierra?

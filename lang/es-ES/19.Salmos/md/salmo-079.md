@@ -4,24 +4,24 @@
 
 ## Salmo 79:1
 
-> Dios, las naciones han invadido Tu heredad;  
->  Han profanado Tu santo templo;  
->  Han dejado a Jerusalén en ruinas.
+> Dios, los pueblos paganos han invadido Tu herencia;  
+>  han manchado Tu santo templo;  
+>  han dejado a Jerusalén hecha un montón de ruinas.
 
 ## Salmo 79:2
 
 > Han dado los cuerpos muertos de Tus siervos como alimento a las aves del cielo,  
->  La carne de Tus piadosos a los animales de la tierra.
+>  la carne de Tus piadosos a los animales de la tierra.
 
 ## Salmo 79:3
 
-> Han derramado su sangre como agua alrededor de Jerusalén,  
->  Y no hubo quien los enterrara.
+> Han derramado su sangre como agua por todos los alrededores de Jerusalén,  
+>  y no quedó nadie que les diera sepultura.
 
 ## Salmo 79:4
 
 > Nos hemos convertido en una desgracia ante nuestros vecinos,  
->  Un objeto de burla y escarnio para los que nos rodean.
+>  un objeto de burla y escarnio para los que nos rodean.
 
 ---
 
@@ -32,34 +32,34 @@
 
 ## Salmo 79:6
 
-> Derrama Tu ira sobre las naciones que no Te conocen,  
->  Y sobre los reinos que no invocan Tu nombre.
+> Descarga Tu furor sobre las naciones que no Te conocen,  
+>  sobre los reinos que no claman a Tu nombre.
 
 ## Salmo 79:7
 
-> Porque han consumido a Jacob Y han arruinado su morada.
+> Porque se han tragado a Jacob y han destruido el lugar donde vivía.
 
 ---
 
 ## Salmo 79:8
 
-> No nos hagas responsables de los males de nuestros antepasados;  
->  Que Tu compasión nos alcance pronto,  
->  Porque hemos sido humillados en gran manera.
+> No nos hagas pagar por las culpas de nuestros antepasados;  
+>  que Tu compasión venga pronto a nuestro encuentro,  
+>  porque estamos hundidos del todo.
 
 ## Salmo 79:9
 
-> Ayúdanos, Dios de nuestra salvación, por el honor de Tu nombre;  
->  Y líbranos y perdona nuestros pecados por amor de Tu nombre.
+> Ayúdanos, Dios que nos salvas, por la honra de Tu nombre;  
+>  rescátanos y perdona nuestros pecados, por causa de Tu nombre.
 
 ## Salmo 79:10
 
-> ¿Por qué han de decir las naciones: “¿Dónde está su Dios?”
+> ¿Por qué tienen que decir las naciones:
 
 ---
 
-> Que la retribución por la sangre de Tus siervos que ha sido derramada  
-> Se haga conocer entre las naciones ante nuestros ojos.
+>  “¿Dónde está su Dios?”  
+>  Que ante nuestros ojos las naciones vean cómo se paga la sangre derramada de Tus siervos.
 
 ## Salmo 79:11
 
@@ -76,5 +76,5 @@
 ## Salmo 79:13
 
 > Así nosotros, Tu pueblo y las ovejas de Tu prado,  
->  Te daremos gracias para siempre;  
->  A todas las generaciones proclamaremos Tu alabanza.
+>  te daremos gracias para siempre;  
+>  a todas las generaciones proclamaremos Tu alabanza.

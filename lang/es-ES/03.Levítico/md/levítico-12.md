@@ -22,7 +22,7 @@ Si da a luz una niña, quedará impura durante dos semanas, como durante su per�
 
 ## Levítico 12:6
 
-‘Cuando se completen los días de su purificación por un hijo o una hija, llevará al sacerdote a la entrada de la tienda de reunión un cordero de un año para el holocausto y un pichón o una tórtola para el sacrificio por el pecado.
+‘Cuando se completen los días de su purificación por un hijo o una hija, llevará al sacerdote a la entrada de la tienda de reunión un cordero de un año para el holocausto y un pichón o una tórtola para la ofrenda por el pecado.
 
 ## Levítico 12:7
 
@@ -30,4 +30,4 @@ El sacerdote los ofrecerá ante el Señor para hacer expiación por ella, y qued
 
 ## Levítico 12:8
 
-Si no puede permitirse un cordero, llevará dos tórtolas o dos pichones, uno para el holocausto y el otro para el sacrificio por el pecado. De esta manera, el sacerdote hará expiación por ella, y quedará limpia.’”
+Si no puede permitirse un cordero, llevará dos tórtolas o dos pichones, uno para el holocausto y el otro para la ofrenda por el pecado. De esta manera, el sacerdote hará expiación por ella, y quedará limpia.’”

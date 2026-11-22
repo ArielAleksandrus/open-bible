@@ -2,7 +2,7 @@
 
 ## Job 42:1
 
-Entonces Job respondió al Señor y dijo,
+Entonces Job respondió al Señor y dijo:
 
 ## Job 42:2
 

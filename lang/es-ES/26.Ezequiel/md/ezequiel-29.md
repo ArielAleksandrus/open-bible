@@ -6,13 +6,13 @@ En el décimo año, en el décimo mes, el día doce, la palabra del Señor vino 
 
 ## Ezequiel 29:2
 
-“Hijo de hombre, pon tu rostro contra Faraón, rey de Egipto, y profetiza contra él y contra todo Egipto.
+“Hijo de hombre, pon tu rostro contra el faraón, rey de Egipto, y profetiza contra él y contra todo Egipto.
 
 ## Ezequiel 29:3
 
-Habla y di: ‘Esto es lo que dice el Señor Soberano:
+Habla y di: ‘Esto es lo que dice el Señor Dios:
 
->  “Estoy contra ti, Faraón, rey de Egipto,
+>  “Estoy contra ti, faraón, rey de Egipto,
 >  gran monstruo que yaces en medio de tus ríos.
 >  Has dicho: ‘El Nilo es mío; yo lo hice para mí.’
 
@@ -40,7 +40,7 @@ Cuando te agarraron con sus manos, te astillaste y les desgarraste los hombros; 
 
 ## Ezequiel 29:8
 
-‘Por tanto, esto es lo que dice el Señor Soberano: Traeré una espada contra ti y cortaré tanto al hombre como a la bestia.
+‘Por tanto, esto es lo que dice el Señor Dios: Traeré una espada contra ti y cortaré tanto al hombre como a la bestia.
 
 ## Ezequiel 29:9
 
@@ -60,7 +60,7 @@ Haré que la tierra de Egipto sea desolada entre tierras devastadas, y sus ciuda
 
 ## Ezequiel 29:13
 
-‘Porque esto es lo que dice el Señor Soberano: Al final de los cuarenta años, reuniré a los egipcios de los pueblos donde fueron dispersados.
+‘Porque esto es lo que dice el Señor Dios: Al final de los cuarenta años, reuniré a los egipcios de los pueblos donde fueron dispersados.
 
 ## Ezequiel 29:14
 
@@ -72,7 +72,7 @@ Será el más bajo de los reinos y nunca más se exaltará sobre las otras nacio
 
 ## Ezequiel 29:16
 
-Egipto ya no será una fuente de confianza para la casa de Israel, recordando su culpa al recurrir a ella en busca de ayuda. Entonces sabrán que yo soy el Señor Soberano.”’”
+Egipto ya no será una fuente de confianza para la casa de Israel, recordando su culpa al recurrir a ella en busca de ayuda. Entonces sabrán que yo soy el Señor Dios.”’”
 
 ## Ezequiel 29:17
 
@@ -84,11 +84,11 @@ En el año veintisiete, en el primer mes, el primer día, la palabra del Señor 
 
 ## Ezequiel 29:19
 
-Por tanto, esto es lo que dice el Señor Soberano: Voy a dar Egipto a Nabucodonosor, rey de Babilonia, y él se llevará su riqueza. Saqueará y despojará la tierra como salario para su ejército.
+Por tanto, esto es lo que dice el Señor Dios: Voy a dar Egipto a Nabucodonosor, rey de Babilonia, y él se llevará su riqueza. Saqueará y despojará la tierra como salario para su ejército.
 
 ## Ezequiel 29:20
 
-Le he dado Egipto como recompensa por sus esfuerzos porque él y su ejército actuaron por mí, declara el Señor Soberano.
+Le he dado Egipto como recompensa por sus esfuerzos porque él y su ejército actuaron por mí, declara el Señor Dios.
 
 ## Ezequiel 29:21
 

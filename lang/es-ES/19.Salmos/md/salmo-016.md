@@ -11,7 +11,7 @@
 ## Salmo 16:2
 
 > He dicho al Señor: “Tú eres mi Señor;  
->  No tengo bien alguno fuera de Ti.”
+>  no tengo bien alguno fuera de Ti.”
 
 ## Salmo 16:3
 
@@ -21,9 +21,9 @@
 ## Salmo 16:4
 
 > Se multiplicarán las penas de aquellos que persiguen a otro dios;  
->  No derramaré sus libaciones de sangre,
+>  no derramaré sus libaciones de sangre,
 
->  Ni tomaré sus nombres en mis labios.
+>  ni tomaré sus nombres en mis labios.
 
 ---
 
@@ -35,32 +35,32 @@
 ## Salmo 16:6
 
 > Las cuerdas me cayeron en lugares agradables;  
->  En verdad, tengo una herencia deleitosa.
+>  en verdad, tengo una herencia deleitosa.
 
 ## Salmo 16:7
 
 > Bendeciré al Señor que me aconseja;  
->  En verdad, mi corazón me instruye en la noche.
+>  en verdad, mi corazón me instruye en la noche.
 
 ## Salmo 16:8
 
 > Siempre pongo al Señor delante de mí;  
->  Con Él a mi derecha, no seré conmovido.
+>  con Él a mi derecha, no seré conmovido.
 
 ---
 
 ## Salmo 16:9
 
 > Por tanto, se alegra mi corazón y se regocija mi espíritu;  
->  También mi cuerpo descansará seguro.
+>  también mi cuerpo descansará seguro.
 
 ## Salmo 16:10
 
-> Porque no dejarás mi alma en el Seol;  
->  No permitirás que Tu Santo vea corrupción.
+> Porque Tú no abandonarás mi alma en el Seol;  
+>  no dejarás que Tu Santo sufra la descomposición.
 
 ## Salmo 16:11
 
-> Me mostrarás la senda de la vida;  
->  En Tu presencia hay plenitud de gozo;  
->  A Tu diestra hay placeres para siempre.
+> Tú me harás conocer el camino que lleva a la vida;  
+>  estar contigo es alegría completa;  
+>  junto a Tu mano derecha hay delicias que no se acaban.

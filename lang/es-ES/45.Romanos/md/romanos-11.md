@@ -142,9 +142,8 @@ Porque Dios ha encerrado a todos en desobediencia para tener misericordia de tod
 
 ## Romanos 11:33
 
-> ¡Oh, la profundidad de las riquezas de la sabiduría y del conocimiento de Dios!
->  ¡Cuán insondables son sus juicios,
->  e inescrutables sus caminos!
+> ¡Qué profundas son las riquezas de la sabiduría y del conocimiento de Dios!
+>  ¡Nadie puede sondear sus juicios ni entender sus caminos!
 
 ## Romanos 11:34
 

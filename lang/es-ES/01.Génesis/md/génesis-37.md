@@ -42,7 +42,7 @@ Cuando se lo contó a su padre y a sus hermanos, su padre lo reprendió y le dij
 
 ## Génesis 37:11
 
-Sus hermanos le envidiaban, y su padre no dejó pasar el asunto de su mente.
+Sus hermanos le envidiaban, y su padre guardaba el asunto en su mente.
 
 ## Génesis 37:12
 

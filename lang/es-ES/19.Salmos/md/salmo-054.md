@@ -4,8 +4,8 @@
 
 ## Salmo 54:1
 
-> Sálvame, Dios, por Tu nombre,  
->  Y vindícame por Tu poder.
+> Dios, sálvame por el poder de Tu nombre,  
+>  y hazme justicia con Tu fuerza.
 
 ## Salmo 54:2
 
@@ -16,9 +16,9 @@
 
 ## Salmo 54:3
 
-> Porque extraños se han levantado contra mí,  
->  Y hombres despiadados han buscado mi vida;  
->  No han puesto a Dios delante de ellos.
+> Porque hay extranjeros que se han puesto en mi contra,  
+>  y hombres crueles que quieren matarme;  
+>  a Dios no lo tienen en cuenta.
 
 >  Selah
 
@@ -26,24 +26,24 @@
 
 ## Salmo 54:4
 
-> En verdad, Dios es mi ayudante;  
->  El Señor es el sustentador de mi alma.
+> En verdad, Dios es mi ayuda;  
+>  el Señor es el sustentador de mi alma.
 
 ---
 
 ## Salmo 54:5
 
 > Él pagará el mal a mis enemigos;  
->  En Tu fidelidad, derríbalos.
+>  en Tu fidelidad, derríbalos.
 
 ---
 
 ## Salmo 54:6
 
-> Libremente te ofreceré sacrificios;  
->  Alabaré Tu nombre, Señor, porque es bueno.
+> Te ofreceré sacrificios de buena gana;  
+>  Señor, daré alabanza a Tu nombre, porque es bueno.
 
 ## Salmo 54:7
 
-> Porque Él me ha librado de toda angustia,  
->  Y mi ojo ha mirado con satisfacción a mis enemigos.
+> Porque Él me ha sacado de todos mis apuros,  
+>  y he visto con satisfacción la derrota de mis enemigos.

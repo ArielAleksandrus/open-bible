@@ -2,7 +2,7 @@
 
 ## Lucas 7:1
 
-Cuando Jesús hubo completado todas Sus enseñanzas en oídos del pueblo, entró en Capernaum.
+Cuando Jesús hubo completado todas Sus enseñanzas en oídos del pueblo, entró en Capernaúm.
 
 ## Lucas 7:2
 
@@ -48,7 +48,7 @@ Poco después, Jesús fue a una ciudad llamada Naín, y Sus discípulos y una gr
 
 ## Lucas 7:12
 
-Al acercarse a la puerta de la ciudad, un hombre muerto era llevado afuera —el único hijo de su madre, y ella era viuda. Una gran multitud de la ciudad estaba con ella—.
+Al acercarse a la puerta de la ciudad, llevaban afuera a un muerto, el único hijo de su madre, que era viuda. Una gran multitud de la ciudad estaba con ella.
 
 ## Lucas 7:13
 
@@ -90,7 +90,7 @@ En ese momento, Jesús curó a muchas personas de enfermedades, aflicciones y es
 
 ## Lucas 7:22
 
-Así que respondió a los mensajeros, “Regresad y contad a Juan lo que habéis visto y oído: los ciegos reciben la vista, los cojos andan, los leprosos son limpiados, los sordos oyen, los muertos son resucitados, y a los pobres se les anuncia el evangelio.
+Así que respondió a los mensajeros, “Volved y contadle a Juan lo que habéis visto y oído: los ciegos ven otra vez, los cojos caminan, los que tienen lepra quedan limpios, los sordos oyen, los muertos vuelven a la vida, y a los pobres se les da la buena noticia.
 
 ## Lucas 7:23
 
@@ -154,7 +154,7 @@ El Hijo del Hombre vino comiendo y bebiendo, y decís, ‘Mirad, un glotón y un
 
 ## Lucas 7:35
 
-Sin embargo, la sabiduría es justificada por todos sus hijos.”
+Pero todos los hijos de la sabiduría demuestran que ella tiene razón.”
 
 ---
 
@@ -172,7 +172,7 @@ De pie detrás de Él a Sus pies llorando, comenzó a mojar Sus pies con sus lá
 
 ## Lucas 7:39
 
-Cuando el fariseo que lo había invitado vio esto, pensó para sí mismo, “Si este hombre fuera un profeta, sabría quién lo está tocando y qué clase de mujer es —que es una pecadora—.”
+Cuando el fariseo que lo había invitado vio esto, pensó para sí mismo, “Si este hombre fuera un profeta, sabría quién lo está tocando y qué clase de mujer es: una pecadora.”
 
 ## Lucas 7:40
 

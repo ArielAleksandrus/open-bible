@@ -2,96 +2,96 @@
 
 ## 1 Juan 3:1
 
-Observad qué maravilloso amor nos ha dado el Padre, que seamos llamados hijos de Dios; y de hecho lo somos. Por eso el mundo no nos reconoce: porque no le reconoció a Él.
+¡Mirad cuánto nos ama el Padre, que nos llama hijos de Dios! Y lo somos de verdad. Por eso el mundo no nos conoce, porque no lo conoció a Él.
 
 ## 1 Juan 3:2
 
-Queridos amigos, ahora somos hijos de Dios, y aún no se ha revelado lo que seremos. Sabemos que cuando Él se revele, seremos como Él, porque le veremos tal como es.
+Queridos amigos, ahora ya somos hijos de Dios, pero todavía no se ha mostrado lo que llegaremos a ser. Sabemos que, cuando Él se manifieste, seremos como Él, porque lo veremos tal como es en realidad.
 
 ## 1 Juan 3:3
 
-Y todo el que tiene esta esperanza en Él se esfuerza por la pureza, así como Él es puro.
+Y todo el que tiene puesta en Él esta esperanza procura vivir una vida limpia, así como Él es limpio.
 
 ## 1 Juan 3:4
 
-Todo el que comete pecado también comete iniquidad; y el pecado es iniquidad.
+Todo el que peca va también contra la ley de Dios, porque el pecado es estar contra la ley.
 
 ## 1 Juan 3:5
 
-Sabéis que Él apareció para quitar los pecados; y en Él no hay pecado.
+Sabéis que Él vino para quitar los pecados, y en Él no hay pecado.
 
 ## 1 Juan 3:6
 
-Nadie que permanece en Él continúa pecando; nadie que continúa pecando le ha visto ni le conoce.
+Nadie que viva unido a Él sigue pecando; el que sigue pecando no lo ha visto ni lo conoce.
 
 ## 1 Juan 3:7
 
-Hijitos, que nadie os engañe; el que practica la justicia es justo, así como Él es justo;
+Hijos míos, que nadie os engañe; el que hace lo que es justo es justo, así como Él es justo;
 
 ## 1 Juan 3:8
 
-el que comete pecado es del diablo; porque el diablo ha estado pecando desde el principio. El Hijo de Dios apareció por esta razón, para deshacer las obras del diablo.
+el que sigue pecando pertenece al diablo, porque el diablo ha estado pecando desde el principio. Precisamente para esto vino el Hijo de Dios: para deshacer lo que hace el diablo.
 
 ## 1 Juan 3:9
 
-Nadie que ha nacido de Dios continúa pecando, porque Su semilla permanece en él; y no puede continuar pecando, porque ha nacido de Dios.
+Nadie que haya nacido de Dios sigue pecando, porque la semilla de Dios vive en él; no puede seguir pecando, porque ha nacido de Dios.
 
 ## 1 Juan 3:10
 
-Por esto son evidentes los hijos de Dios y los hijos del diablo: cualquiera que no practica la justicia no es de Dios, ni el que no ama a su hermano o hermana.
+Así se nota quiénes son los hijos de Dios y quiénes son los hijos del diablo: el que no hace lo que es justo, y el que no ama a su hermano o hermana, no es de Dios.
 
 ## 1 Juan 3:11
 
-Porque este es el mensaje que habéis oído desde el principio: que nos amemos unos a otros;
+Porque este es el mensaje que oísteis desde el principio: que nos amemos unos a otros;
 
 ## 1 Juan 3:12
 
-no como Caín, que pertenecía al maligno y mató a su hermano. ¿Y por qué lo mató? Porque sus propias acciones eran malas, mientras que las de su hermano eran justas.
+no seamos como Caín, que pertenecía al maligno y mató a su hermano. ¿Y por qué lo mató? Porque lo que él hacía era malo, y lo que hacía su hermano era justo.
 
 ## 1 Juan 3:13
 
-No os asombréis, hermanos y hermanas, si el mundo os odia.
+Hermanos y hermanas, no os extrañe que el mundo os odie.
 
 ## 1 Juan 3:14
 
-Sabemos que hemos pasado de la muerte a la vida, porque amamos a nuestros hermanos y hermanas. Quien no ama permanece en la muerte.
+Nosotros sabemos que hemos pasado de la muerte a la vida porque amamos a nuestros hermanos y hermanas. El que no ama sigue muerto.
 
 ## 1 Juan 3:15
 
-Todo el que odia a su hermano o hermana es un asesino, y sabéis que ningún asesino tiene vida eterna permaneciendo en él.
+Todo el que odia a su hermano o hermana es un asesino, y ya sabéis que ningún asesino tiene la vida eterna dentro de sí.
 
 ## 1 Juan 3:16
 
-Entendemos el amor por esto, que Él entregó Su vida por nosotros; y debemos entregar nuestras vidas por nuestros hermanos y hermanas.
+Así hemos conocido lo que es el amor: Cristo dio su vida por nosotros; y nosotros también debemos dar nuestra vida por nuestros hermanos y hermanas.
 
 ## 1 Juan 3:17
 
-Pero quien tenga bienes materiales y vea a su hermano o hermana en necesidad, y cierre su corazón contra ellos, ¿cómo puede el amor de Dios permanecer en él?
+Pero si alguien tiene con qué vivir y ve a su hermano o hermana pasando necesidad, y no siente compasión por él, ¿cómo puede decir que el amor de Dios vive en él?
 
 ## 1 Juan 3:18
 
-Hijitos, no amemos de palabra ni de lengua, sino con hechos y en verdad.
+Hijos míos, que nuestro amor no sea solo de palabra ni de boca, sino que se demuestre con hechos y de verdad.
 
 ## 1 Juan 3:19
 
-Por esto sabremos que somos de la verdad, y aseguraremos nuestros corazones delante de Él,
+Así sabremos que pertenecemos a la verdad, y podremos tranquilizar nuestro corazón delante de Él,
 
 ## 1 Juan 3:20
 
-que si nuestros corazones nos condenan, Dios es mayor que nuestros corazones, y Él conoce todas las cosas.
+aunque el corazón nos acuse, porque Dios es más grande que nuestro corazón y lo sabe todo.
 
 ## 1 Juan 3:21
 
-Queridos amigos, si nuestros corazones están en paz, tenemos confianza delante de Dios;
+Queridos amigos, si el corazón no nos acusa, podemos acercarnos a Dios con confianza;
 
 ## 1 Juan 3:22
 
-y lo que pidamos, lo recibimos de Él, porque seguimos Sus mandamientos y hacemos lo que le agrada.
+y Él nos da todo lo que le pedimos, porque cumplimos sus mandamientos y hacemos lo que le agrada.
 
 ## 1 Juan 3:23
 
-Este es Su mandamiento, que creamos en el nombre de Su Hijo Jesucristo, y nos amemos unos a otros, tal como Él nos instruyó.
+Y este es su mandamiento: que creamos en el nombre de su Hijo Jesucristo y nos amemos unos a otros, como Él nos mandó.
 
 ## 1 Juan 3:24
 
-El que observa Sus mandamientos permanece en Él, y Él en él. Sabemos por esto que Él permanece en nosotros, por el Espíritu que nos ha dado.
+El que cumple sus mandamientos permanece unido a Él, y Él en él. Y sabemos que Él vive en nosotros por el Espíritu que nos ha dado.

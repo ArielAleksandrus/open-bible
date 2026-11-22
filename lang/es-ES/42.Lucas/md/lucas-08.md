@@ -49,7 +49,7 @@ Sus discípulos le preguntaron sobre el significado de esta parábola.
 
 ## Lucas 8:11
 
-“El significado de la parábola es este: La semilla representa la palabra de Dios.
+“El significado de la parábola es este: La semilla es la palabra de Dios.
 
 ## Lucas 8:12
 
@@ -61,11 +61,11 @@ Los que están sobre la roca son los que reciben la palabra con alegría cuando 
 
 ## Lucas 8:14
 
-La semilla que cayó entre espinos representa a los que oyen, pero al continuar su camino, son abrumados por las preocupaciones, riquezas y placeres de la vida, y no maduran.
+La semilla que cayó entre espinos son los que oyen, pero al continuar su camino, son abrumados por las preocupaciones, riquezas y placeres de la vida, y no maduran.
 
 ## Lucas 8:15
 
-Pero la semilla en buena tierra representa a los que tienen un corazón noble y bueno, que oyen la palabra, la retienen, y mediante la perseverancia producen una cosecha.
+Pero la semilla en buena tierra son los que tienen un corazón noble y bueno, que oyen la palabra, la retienen, y mediante la perseverancia producen una cosecha.
 
 ---
 
@@ -121,7 +121,7 @@ Viajaron a la región de los Gerasenos, que está al otro lado del lago de Galil
 
 ## Lucas 8:27
 
-Cuando Jesús desembarcó, le salió al encuentro un hombre poseído por demonios del pueblo. Durante mucho tiempo, este hombre no había llevado ropa ni vivido en una casa, sino que vivía en los sepulcros.
+Cuando Jesús desembarcó, le salió al encuentro un hombre del pueblo poseído por demonios. Durante mucho tiempo, este hombre no había llevado ropa ni vivido en una casa, sino que vivía en los sepulcros.
 
 ## Lucas 8:28
 

@@ -28,7 +28,7 @@ Usaban esta pregunta para ponerle a prueba, para tener de qué acusarle. Pero Je
 
 ## Juan 8:7
 
-Cuando persistieron en preguntarle, se enderezó y les dijo, “El que de vosotros esté sin pecado, sea el primero en arrojar una piedra contra ella.”
+Como seguían insistiendo en preguntarle, se enderezó y les dijo: “Aquel de vosotros que no tenga pecado, que sea el primero en tirarle una piedra.”
 
 ## Juan 8:8
 
@@ -44,13 +44,13 @@ Enderezándose, Jesús le preguntó, “Mujer, ¿dónde están? ¿Ninguno te ha 
 
 ## Juan 8:11
 
-“Ninguno, Señor,” respondió ella. Entonces Jesús dijo, “Ni yo te condeno. Vete ahora y no peques más.”
+“Ninguno, Señor,” respondió ella. Entonces Jesús dijo: “Yo tampoco te condeno. Ahora vete y no vuelvas a pecar.”
 
 ---
 
 ## Juan 8:12
 
-Jesús habló de nuevo a la gente, diciendo, “Yo soy la luz del mundo. El que me sigue no andará en tinieblas, sino que tendrá la luz de la vida.”
+Jesús volvió a hablar a la gente: “Yo soy la luz del mundo. Quien me sigue no caminará en la oscuridad, sino que tendrá la luz de la vida.”
 
 ## Juan 8:13
 
@@ -100,7 +100,7 @@ Pero continuó, “Vosotros sois del ámbito terrenal; yo soy de arriba. Vosotro
 
 ## Juan 8:24
 
-Os dije que moriréis en vuestros pecados; porque a menos que creáis que yo soy Él, ciertamente moriréis en vuestros pecados.”
+Os dije que moriríais en vuestros pecados; porque a menos que creáis que yo soy Él, ciertamente moriréis en vuestros pecados.”
 
 ## Juan 8:25
 
@@ -158,7 +158,7 @@ Sé que sois descendientes de Abraham. Sin embargo, estáis buscando una manera 
 
 ## Juan 8:38
 
-Os comparto lo que he visto en la presencia del Padre, y vosotros hacéis lo que habéis oído de vuestro padre.”
+Os hablo de lo que he visto en la presencia del Padre, y vosotros hacéis lo que habéis oído de vuestro padre.”
 
 ---
 
@@ -168,7 +168,7 @@ Os comparto lo que he visto en la presencia del Padre, y vosotros hacéis lo que
 
 ## Juan 8:40
 
-Como estáis, estáis buscando matarme, un hombre que os ha dicho la verdad que oí de Dios. Abraham no hizo tales cosas.
+Pero ahora estáis buscando matarme a mí, un hombre que os ha dicho la verdad que oí de Dios. Abraham no hizo tales cosas.
 
 ## Juan 8:41
 
@@ -222,11 +222,11 @@ Ante esto exclamaron, “¡Ahora sabemos que tienes un demonio! Abraham murió y
 
 ## Juan 8:53
 
-¿Eres más importante que nuestro padre Abraham? Incluso él falleció y murió, y también todos los profetas. ¿Quién pretendes ser?”
+¿Eres más importante que nuestro padre Abraham? Él murió, y también murieron todos los profetas. ¿Quién pretendes ser?”
 
 ## Juan 8:54
 
-Jesús respondió, “Si me glorifico a mí mismo, mi gloria no significa nada. Es mi Padre, a quien afirmáis como vuestro Dios, quien me glorifica.
+Jesús respondió, “Si me glorifico a mí mismo, mi gloria no significa nada. Es mi Padre, de quien decís que es vuestro Dios, quien me glorifica.
 
 ## Juan 8:55
 

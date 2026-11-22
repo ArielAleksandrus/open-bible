@@ -4,18 +4,18 @@
 
 ## Salmo 52:1
 
-> ¿Por qué te jactas de maldad, hombre poderoso?  
->  La fidelidad de Dios dura todo el día.
+> Tú, hombre poderoso, ¿por qué presumes de tu maldad?  
+>  La fidelidad de Dios no falla en todo el día.
 
 ## Salmo 52:2
 
 > Tu lengua trama destrucción,  
->  Como una navaja afilada, tú que practicas el engaño.
+>  como una navaja afilada, tú que practicas el engaño.
 
 ## Salmo 52:3
 
 > Prefieres el mal al bien,  
->  La mentira a hablar lo que es justo.
+>  la mentira a hablar lo que es justo.
 
 >  Selah
 
@@ -28,31 +28,31 @@
 
 ## Salmo 52:5
 
-> Sin embargo, Dios te derribará permanentemente;  
->  Te agarrará y te quitará de tu morada,  
->  Y te desarraigará de la tierra de los vivos.
+> Pero Dios acabará contigo para siempre;  
+>  te agarrará y te sacará de tu casa,  
+>  y te arrancará de raíz de la tierra de los que viven.
 
 >  Selah
 
 ## Salmo 52:6
 
-> Los justos verán y temerán,  
->  Y se burlarán de él, diciendo,
+> Los justos lo verán y se llenarán de temor,  
+>  y se reirán de él, diciendo,
 
 ## Salmo 52:7
 
-> “He aquí el hombre que no hizo de Dios su refugio,  
->  Sino que confió en la abundancia de sus riquezas,  
->  Y buscó refugio en su propia destrucción.”
+> “¡Mirad al hombre que no quiso refugiarse en Dios,  
+>  sino que confió en sus muchas riquezas,  
+>  y buscó refugio en lo mismo que lo destruía!”
 
 ---
 
 ## Salmo 52:8
 
-> Pero en cuanto a mí, soy como un olivo floreciente en la casa de Dios;  
->  Confío en la fidelidad de Dios por siempre y para siempre.
+> Pero yo soy como un olivo lleno de vida en la casa de Dios;  
+>  Pongo mi confianza en la fidelidad de Dios para siempre jamás.
 
 ## Salmo 52:9
 
-> Te alabaré por siempre, porque Tú lo has hecho,  
->  Y esperaré en Tu nombre, porque es bueno, en presencia de Tus fieles.
+> Te alabaré siempre por lo que has hecho,  
+>  y pondré mi esperanza en Tu nombre, porque es bueno, delante de los que te son fieles.

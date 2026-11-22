@@ -9,8 +9,7 @@
 
 ## Salmo 20:2
 
-> ¡Que te envíe ayuda desde el santuario,  
->  Y te sostenga desde Sion!
+> ¡Que te mande ayuda desde el santuario y te dé su apoyo desde Sion!
 
 ## Salmo 20:3
 
@@ -28,7 +27,7 @@
 ## Salmo 20:5
 
 > Cantaremos de alegría por tu victoria,  
->  Y en el nombre de nuestro Dios levantaremos nuestras banderas.
+>  y en el nombre de nuestro Dios levantaremos nuestras banderas.
 
 ---
 
@@ -38,20 +37,20 @@
 
 ## Salmo 20:6
 
-> Ahora estoy seguro de que el Señor salva a su ungido;  
->  Le responderá desde su santo cielo Con la poderosa fuerza de su mano derecha.
+> Ahora tengo la certeza de que el Señor rescata a su ungido;  
+>  desde su santo cielo le contestará con la fuerza poderosa de su mano derecha.
 
 ## Salmo 20:7
 
-> Unos confían en carros y otros en caballos,  
->  Pero nosotros confiaremos en el nombre del Señor, nuestro Dios.
+> Unos alaban los carros y otros los caballos,  
+>  pero nosotros alabaremos el nombre del Señor, nuestro Dios.
 
 ## Salmo 20:8
 
-> Ellos se han desplomado y caído,  
->  Pero nosotros nos hemos levantado y estamos firmes.
+> Ellos se han desplomado por tierra,  
+>  pero nosotros nos hemos puesto en pie y seguimos firmes.
 
 ## Salmo 20:9
 
 > Sálvanos, Señor;  
->  Que el Rey nos responda el día que llamemos.
+>  que el Rey nos responda el día que llamemos.

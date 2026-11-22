@@ -88,8 +88,8 @@ Así que los obreros trabajaron, y el trabajo de restauración progresó en sus 
 ## 2 Crónicas 24:14
 
 Cuando terminaron, llevaron el resto del dinero ante el rey y Joiada,  
- y se hizo en utensilios para la casa del Señor —utensilios para el servicio y para la ofrenda quemada, y bandejas y utensilios de oro y plata.  
- Y ofrecieron ofrendas quemadas en la casa del Señor continuamente todos los días de Joiada—.
+ y se hizo en utensilios para la casa del Señor —utensilios para el servicio y para el holocausto, y bandejas y utensilios de oro y plata—.  
+ Y ofrecieron holocaustos en la casa del Señor continuamente todos los días de Joiada.
 
 ---
 
@@ -113,7 +113,7 @@ Sin embargo, después de la muerte de Joiada, los oficiales de Judá vinieron y 
 
 ## 2 Crónicas 24:18
 
-Abandonaron la casa del Señor, el Dios de sus padres, y sirvieron a los Aserim y a los ídolos;  
+Abandonaron la casa del Señor, el Dios de sus padres, y sirvieron a las Aseras y a los ídolos;  
  así que la ira vino sobre Judá y Jerusalén por esta culpa suya.
 
 ---

@@ -34,11 +34,11 @@ Por la mañana, otro mensaje del Señor me llegó,
 
 ## Ezequiel 12:9
 
-“Hijo de hombre, ¿no te ha dicho la casa de Israel, esa casa rebelde, ‘¿Qué estás haciendo?’
+“Hijo de hombre, la casa de Israel, esa casa rebelde, te ha preguntado: ‘¿Qué estás haciendo?’
 
 ## Ezequiel 12:10
 
-Diles, ‘Esto es lo que dice el Señor Soberano: Esta profecía concierne al príncipe en Jerusalén y a toda la casa de Israel que está allí.’
+Diles, ‘Esto es lo que dice el Señor Dios: Esta profecía concierne al príncipe en Jerusalén y a toda la casa de Israel que está allí.’
 
 ## Ezequiel 12:11
 
@@ -54,7 +54,7 @@ Extenderé mi red sobre él, y será atrapado en mi trampa. Lo llevaré a Babilo
 
 ## Ezequiel 12:14
 
-Dispersaré al viento a todos los que están a su alrededor —su personal y todas sus tropas— y los perseguiré con una espada desenvainada.
+Dispersaré al viento a todos los que están a su alrededor —su séquito y todas sus tropas— y los perseguiré con una espada desenvainada.
 
 ## Ezequiel 12:15
 
@@ -62,7 +62,7 @@ Reconocerán que yo soy el Señor cuando los disperse entre las naciones y los e
 
 ## Ezequiel 12:16
 
-Pero perdonaré a algunos de ellos de la espada, el hambre y la peste, para que puedan contar todas sus prácticas detestables entre las naciones a donde vayan, y sabrán que yo soy el Señor.”
+Pero libraré a unos pocos de ellos de la espada, el hambre y la peste, para que puedan contar todas sus prácticas detestables entre las naciones a donde vayan, y sabrán que yo soy el Señor.”
 
 ## Ezequiel 12:17
 
@@ -74,7 +74,7 @@ Además, otro mensaje del Señor me llegó,
 
 ## Ezequiel 12:19
 
-Luego di al pueblo de la tierra, ‘Esto es lo que dice el Señor Soberano sobre los habitantes de Jerusalén y la tierra de Israel: Comerán su pan con ansiedad y beberán su agua con horror, porque su tierra será despojada de su plenitud debido a la violencia de todos los que viven allí.
+Luego di al pueblo de la tierra, ‘Esto es lo que dice el Señor Dios sobre los habitantes de Jerusalén y la tierra de Israel: Comerán su pan con ansiedad y beberán su agua con horror, porque su tierra será despojada de su plenitud debido a la violencia de todos los que viven allí.
 
 ## Ezequiel 12:20
 
@@ -86,11 +86,11 @@ Luego otro mensaje del Señor me llegó,
 
 ## Ezequiel 12:22
 
-“Hijo de hombre, ¿qué es este proverbio que tenéis en la tierra de Israel, diciendo, ‘Los días pasan y toda visión se desvanece’?
+“Hijo de hombre, ¿qué refrán es ese que tenéis en la tierra de Israel, que dice: ‘Los días pasan y toda visión se desvanece’?
 
 ## Ezequiel 12:23
 
-Por lo tanto, diles, ‘Esto es lo que dice el Señor Soberano: Pondré fin a este proverbio, y ya no lo citarán en Israel.’ Diles, ‘Los días están cerca cuando toda visión se cumplirá.
+Por lo tanto, diles, ‘Esto es lo que dice el Señor Dios: Pondré fin a este proverbio, y ya no lo citarán en Israel.’ Diles, ‘Se acercan los días en que toda visión se cumplirá.
 
 ## Ezequiel 12:24
 
@@ -98,7 +98,7 @@ Porque no habrá más visiones falsas ni adivinaciones engañosas entre la casa 
 
 ## Ezequiel 12:25
 
-Porque yo, el Señor, hablaré cualquier palabra que hable, y se cumplirá sin demora. Porque en vuestros días, casa rebelde, hablaré la palabra y la cumpliré,’ declara el Señor Soberano.”
+Porque yo, el Señor, hablaré, y la palabra que hable se cumplirá sin demora. Porque en vuestros días, casa rebelde, hablaré la palabra y la cumpliré,’ declara el Señor Dios.”
 
 ## Ezequiel 12:26
 
@@ -106,8 +106,8 @@ Además, otro mensaje del Señor me llegó,
 
 ## Ezequiel 12:27
 
-“Hijo de hombre, he aquí, la casa de Israel está diciendo, ‘La visión que él ve es para muchos años a partir de ahora, y profetiza sobre un futuro lejano.’
+“Hijo de hombre, he aquí, la casa de Israel está diciendo, ‘La visión que él ve es para dentro de muchos años, y profetiza sobre un futuro lejano.’
 
 ## Ezequiel 12:28
 
-Por lo tanto, diles, ‘Esto es lo que dice el Señor Soberano: Ninguna de mis palabras se retrasará más. Cualquier palabra que hable se cumplirá,’ declara el Señor Soberano.”
+Por lo tanto, diles, ‘Esto es lo que dice el Señor Dios: Ninguna de mis palabras se retrasará más. Cualquier palabra que hable se cumplirá,’ declara el Señor Dios.”

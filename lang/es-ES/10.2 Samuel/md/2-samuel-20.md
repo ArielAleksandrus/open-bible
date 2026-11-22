@@ -5,8 +5,8 @@
 Ahora bien, estaba allí un hombre inútil, cuyo nombre era Seba, hijo de Bicri, un benjaminita.  
  Él tocó la trompeta y dijo:  
  “¡No tenemos parte en David,  
- ni herencia en el hijo de Isaí;  
- ¡cada uno a sus tiendas, oh Israel!”
+ ni herencia en el hijo de Isaí!  
+ ¡Cada uno a sus tiendas, oh Israel!”
 
 ## 2 Samuel 20:2
 

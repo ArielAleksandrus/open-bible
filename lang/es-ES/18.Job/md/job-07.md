@@ -17,7 +17,7 @@
 
 ## Job 7:4
 
-> Cuando me acuesto, pregunto, ‘¿Cuándo me levantaré?’  
+> Cuando me acuesto, pregunto: ‘¿Cuándo me levantaré?’  
 >  Pero la noche se alarga,  
 >  y estoy inquieto hasta el amanecer.
 
@@ -46,7 +46,7 @@
 ## Job 7:9
 
 > Una nube se desvanece, y ya no está,  
->  así quien desciende al Sheol no regresa.
+>  así quien desciende al Seol no regresa.
 
 ## Job 7:10
 
@@ -68,7 +68,7 @@
 
 ## Job 7:13
 
-> Si pienso, ‘Mi cama me consolará,  
+> Si pienso: ‘Mi cama me consolará,  
 >  mi lecho aliviará mi queja,’
 
 ## Job 7:14

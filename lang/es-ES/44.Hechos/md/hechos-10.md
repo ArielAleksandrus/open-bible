@@ -92,7 +92,7 @@ Pedro bajó hacia los hombres y dijo: “Yo soy a quien buscáis. ¿Cuál es la 
 
 ## Hechos 10:22
 
-Ellos respondieron: “Cornelio, un centurión, un hombre justo y temeroso de Dios, bien hablado por toda la nación judía, fue dirigido por un ángel santo para llamarte a su casa para escuchar lo que tienes que decir.”
+Ellos respondieron: “Cornelio, un centurión, un hombre justo y temeroso de Dios, de quien habla bien toda la nación judía, recibió instrucciones de un ángel santo de hacerte venir a su casa para escuchar lo que tienes que decir.”
 
 ## Hechos 10:23
 
@@ -118,7 +118,7 @@ Mientras conversaba con él, Pedro entró y encontró una gran reunión de perso
 
 ## Hechos 10:28
 
-Les dijo: “Vosotros sabéis que es contra nuestra ley que un judío se asocie con o visite a un gentil. Pero Dios me ha mostrado que no debo llamar impuro o inmundo a nadie.
+Les dijo: “Vosotros sabéis que es contra nuestra ley que un judío se junte con un gentil o lo visite. Pero Dios me ha mostrado que no debo llamar impuro o inmundo a nadie.
 
 ## Hechos 10:29
 
@@ -158,7 +158,7 @@ Vosotros conocéis el mensaje que Dios envió al pueblo de Israel, proclamando l
 
 ## Hechos 10:37
 
-Sabéis lo que ha sucedido en toda Judea, comenzando en Galilea después del bautismo que Juan predicó—
+Sabéis lo que ha sucedido en toda Judea, comenzando en Galilea después del bautismo que Juan predicó,
 
 ## Hechos 10:38
 
@@ -170,7 +170,7 @@ Somos testigos de todo lo que Él hizo en la tierra de los judíos y en Jerusal�
 
 ## Hechos 10:40
 
-pero Dios lo resucitó de entre los muertos al tercer día y permitió que se le viera,
+pero Dios lo resucitó de entre los muertos al tercer día e hizo que se apareciera,
 
 ## Hechos 10:41
 

@@ -38,7 +38,7 @@ Y llevó la carta al rey de Israel, que decía:
 
 Pero cuando el rey de Israel leyó la carta, rasgó sus vestiduras y dijo,  
  “¿Soy yo Dios, para matar y dar vida, que este hombre me envía palabra para curar a un hombre de su lepra?  
- Pero considera ahora, y ve cómo busca una pelea conmigo.”
+ Fijaos bien y ved cómo busca pelea conmigo.”
 
 ---
 
@@ -99,21 +99,21 @@ Pero él dijo,
 ## 2 Reyes 5:17
 
 Entonces Naamán dijo,  
- “Si no, por favor deja que a tu siervo se le den dos cargas de tierra de mula;  
+ “Si no, por favor deja que a tu siervo se le den la carga de tierra de dos mulas;  
  porque tu siervo ya no ofrecerá holocausto ni sacrificio a otros dioses, sino solo al Señor.
 
 ## 2 Reyes 5:18
 
 En este asunto que el Señor perdone a tu siervo:  
  cuando mi señor entre en la casa de Rimón para adorar allí,  
- y se apoye en mi mano y yo me incline en la casa de Rimón —cuando me incline en la casa de Rimón,  
- que el Señor perdone a tu siervo en este asunto—.  
+ y se apoye en mi mano y yo me incline en la casa de Rimón; cuando me incline en la casa de Rimón,  
+ que el Señor perdone a tu siervo en este asunto.  
 ”
 
 ## 2 Reyes 5:19
 
-Y él le dijo, “Ve en paz.”  
- Así que se alejó de él a corta distancia.
+Y él le dijo, “Ve en paz.  
+” Así que se alejó de él un corto trecho.
 
 ---
 

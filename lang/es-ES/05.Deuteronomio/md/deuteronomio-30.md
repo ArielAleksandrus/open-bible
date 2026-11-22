@@ -4,7 +4,7 @@
 Cuando todas estas bendiciones y maldiciones que he puesto delante de ti vengan sobre ti, y las tomes a pecho en todas las naciones donde el Señor tu Dios te haya dispersado,
 
 ## Deuteronomio 30:2
-y tú y tus hijos regresen al Señor tu Dios y le obedezcan con todo vuestro corazón y con toda vuestra alma, conforme a todo lo que te mando hoy,
+y tú y tus hijos volváis al Señor tu Dios y le obedezcáis con todo vuestro corazón y con toda vuestra alma, conforme a todo lo que te mando hoy,
 
 ## Deuteronomio 30:3
 entonces el Señor tu Dios restaurará tu fortuna y tendrá compasión de ti, y te reunirá de nuevo de todos los pueblos donde te haya dispersado.
@@ -46,16 +46,16 @@ No, la palabra está muy cerca de ti; está en tu boca y en tu corazón para que
 Mira, hoy pongo delante de ti la vida y la prosperidad, la muerte y la adversidad.
 
 ## Deuteronomio 30:16
-Porque te mando hoy que ames al Señor tu Dios, que andes en Sus caminos, y que guardes Sus mandamientos, decretos y leyes; entonces vivirás y aumentarás, y el Señor tu Dios te bendecirá en la tierra que estás entrando para poseer.
+Porque te mando hoy que ames al Señor tu Dios, que andes en Sus caminos, y que guardes Sus mandamientos, decretos y leyes; entonces vivirás y aumentarás, y el Señor tu Dios te bendecirá en la tierra en la que vas a entrar para poseerla.
 
 ## Deuteronomio 30:17
 Pero si tu corazón se aparta y no obedeces, y si te dejas llevar para inclinarte ante otros dioses y adorarlos,
 
 ## Deuteronomio 30:18
-te declaro hoy que ciertamente perecerás. No prolongarás tus días en la tierra que estás cruzando el Jordán para entrar y poseer.
+te declaro hoy que ciertamente perecerás. No prolongarás tus días en la tierra en la que vas a entrar al otro lado del Jordán para poseerla.
 
 ## Deuteronomio 30:19
 Llamo al cielo y a la tierra para que sean testigos contra ti hoy de que he puesto delante de ti la vida y la muerte, bendiciones y maldiciones. Ahora elige la vida, para que tú y tus descendientes viváis
 
 ## Deuteronomio 30:20
-amando al Señor tu Dios, escuchando Su voz, y aferrándote a Él. Porque el Señor es tu vida, y Él te dará muchos años en la tierra que juró dar a tus padres, Abraham, Isaac y Jacob.
+amando al Señor tu Dios, escuchando Su voz, y aferrándote a Él. Porque el Señor es tu vida, y Él te dará muchos años en la tierra que juró dar a tus padres, Abraham, Isaac y Jacob.”

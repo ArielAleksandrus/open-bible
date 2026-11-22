@@ -28,7 +28,7 @@ Ester dijo: “¡Un adversario y enemigo! ¡Este malvado Amán!” Entonces Amá
 
 ## Ester 7:7
 
-El rey se levantó en ira del vino y fue al jardín del palacio. Pero Amán, dándose cuenta de que el rey había determinado el mal contra él, se quedó atrás para suplicar a la reina Ester por su vida.
+El rey se levantó enfurecido de donde bebían vino y salió al jardín del palacio. Pero Amán, dándose cuenta de que el rey había determinado el mal contra él, se quedó atrás para suplicar a la reina Ester por su vida.
 
 ---
 
@@ -38,11 +38,11 @@ Cuando el rey regresó del jardín del palacio al lugar del banquete, Amán esta
 
 ## Ester 7:9
 
-Entonces Harbona, uno de los eunucos que servían al rey, dijo: “Mira, una horca de cincuenta codos de altura está en la casa de Amán. La hizo para Mardoqueo, quien habló para ayudar al rey.”
+Entonces Harbona, uno de los eunucos que servían al rey, dijo: “Mira, una horca de cincuenta codos de altura está en la casa de Amán. La hizo para Mardoqueo, quien habló para ayudar al rey.
 
 ---
 
- El rey dijo: “¡Cuélguenlo en ella!”
+” El rey dijo: “¡Colgadlo en ella!”
 
 ## Ester 7:10
 

@@ -55,7 +55,7 @@ Los caldeos rompieron las columnas de bronce, las bases y el mar de bronce que e
 También se llevaron las ollas, palas, despabiladeras, tazones, cucharones y todos los utensilios de bronce utilizados en el servicio del templo.
 
 ## Jeremías 52:19
-El capitán de la guardia tomó los tazones, braseros, tazones, ollas, candelabros, cucharones y tazones para libaciones —todo lo que estaba hecho de oro fino o plata—.
+El capitán de la guardia tomó las copas, los braseros, los tazones, las ollas, candelabros, cucharones y tazones para libaciones —todo lo que estaba hecho de oro fino o plata—.
 
 ## Jeremías 52:20
 El bronce de las dos columnas, el mar, los doce toros de bronce debajo de él y las bases, que el rey Salomón había hecho para la casa del Señor, era incalculable.
@@ -82,13 +82,13 @@ Nabuzaradán, el capitán de la guardia, los apresó y los llevó al rey de Babi
 El rey de Babilonia los golpeó y los mató en Ribla, en la tierra de Hamat. Así Judá fue llevado al exilio de su tierra.
 
 ## Jeremías 52:28
-Este es el número de personas que Nabucodonosor llevó al exilio: en el séptimo año, 3,023 judíos;
+Este es el número de personas que Nabucodonosor llevó al exilio: en el séptimo año, 3 023 judíos;
 
 ## Jeremías 52:29
 en el decimoctavo año de Nabucodonosor, 832 individuos de Jerusalén;
 
 ## Jeremías 52:30
-en el vigésimo tercer año de Nabucodonosor, Nabuzaradán, el capitán de la guardia, llevó al exilio a 745 judíos; el total fue de 4,600 personas.
+en el vigésimo tercer año de Nabucodonosor, Nabuzaradán, el capitán de la guardia, llevó al exilio a 745 judíos; el total fue de 4 600 personas.
 
 ## Jeremías 52:31
 En el trigésimo séptimo año del exilio de Joaquín, rey de Judá, en el duodécimo mes, en el vigésimo quinto día del mes, Evil-merodac, rey de Babilonia, en el primer año de su reinado, mostró favor a Joaquín, rey de Judá, y lo liberó de la prisión.

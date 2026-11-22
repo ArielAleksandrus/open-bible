@@ -4,7 +4,7 @@
 
 Entonces Eliseo habló a la mujer cuyo hijo él había resucitado, diciendo,  
  “Levántate y vete, tú y tu casa, y reside donde puedas;  
- porque el Señor ha llamado a una hambruna, y también vendrá sobre la tierra por siete años.”
+ porque el Señor ha llamado al hambre, y también vendrá sobre la tierra por siete años.”
 
 ## 2 Reyes 8:2
 
@@ -116,7 +116,7 @@ Sin embargo, el Señor no quiso destruir a Judá, por amor a su siervo David,
 
 ## 2 Reyes 8:20
 
-En sus días Edom se rebeló de bajo el dominio de Judá, y nombraron un rey sobre ellos.
+En sus días Edom se rebeló contra el dominio de Judá, y nombraron un rey sobre ellos.
 
 ## 2 Reyes 8:21
 

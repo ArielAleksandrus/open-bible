@@ -80,7 +80,7 @@ Los líderes judíos no creyeron que él había sido ciego y había recibido la 
 
 ## Juan 9:19
 
-Les preguntaron: “¿Es este su hijo, del que dicen que nació ciego? ¿Cómo es que ahora puede ver?”
+Les preguntaron: “¿Es este vuestro hijo, del que decís que nació ciego? ¿Cómo es que ahora puede ver?”
 
 ## Juan 9:20
 
@@ -88,7 +88,7 @@ Sus padres respondieron: “Sabemos que él es nuestro hijo, y que nació ciego.
 
 ## Juan 9:21
 
-Pero cómo puede ver ahora, o quién le abrió los ojos, no lo sabemos. Pregúntenle a él. Es mayor de edad; él hablará por sí mismo.”
+Pero cómo puede ver ahora, o quién le abrió los ojos, no lo sabemos. Preguntadle a él. Es mayor de edad; él hablará por sí mismo.”
 
 ## Juan 9:22
 
@@ -96,7 +96,7 @@ Sus padres dijeron esto porque tenían miedo de los líderes judíos, que ya hab
 
 ## Juan 9:23
 
-Por eso sus padres dijeron: “Es mayor de edad; pregúntenle a él.”
+Por eso sus padres dijeron: “Es mayor de edad; preguntadle a él.”
 
 ---
 
@@ -114,7 +114,7 @@ Entonces le preguntaron más: “¿Qué te hizo? ¿Cómo te abrió los ojos?”
 
 ## Juan 9:27
 
-Él respondió: “Ya les he dicho y no escucharon. ¿Por qué quieren oírlo de nuevo? ¿Quieren convertirse también en Sus discípulos?”
+Él respondió: “Ya os lo he dicho y no escuchasteis. ¿Por qué queréis oírlo de nuevo? ¿Queréis convertiros también en Sus discípulos?”
 
 ## Juan 9:28
 
@@ -126,7 +126,7 @@ Sabemos que Dios habló a Moisés, pero en cuanto a ese hombre, no sabemos de d�
 
 ## Juan 9:30
 
-El hombre respondió: “¡Eso es notable! No saben de dónde viene, sin embargo, Él abrió mis ojos.
+El hombre respondió: “¡Eso es notable! No sabéis de dónde viene, sin embargo, Él abrió mis ojos.
 
 ## Juan 9:31
 
@@ -152,7 +152,7 @@ Jesús oyó que lo habían echado fuera, y cuando lo encontró, le dijo: “¿Cr
 
 ## Juan 9:36
 
-El hombre preguntó: “¿Quién es Él, señor? Por favor, dígamelo, para que pueda creer en Él.”
+El hombre preguntó: “¿Quién es Él, señor? Por favor, dímelo, para que pueda creer en Él.”
 
 ## Juan 9:37
 
@@ -174,4 +174,4 @@ Algunos fariseos que estaban con Él oyeron esto y le preguntaron: “¿Qué? ¿
 
 ## Juan 9:41
 
-Jesús dijo: “Si fueran ciegos, no serían culpables de pecado; pero ahora que afirman que pueden ver, su culpa permanece.
+Jesús dijo: “Si fuerais ciegos, no seríais culpables de pecado; pero ahora que afirmáis que podéis ver, vuestra culpa permanece.”

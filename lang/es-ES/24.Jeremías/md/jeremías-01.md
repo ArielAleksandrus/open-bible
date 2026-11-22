@@ -22,7 +22,7 @@ Entonces vino a mí un mensaje del Señor, diciendo:
 
 ## Jeremías 1:6
 
-Entonces dije: “¡Ay, Señor Soberano! No sé hablar, porque soy joven.”
+Entonces dije: “¡Ay, Señor Dios! No sé hablar, porque soy joven.”
 
 ## Jeremías 1:7
 

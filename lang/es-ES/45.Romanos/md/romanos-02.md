@@ -10,7 +10,7 @@ Y sabemos que el juicio de Dios contra los que hacen tales cosas es conforme a l
 
 ## Romanos 2:3
 
-Entonces, cuando tú, un simple humano, juzgas a ellos y sin embargo haces las mismas cosas, ¿piensas que escaparás del juicio de Dios?
+Entonces, cuando tú, un simple humano, los juzgas y sin embargo haces las mismas cosas, ¿piensas que escaparás del juicio de Dios?
 
 ## Romanos 2:4
 
@@ -48,11 +48,11 @@ Porque Dios no muestra favoritismo.
 
 ## Romanos 2:12
 
-Todos los que han pecado sin la Ley también enfrentarán destrucción sin la Ley, y todos los que han pecado bajo la Ley serán juzgados por la Ley.
+Todos los que han pecado sin la Ley también perecerán sin la Ley, y todos los que han pecado bajo la Ley serán juzgados por la Ley.
 
 ## Romanos 2:13
 
-Porque no son los que simplemente oyen la Ley los justos ante los ojos de Dios, sino los que actúan conforme a la Ley serán justificados.
+Porque no son justos ante los ojos de Dios los que simplemente oyen la Ley, sino que los que actúan conforme a la Ley serán justificados.
 
 ## Romanos 2:14
 
@@ -82,7 +82,7 @@ si estás convencido de que eres guía de los ciegos, luz para los que están en
 
 ## Romanos 2:20
 
-instructor de los necios, maestro de niños, porque tienes en la Ley la encarnación del conocimiento y la verdad—
+instructor de los necios, maestro de niños, porque tienes en la Ley la encarnación del conocimiento y la verdad,
 
 ## Romanos 2:21
 

@@ -3,7 +3,7 @@
 ## 2 Reyes 9:1
 
 Entonces el profeta Eliseo llamó a uno de los hijos de los profetas y le dijo:  
- “Prepárate, toma esta redoma de aceite en tu mano y ve a Ramot de Galaad.
+ “Prepárate, toma en la mano este frasco de aceite y ve a Ramot de Galaad.
 
 ## 2 Reyes 9:2
 
@@ -12,9 +12,9 @@ Cuando llegues allí, busca a Jehú, hijo de Josafat, hijo de Nimsi,
 
 ## 2 Reyes 9:3
 
-Luego toma la redoma de aceite y derrámala sobre su cabeza, y dile:  
- ‘Así dice el Señor: Yo te he ungido rey sobre Israel.’  
- Luego abre la puerta y huye, y no te detengas.”
+Luego toma el frasco de aceite, derrámalo sobre su cabeza y dile:  
+ ‘Así dice el Señor: Yo te he ungido rey sobre Israel.  
+’ Después abre la puerta y huye sin demorarte.”
 
 ## 2 Reyes 9:4
 
@@ -140,7 +140,7 @@ Entonces Joram giró las riendas y huyó, y dijo a Ocozías, “¡Traición, Oco
 ## 2 Reyes 9:24
 
 Entonces Jehú tensó su arco con toda su fuerza y disparó a Joram entre los brazos;  
- y la flecha atravesó su corazón, y se hundió en su carro.
+ y la flecha atravesó su corazón, y se desplomó en su carro.
 
 ## 2 Reyes 9:25
 
@@ -160,8 +160,8 @@ Y Jehú dijo a Bidcar su oficial,
 ## 2 Reyes 9:27
 
 Ahora cuando Ocozías el rey de Judá vio esto, huyó por el camino a Bet-hagán.  
- Pero Jehú lo persiguió y dijo, “Derríbenlo también en el carro.”  
- Así que lo derribaron en la subida a Gur, que está en Ibleam.  
+ Pero Jehú lo persiguió y dijo, “Heridlo a él también en el carro.  
+” Así que lo derribaron en la subida a Gur, que está en Ibleam.  
  Pero huyó a Meguido y murió allí.
 
 ## 2 Reyes 9:28
@@ -187,19 +187,19 @@ Cuando Jehú entró por la puerta, ella dijo:
 ## 2 Reyes 9:32
 
 Entonces él levantó su rostro hacia la ventana y dijo,  
- “¿Quién está de mi lado? ¿Quién?”  
- Y dos o tres oficiales miraron hacia abajo a él.
+ “¿Quién está de mi lado? ¿Quién?  
+” Y dos o tres oficiales se asomaron a mirarlo.
 
 ## 2 Reyes 9:33
 
-Y él dijo, “Échenla abajo.”  
+Y él dijo, “Echadla abajo.”  
  Así que la echaron abajo, y parte de su sangre fue salpicada en la pared y en los caballos,  
  y él la pisoteó.
 
 ## 2 Reyes 9:34
 
 Luego entró, comió y bebió, y dijo,  
- “Atiendan a esta mujer maldita y sepúltenla, porque es hija de rey.”
+ “Ocupaos de esta mujer maldita y sepultadla, porque es hija de rey.”
 
 ## 2 Reyes 9:35
 
@@ -208,7 +208,7 @@ Así que fueron a sepultarla,
 
 ## 2 Reyes 9:36
 
-Por lo tanto regresaron e informaron a él.  
+Por lo tanto regresaron y se lo informaron.  
  Y él dijo,  
  “Esta es la palabra del Señor, que habló por medio de su siervo Elías el tisbita, diciendo,  
  ‘En la propiedad de Jezreel los perros comerán la carne de Jezabel;

@@ -2,10 +2,10 @@
 
 ## 1 Crónicas 17:1
 
-Y sucedió que, cuando David vivía en su casa, David dijo al profeta Natán:
+Cuando David ya vivía en su casa, le dijo al profeta Natán: “Mira,
 
->  “He aquí, yo habito en una casa de cedro,  
->  pero el arca del pacto del Señor está bajo cortinas de tienda.”
+>  yo vivo en una casa de cedro,  
+>  mientras que el arca del pacto del Señor está bajo cortinas de tienda.”
 
 ---
 
@@ -44,8 +44,8 @@ Pero sucedió aquella misma noche,
 
 > Dondequiera que he andado con todo Israel,  
 >  ¿he hablado una palabra con alguno de los jueces de Israel,  
->  a quienes mandé que apacentaran a Mi pueblo, diciendo,  
->  “¿Por qué no me habéis edificado una casa de cedro?”’
+>  a quienes mandé que apacentaran a Mi pueblo, para decirle:  
+>  “¿Por qué no me habéis edificado una casa de cedro?”?’
 
 ---
 
@@ -70,7 +70,7 @@ Pero sucedió aquella misma noche,
 
 > Y designaré un lugar para Mi pueblo Israel,  
 >  y los plantaré, para que habiten en su propio lugar y no sean movidos de nuevo;  
->  y los malvados no los desgastarán más como antes,
+>  y los malvados no los oprimirán más como antes,
 
 ---
 
@@ -130,9 +130,9 @@ Entonces el rey David entró y se sentó delante del Señor, y dijo:
 
 ## 1 Crónicas 17:17
 
-> Esto fue una pequeña cosa a Tus ojos, Dios,  
->  pero has hablado de la casa de Tu siervo para un largo tiempo por venir,  
->  y me has considerado según el estándar de un hombre de alto grado, Señor Dios.
+> Esto fue una pequeña cosa a Tus ojos,  
+>  Dios, pero has hablado de la casa de Tu siervo para un largo tiempo por venir,  
+>  y me has mirado como a un hombre de alta condición, Señor Dios.
 
 ---
 
@@ -184,8 +184,8 @@ Entonces el rey David entró y se sentó delante del Señor, y dijo:
 ## 1 Crónicas 17:24
 
 > Que Tu nombre sea confirmado y sea grande para siempre,  
->  diciendo, “El Señor de los ejércitos es el Dios de Israel, incluso un Dios para Israel;  
->  y la casa de Tu siervo David está establecida delante de Ti.”
+>  diciendo: ‘El Señor de los ejércitos es el Dios de Israel, incluso un Dios para Israel;  
+>  y la casa de Tu siervo David está establecida delante de Ti.’
 
 ---
 

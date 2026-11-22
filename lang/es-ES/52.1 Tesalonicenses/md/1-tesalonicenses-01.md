@@ -16,15 +16,15 @@ teniendo constantemente presente vuestra obra de fe, trabajo de amor y persevera
 
 ## 1 Tesalonicenses 1:4
 
-sabiendo, hermanos amados por Dios, de su elección de vosotros;
+sabiendo, hermanos y hermanas amados por Dios, que Él os ha escogido;
 
 ## 1 Tesalonicenses 1:5
 
-porque nuestro evangelio no llegó a vosotros solo en palabra, sino también en poder y en el Espíritu Santo y con plena convicción, como sabéis qué clase de hombres fuimos entre vosotros por amor a vosotros.
+porque el evangelio que os anunciamos no os llegó solo con palabras, sino también con poder, con el Espíritu Santo y con total convicción; y ya sabéis cómo nos comportamos entre vosotros para vuestro bien.
 
 ## 1 Tesalonicenses 1:6
 
-Y vosotros os hicisteis imitadores de nosotros y del Señor, habiendo recibido la palabra en medio de gran tribulación con el gozo del Espíritu Santo,
+Vosotros seguisteis nuestro ejemplo y el del Señor, pues aceptasteis el mensaje en medio de muchos sufrimientos, con la alegría que da el Espíritu Santo,
 
 ## 1 Tesalonicenses 1:7
 
@@ -36,8 +36,8 @@ Porque la palabra del Señor ha resonado desde vosotros, no solo en Macedonia y 
 
 ## 1 Tesalonicenses 1:9
 
-Porque ellos mismos cuentan de nosotros la acogida que tuvimos de vosotros, y cómo os convertisteis a Dios dejando los ídolos para servir al Dios vivo y verdadero,
+Ellos mismos cuentan cómo nos recibisteis y cómo dejasteis los ídolos y os volvisteis a Dios para servir al Dios vivo y verdadero,
 
 ## 1 Tesalonicenses 1:10
 
-y esperar de los cielos a su Hijo, a quien resucitó de los muertos —Jesús, quien nos libra de la ira venidera—.
+y para esperar que venga del cielo su Hijo, a quien Dios levantó de entre los muertos: Jesús, que nos libra del castigo que se acerca.

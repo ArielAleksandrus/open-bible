@@ -46,7 +46,7 @@ Entonces el sacerdote Esdras se levantó y les dijo: “Habéis sido infieles al
 
 ## Esdras 10:11
 
-Ahora haced confesión al Señor, el Dios de vuestros antepasados, y cumplid Su voluntad. Separáos de los pueblos de la tierra y de vuestras mujeres extranjeras.”
+Ahora haced confesión al Señor, el Dios de vuestros antepasados, y cumplid Su voluntad. Separaos de los pueblos de la tierra y de vuestras mujeres extranjeras.”
 
 ## Esdras 10:12
 
@@ -62,7 +62,7 @@ Que nuestros líderes actúen en nombre de toda la asamblea, y que todos en nues
 
 ## Esdras 10:15
 
-Jonathan hijo de Asael y Jahzeías hijo de Ticva fueron los únicos que se opusieron a esto, con Mesulam y Sabatai el levita apoyándolos.
+Jonatán hijo de Asael y Jahzeías hijo de Ticva fueron los únicos que se opusieron a esto, con Mesulam y Sabatai el levita apoyándolos.
 
 ## Esdras 10:16
 
@@ -70,7 +70,7 @@ Así que los exiliados hicieron lo propuesto. El sacerdote Esdras seleccionó ho
 
 ## Esdras 10:17
 
-y para el primer día del primer mes completaron el tratamiento de todos los hombres que se habían casado con mujeres extranjeras.
+y para el primer día del primer mes terminaron de examinar el caso de todos los hombres que se habían casado con mujeres extranjeras.
 
 ## Esdras 10:18
 
@@ -98,7 +98,7 @@ Entre los levitas: Jozabad, Simei, Celaías (también conocido como Quelita), Pe
 
 ## Esdras 10:24
 
-Eliasib estaba entre los que servían en los roles musicales. Salum, Telem y Uri estaban entre los que servían como porteros.
+Eliasib estaba entre los cantores. Salum, Telem y Uri estaban entre los que servían como porteros.
 
 ## Esdras 10:25
 
@@ -122,7 +122,7 @@ De la familia de Bani: Mesulam, Maluc, Adaías, Jasub, Seal y Jeremot.
 
 ## Esdras 10:30
 
-De la familia de Pahat-moab: Adna, Quelal, Benaías, Maasías, Matanías, Besaleel, Binui y Manasés.
+De la familia de Pahat-moab: Adna, Quelal, Benaías, Maasías, Matanías, Bezalel, Binui y Manasés.
 
 ## Esdras 10:31
 

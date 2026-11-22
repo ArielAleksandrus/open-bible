@@ -2,7 +2,7 @@
 
 ## Proverbios 26:1
 
-Como la nieve en verano y la lluvia en la cosecha, así no conviene la honra al necio.
+Al necio la honra le sienta tan mal como la nieve en verano o la lluvia en la cosecha.
 
 ## Proverbios 26:2
 
@@ -10,11 +10,11 @@ Como el gorrión que revolotea o la golondrina que vuela, así la maldición sin
 
 ## Proverbios 26:3
 
-El látigo para el caballo, el freno para el asno, y la vara para la espalda de los necios.
+Para el caballo, el látigo; para el burro, las riendas; y para la espalda del necio, el palo.
 
 ## Proverbios 26:4
 
-No respondas al necio conforme a su necedad, para que no seas tú también como él.
+No le contestes al necio con sus mismas tonterías, o acabarás siendo como él.
 
 ## Proverbios 26:5
 
@@ -42,7 +42,7 @@ Como un arquero que dispara sin rumbo es quien contrata a un necio o a cualquier
 
 ## Proverbios 26:11
 
-Como el perro que vuelve a su vómito, así el necio repite su necedad.
+El necio que vuelve a sus tonterías es como el perro que vuelve a lo que ha vomitado.
 
 ## Proverbios 26:12
 
@@ -78,11 +78,11 @@ es quien engaña a su vecino y dice: “¡Solo estaba bromeando!”
 
 ## Proverbios 26:20
 
-Sin leña se apaga el fuego; sin chismoso, se calma la contienda.
+Cuando se acaba la leña, el fuego se apaga; cuando no hay chismosos, la pelea se calma.
 
 ## Proverbios 26:21
 
-Como el carbón al brasero y la leña al fuego, así es el hombre contencioso para encender rencillas.
+Lo que el carbón es para las brasas y la leña para el fuego, eso es el pendenciero para encender peleas.
 
 ## Proverbios 26:22
 
@@ -106,7 +106,7 @@ Su malicia puede estar oculta por el engaño, pero su maldad será revelada en l
 
 ## Proverbios 26:27
 
-Quien cava un hoyo caerá en él; si alguien hace rodar una piedra, volverá sobre él.
+El que hace un hoyo para otros se caerá en él; al que echa a rodar una piedra, se le vendrá encima.
 
 ## Proverbios 26:28
 

@@ -46,14 +46,14 @@ Hijo mío, si los pecadores intentan atraerte, no los sigas.
 
 Si dicen: “Únete a nosotros,
 
->  esperemos en secreto por sangre,
+>  acechemos para derramar sangre,
 >  embosquemos al inocente sin causa;
 
 ## Proverbios 1:12
 
-Traguémoslos vivos como el sepulcro,
+Vamos a tragárnoslos vivos, como hace la tumba,
 
->  y enteros, como los que descienden a la fosa;
+>  enteritos, como a los que bajan a la fosa;
 
 ## Proverbios 1:13
 
@@ -63,13 +63,13 @@ Encontraremos toda clase de bienes preciosos,
 
 ## Proverbios 1:14
 
-Echa tu suerte con nosotros,
+Únete a nuestro grupo;
 
->  compartiremos todos una bolsa”—
+>  todo lo que saquemos irá a una misma bolsa”—
 
 ## Proverbios 1:15
 
-Hijo mío, no andes por su camino, aparta tu pie de su senda,
+hijo mío, no vayas por donde ellos van; no pongas el pie en sus caminos,
 
 ## Proverbios 1:16
 
@@ -82,76 +82,74 @@ Porque son rápidos para perseguir el mal,
 
 ## Proverbios 1:18
 
-Pero estos hombres están tendiendo una trampa para sí mismos; emboscan sus propias vidas.
+Pero estos hombres están tendiendo una trampa para sí mismos; acechan contra su propia vida.
 
 ## Proverbios 1:19
 
-Así son los caminos de todos los que codician ganancias injustas; quita la vida de quienes la persiguen.
+Así son los caminos de todos los que codician ganancias injustas; esa ganancia quita la vida a quienes la persiguen.
 
 ---
 
 ## Proverbios 1:20
 
-La sabiduría clama en la calle,
- levanta su voz en las plazas públicas;
+La sabiduría grita en la calle y hace oír su voz en las plazas;
 
 ## Proverbios 1:21
 
-En la cabeza de las calles bulliciosas clama,
+En las esquinas de las calles bulliciosas clama,
  en la entrada de las puertas de la ciudad pronuncia su discurso:
 
 ## Proverbios 1:22
 
-“¿Hasta cuándo, simples, amaréis la simpleza?
+“¿Hasta cuándo, ingenuos, os va a gustar vuestra ingenuidad?
 
->  ¿Hasta cuándo los burladores se deleitarán en la burla y los necios odiarán el conocimiento?
+>  ¿Hasta cuándo los burlones disfrutarán burlándose y los necios despreciarán el saber?
 
 ## Proverbios 1:23
 
-¡Arrepentíos ante mi reprensión!
+¡Cambiad de rumbo cuando os corrijo!
 
->  Entonces derramaré mi espíritu sobre vosotros,
->  os haré conocer mis palabras.
+>  Entonces os abriré mi corazón y os daré a conocer lo que tengo que deciros.
 
 ## Proverbios 1:24
 
-Porque llamé y rehusasteis, extendí mi mano y nadie atendió;
+Os llamé y no quisisteis venir; os tendí la mano y nadie me hizo caso;
 
 ## Proverbios 1:25
 
-Ya que ignorasteis todo mi consejo y no quisisteis aceptar mi reprensión,
+no tomasteis en cuenta ninguno de mis consejos ni aceptasteis que os corrigiera;
 
 ## Proverbios 1:26
 
-También yo me reiré de vuestra calamidad;
- responderé con burla cuando venga vuestro terror,
+por eso yo también sonreiré cuando os llegue la desgracia;
+ me tomaré a risa vuestro espanto cuando os alcance,
 
 ---
 
 ## Proverbios 1:27
 
-Cuando venga vuestro terror como tormenta y vuestra calamidad como torbellino, cuando la angustia y la aflicción caigan sobre vosotros.
+cuando el espanto os caiga encima como una tormenta y la desgracia os arrastre como un remolino, cuando os lleguen la angustia y el sufrimiento.
 
 ## Proverbios 1:28
 
-Me llamarán, pero no responderé; me buscarán con diligencia, pero no me hallarán,
+Entonces me llamarán, pero no contestaré; me buscarán con ansia, pero no me encontrarán,
 
 ## Proverbios 1:29
 
-Porque rechazaron la sabiduría y no escogieron el temor del Señor.
+porque despreciaron la sabiduría y no quisieron tenerle temor al Señor.
 
 ## Proverbios 1:30
 
-No quisieron aceptar mi consejo y despreciaron toda mi reprensión.
+No quisieron hacer caso de mis consejos y despreciaron todas mis correcciones.
 
 ## Proverbios 1:31
 
-Por tanto, comerán del fruto de su camino y se saciarán de sus propios consejos.
+Por eso tendrán que comerse lo que ellos mismos sembraron y atragantarse con sus propias intrigas.
 
 ## Proverbios 1:32
 
-Porque el desvío de los simples los llevará a su caída, y la complacencia de los necios traerá su ruina;
+Los ingenuos se pierden por andar descarriados, y los necios se arruinan por vivir confiados;
 
 ## Proverbios 1:33
 
-Pero el que me escuche vivirá seguro y estará tranquilo, sin temor al mal.”
+pero el que me hace caso vivirá a salvo y en calma, sin miedo a ningún mal.”

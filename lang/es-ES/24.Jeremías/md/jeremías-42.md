@@ -58,7 +58,7 @@ y si decís, ‘No, iremos a Egipto, donde no veremos guerra, ni oiremos el soni
 
 ## Jeremías 42:15
 
-entonces escuchad la palabra del Señor, remanente de Judá. Esto es lo que dice el Señor de los Ejércitos, el Dios de Israel: ‘Si estáis decididos a ir a Egipto y estableceros allí,
+entonces escuchad la palabra del Señor, remanente de Judá. Esto es lo que dice el Señor de los ejércitos, el Dios de Israel: ‘Si estáis decididos a ir a Egipto y estableceros allí,
 
 ## Jeremías 42:16
 
@@ -70,7 +70,7 @@ De hecho, todos los que estén resueltos a ir a Egipto para residir allí morir�
 
 ## Jeremías 42:18
 
-Esto es lo que dice el Señor de los Ejércitos, el Dios de Israel: ‘Así como mi ira y mi furor se han derramado sobre los habitantes de Jerusalén, así mi furor se derramará sobre vosotros cuando entréis en Egipto. Seréis una maldición, un objeto de horror, una imprecación y una deshonra; nunca volveréis a ver este lugar.’
+Esto es lo que dice el Señor de los ejércitos, el Dios de Israel: ‘Así como mi ira y mi furor se han derramado sobre los habitantes de Jerusalén, así mi furor se derramará sobre vosotros cuando entréis en Egipto. Seréis una maldición, un objeto de horror, una imprecación y una deshonra; nunca volveréis a ver este lugar.’
 
 ## Jeremías 42:19
 

@@ -12,7 +12,7 @@ Y los fariseos y los escribas murmuraban, diciendo: “Este hombre recibe a los 
 
 ## Lucas 15:3
 
-Entonces Él comenzó a compartir esta parábola con ellos:
+Entonces Él les contó esta parábola:
 
 ## Lucas 15:4
 
@@ -48,7 +48,7 @@ De igual manera, os digo, hay alegría entre los ángeles de Dios por un solo pe
 
 ## Lucas 15:11
 
-Entonces compartió, “Había un hombre que tenía dos hijos.
+Entonces añadió, “Había un hombre que tenía dos hijos.
 
 ## Lucas 15:12
 
@@ -84,7 +84,7 @@ Ya no soy digno de ser llamado tu hijo; trátame como a uno de tus jornaleros.�
 
 ## Lucas 15:20
 
-Así que se levantó y fue a su padre. Pero cuando aún estaba lejos, su padre lo vio y fue movido a compasión; corrió hacia su hijo, lo abrazó y lo besó.
+Así que se levantó y fue a su padre. Pero cuando aún estaba lejos, su padre lo vio y sintió compasión; corrió hacia su hijo, lo abrazó y lo besó.
 
 ## Lucas 15:21
 

@@ -94,7 +94,7 @@ Al decir esto, sopló sobre ellos y les dijo: “Recibid el Espíritu Santo.
 
 ## Juan 20:23
 
-A quienes perdonéis los pecados, les son perdonados; a quienes se los retengáis, les son retenidos.”
+A los que les perdonéis los pecados, les quedarán perdonados; a los que no se los perdonéis, les quedarán sin perdonar.”
 
 ---
 
@@ -114,7 +114,7 @@ Una semana después, sus discípulos estaban de nuevo en la casa, y Tomás estab
 
 ## Juan 20:27
 
-Luego dijo a Tomás: “Pon tu dedo aquí; mira mis manos. Extiende tu mano y ponla en mi costado. No seas incrédulo, sino creyente.”
+Luego le dijo a Tomás: “Mete aquí el dedo y mira mis manos; acerca la mano y métela en mi costado. Deja de dudar y cree.”
 
 ## Juan 20:28
 
@@ -122,7 +122,7 @@ Tomás le dijo: “¡Señor mío y Dios mío!”
 
 ## Juan 20:29
 
-Entonces Jesús le dijo: “Porque me has visto, has creído; bienaventurados los que no vieron y creyeron.”
+Jesús le dijo: “Has creído porque me has visto. ¡Dichosos los que han creído sin haber visto!”
 
 ---
 
@@ -132,4 +132,4 @@ Jesús hizo muchas otras señales milagrosas en presencia de sus discípulos, qu
 
 ## Juan 20:31
 
-Pero estas se han escrito para que creáis que Jesús es el Mesías, el Hijo de Dios, y para que, creyendo, tengáis vida en su nombre.
+Pero estas se han puesto por escrito para que creáis que Jesús es el Mesías, el Hijo de Dios, y para que, al creer, tengáis vida en su nombre.

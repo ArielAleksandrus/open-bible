@@ -2,15 +2,15 @@
 
 ## Josué 12:1
 
-Estos son los reyes de la tierra a quienes los israelitas derrotaron, y cuyo territorio tomaron posesión más allá del Jordán hacia el este, desde el desfiladero del Arnón hasta el monte Hermón, incluyendo toda la Arabá oriental:
+Estos son los reyes de la tierra a quienes los israelitas derrotaron, y de cuyo territorio tomaron posesión más allá del Jordán hacia el este, desde el desfiladero del Arnón hasta el monte Hermón, incluyendo todo el Arabá oriental:
 
 ## Josué 12:2
 
-Sihón, rey de los amorreos, que vivía en Hesbón. Gobernó desde Aroer en el borde del desfiladero del Arnón —desde el medio del desfiladero— y la mitad de Galaad, hasta el río Jaboc, que es la frontera de los amonitas.
+Sehón, rey de los amorreos, que vivía en Hesbón. Gobernó desde Aroer en el borde del desfiladero del Arnón —desde el medio del desfiladero— y la mitad de Galaad, hasta el río Jaboc, que es la frontera de los amonitas.
 
 ## Josué 12:3
 
-También gobernó sobre la Arabá oriental desde el mar de Quineret hasta el mar de la Arabá (es decir, el mar Salado), hacia el este hasta Bet-jesimot, y hacia el sur por debajo de las laderas de Pisga.
+También gobernó sobre el Arabá oriental desde el mar de Quineret hasta el mar del Arabá (es decir, el mar Salado), hacia el este hasta Bet-jesimot, y hacia el sur por debajo de las laderas de Pisga.
 
 ---
 
@@ -20,7 +20,7 @@ Y el territorio de Og, rey de Basán, uno de los últimos de los refaítas, que 
 
 ## Josué 12:5
 
-Él gobernó sobre el monte Hermón, Salecá, todo Basán hasta la frontera de los gesuritas y los maacatitas, y la mitad de Galaad hasta la frontera de Sihón, rey de Hesbón.
+Él gobernó sobre el monte Hermón, Salecá, todo Basán hasta la frontera de los gesuritas y los maacatitas, y la mitad de Galaad hasta la frontera de Sehón, rey de Hesbón.
 
 ## Josué 12:6
 
@@ -32,7 +32,7 @@ Aquí están los reyes de la tierra a quienes Josué y los israelitas derrotaron
 
 ## Josué 12:8
 
-Las tierras incluían la región montañosa, las tierras bajas, la Arabá, las laderas de las montañas, el desierto, y el Néguev; las tierras de los hititas, amorreos, cananeos, ferezeos, heveos y jebuseos. Estos eran los reyes:
+Las tierras incluían la región montañosa, las tierras bajas, el Arabá, las laderas de las montañas, el desierto, y el Néguev; las tierras de los hititas, amorreos, cananeos, ferezeos, heveos y jebuseos. Estos eran los reyes:
 
 ## Josué 12:9
 
@@ -56,15 +56,15 @@ el rey de Debir, uno; el rey de Gueder, uno;
 
 ## Josué 12:14
 
-el rey de Hormá, uno; el rey de Arad, uno;
+el rey de Horma, uno; el rey de Arad, uno;
 
 ## Josué 12:15
 
-el rey de Libná, uno; el rey de Adulam, uno;
+el rey de Libna, uno; el rey de Adulam, uno;
 
 ## Josué 12:16
 
-el rey de Maquedá, uno; el rey de Betel, uno;
+el rey de Maqueda, uno; el rey de Betel, uno;
 
 ## Josué 12:17
 
@@ -92,7 +92,7 @@ el rey de Cedes, uno; el rey de Jocneam en el Carmelo, uno;
 
 ## Josué 12:23
 
-el rey de Dor, situado en las alturas de Dor, uno; el rey de Goim en Guilgal, uno;
+el rey de Dor, situado en las alturas de Dor, uno; el rey de Goim en Gilgal, uno;
 
 ## Josué 12:24
 

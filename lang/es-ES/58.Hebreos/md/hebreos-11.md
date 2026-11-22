@@ -2,160 +2,160 @@
 
 ## Hebreos 11:1
 
-Ahora bien, la fe es la certeza de lo que se espera, la convicción de lo que no se ve.
+La fe es estar seguros de lo que esperamos y convencidos de lo que no vemos.
 
 ## Hebreos 11:2
 
-Porque por ella los antiguos recibieron buen testimonio.
+Por su fe, Dios aprobó a los que vivieron antes que nosotros.
 
 ## Hebreos 11:3
 
-Por la fe entendemos que el universo fue creado por la palabra de Dios, de modo que lo que se ve no fue hecho de cosas visibles.
+Por la fe entendemos que Dios creó el universo con su palabra, de modo que lo que vemos no salió de cosas que se pueden ver.
 
 ## Hebreos 11:4
 
-Por la fe Abel ofreció a Dios un sacrificio más excelente que Caín, por lo cual fue reconocido como justo, dando Dios testimonio de sus ofrendas. Y por la fe, aun estando muerto, habla todavía.
+Por la fe, Abel ofreció a Dios un sacrificio mejor que el de Caín, y por esa fe Dios lo reconoció como justo, aprobando sus ofrendas. Y por la fe, aunque está muerto, todavía nos habla.
 
 ## Hebreos 11:5
 
-Por la fe Enoc fue trasladado para no ver la muerte, y no fue hallado porque Dios lo trasladó. Pues antes de ser trasladado, recibió testimonio de haber agradado a Dios.
+Por la fe, Enoc fue llevado de este mundo sin pasar por la muerte, y nadie lo encontró porque Dios se lo había llevado. Pues antes de que se lo llevara, se dijo de él que había agradado a Dios.
 
 ## Hebreos 11:6
 
-Y sin fe es imposible agradar a Dios, porque es necesario que el que se acerca a Él crea que existe y que recompensa a los que le buscan con diligencia.
+Sin fe no se puede agradar a Dios, porque todo el que se acerca a Él tiene que creer que existe y que premia a los que lo buscan de verdad.
 
 ## Hebreos 11:7
 
-Por la fe Noé, siendo advertido por Dios acerca de cosas que aún no se veían, con temor reverente construyó un arca para la salvación de su casa. Por esto condenó al mundo y llegó a ser heredero de la justicia que es por la fe.
+Por la fe, Noé, cuando Dios le avisó de cosas que todavía no se veían, construyó con reverencia un arca para salvar a su familia. Con esa fe dejó al mundo en evidencia y recibió la justicia que viene por la fe.
 
 ## Hebreos 11:8
 
-Por la fe Abraham obedeció cuando fue llamado para ir a un lugar que más tarde recibiría como herencia. Salió sin saber a dónde iba.
+Por la fe, Abraham obedeció cuando Dios lo llamó para ir a un lugar que más tarde iba a recibir en herencia. Y se puso en camino sin saber adónde iba.
 
 ## Hebreos 11:9
 
-Por la fe vivió como extranjero en la tierra prometida, como en tierra ajena, habitando en tiendas con Isaac y Jacob, herederos con él de la misma promesa.
+Por la fe vivió como un extranjero en la tierra que Dios le había prometido, como si fuera un país ajeno, y vivió en tiendas de campaña con Isaac y Jacob, que también iban a heredar la misma promesa.
 
 ## Hebreos 11:10
 
-Porque esperaba la ciudad que tiene fundamentos, cuyo arquitecto y constructor es Dios.
+Porque esperaba la ciudad de cimientos firmes, cuyo arquitecto y constructor es Dios.
 
 ## Hebreos 11:11
 
-Por la fe, aun Sara misma recibió fuerza para concebir, aun cuando ya había pasado la edad, porque consideró fiel al que lo había prometido.
+Por la fe, también Sara recibió fuerzas para quedar embarazada, aunque ya no tenía edad, porque confió en que Dios cumpliría lo que había prometido.
 
 ## Hebreos 11:12
 
-Por lo cual también de uno, y ese ya casi muerto, nacieron descendientes tan numerosos como las estrellas del cielo y como la arena innumerable que está a la orilla del mar.
+Así que de un solo hombre, que ya estaba casi muerto, nacieron tantos descendientes como las estrellas del cielo y tan incontables como la arena de la orilla del mar.
 
 ## Hebreos 11:13
 
-Todos estos murieron en fe, sin haber recibido las promesas, pero habiéndolas visto y saludado desde lejos, confesando que eran extranjeros y peregrinos sobre la tierra.
+Todos ellos murieron sin dejar de tener fe, y sin haber recibido lo que Dios les había prometido; pero lo vieron y lo saludaron de lejos, y reconocieron que eran extranjeros y gente de paso en esta tierra.
 
 ## Hebreos 11:14
 
-Porque los que dicen tales cosas claramente dan a entender que buscan una patria.
+Los que hablan así dejan claro que buscan una patria propia.
 
 ## Hebreos 11:15
 
-Si hubieran estado pensando en aquella de donde salieron, habrían tenido oportunidad de volver.
+Si hubieran estado pensando en la tierra de donde salieron, habrían tenido ocasión de volver.
 
 ## Hebreos 11:16
 
-Pero ahora anhelan una mejor, es decir, la celestial. Por lo tanto, Dios no se avergüenza de ser llamado su Dios, porque les ha preparado una ciudad.
+Pero lo cierto es que deseaban una patria mejor, la del cielo. Por eso Dios no se avergüenza de que lo llamen su Dios, porque les ha preparado una ciudad.
 
 ## Hebreos 11:17
 
-Por la fe Abraham, cuando fue probado, ofreció a Isaac, y el que había recibido las promesas estaba en el acto de ofrecer a su único hijo.
+Por la fe, Abraham, cuando Dios lo puso a prueba, ofreció a Isaac en sacrificio; él, que había recibido las promesas, estaba dispuesto a ofrecer a su único hijo.
 
 ## Hebreos 11:18
 
-Fue a él a quien se le dijo: “En Isaac te será llamada descendencia.”
+A él se le había dicho: “Tu descendencia llevará el nombre de Isaac.”
 
 ## Hebreos 11:19
 
-Consideró que Dios es poderoso para levantar aun de entre los muertos, de donde, en sentido figurado, también le volvió a recibir.
+Abraham pensó que Dios tenía poder incluso para resucitar a los muertos, y, por decirlo así, recuperó a su hijo de entre los muertos.
 
 ## Hebreos 11:20
 
-Por la fe Isaac bendijo a Jacob y a Esaú respecto a cosas futuras.
+Por la fe, Isaac dio su bendición a Jacob y a Esaú pensando en lo que vendría.
 
 ## Hebreos 11:21
 
-Por la fe Jacob, al morir, bendijo a cada uno de los hijos de José, y adoró apoyado sobre el extremo de su bastón.
+Por la fe, Jacob, cuando estaba a punto de morir, bendijo a cada uno de los hijos de José y adoró a Dios apoyado en la punta de su bastón.
 
 ## Hebreos 11:22
 
-Por la fe José, al morir, mencionó la salida de los hijos de Israel y dio instrucciones acerca de sus huesos.
+Por la fe, José, cuando se acercaba el fin de su vida, habló de la salida de los israelitas de Egipto y dio instrucciones sobre lo que había que hacer con sus huesos.
 
 ## Hebreos 11:23
 
-Por la fe Moisés, cuando nació, fue escondido por sus padres durante tres meses, porque vieron que era un niño hermoso, y no temieron el decreto del rey.
+Por la fe, cuando Moisés nació, sus padres lo escondieron durante tres meses, porque vieron que era un niño especial, y no tuvieron miedo de la orden del rey.
 
 ## Hebreos 11:24
 
-Por la fe Moisés, ya grande, rehusó ser llamado hijo de la hija de Faraón.
+Por la fe, Moisés, cuando ya fue mayor, no quiso que lo llamaran hijo de la hija del faraón,
 
 ## Hebreos 11:25
 
-Escogiendo más bien ser maltratado con el pueblo de Dios que gozar de los placeres temporales del pecado.
+y prefirió sufrir malos tratos junto con el pueblo de Dios antes que disfrutar de los placeres pasajeros del pecado.
 
 ## Hebreos 11:26
 
-Consideró el oprobio de Cristo como mayor riqueza que los tesoros de Egipto, porque tenía la mirada puesta en la recompensa.
+Consideró que sufrir la deshonra por causa de Cristo valía más que todas las riquezas de Egipto, porque tenía la vista puesta en la recompensa.
 
 ## Hebreos 11:27
 
-Por la fe salió de Egipto, sin temer la ira del rey, porque se mantuvo firme como viendo al Invisible.
+Por la fe salió de Egipto sin miedo a la furia del rey, y se mantuvo firme como si estuviera viendo al Dios invisible.
 
 ## Hebreos 11:28
 
-Por la fe celebró la Pascua y el rociamiento de la sangre, para que el destructor de los primogénitos no los tocara.
+Por la fe celebró la Pascua y mandó rociar la sangre, para que el que mataba a los primogénitos no tocara a los de Israel.
 
 ## Hebreos 11:29
 
-Por la fe pasaron el Mar Rojo como por tierra seca, pero cuando los egipcios intentaron hacerlo, se ahogaron.
+Por la fe cruzaron el Mar Rojo como si fuera tierra seca; pero cuando los egipcios quisieron hacer lo mismo, se ahogaron.
 
 ## Hebreos 11:30
 
-Por la fe cayeron los muros de Jericó después de haber sido rodeados por siete días.
+Por la fe se derrumbaron las murallas de Jericó, después de que el pueblo marchara alrededor de ellas durante siete días.
 
 ## Hebreos 11:31
 
-Por la fe Rahab la prostituta no pereció junto con los desobedientes, porque había recibido a los espías en paz.
+Por la fe, Rahab, la prostituta, no murió junto con los desobedientes, porque había recibido bien a los espías.
 
 ## Hebreos 11:32
 
-¿Y qué más diré? Porque el tiempo me faltaría para contar de Gedeón, Barac, Sansón, Jefté, David, Samuel y los profetas,
+¿Qué más voy a decir? Me faltaría tiempo para hablar de Gedeón, Barac, Sansón, Jefté, David, Samuel y los profetas,
 
 ## Hebreos 11:33
 
-que por la fe conquistaron reinos, hicieron justicia, alcanzaron promesas, cerraron bocas de leones,
+que por la fe conquistaron reinos, impusieron la justicia, vieron cumplirse promesas, cerraron la boca de los leones,
 
 ## Hebreos 11:34
 
-apagaron la violencia del fuego, escaparon del filo de la espada, sacaron fuerzas de la debilidad, se hicieron poderosos en la guerra, pusieron en fuga a ejércitos extranjeros.
+apagaron la furia de las llamas, escaparon del filo de la espada, sacaron fuerza de su debilidad, se hicieron poderosos en la guerra y pusieron en fuga a ejércitos extranjeros.
 
 ## Hebreos 11:35
 
-Las mujeres recibieron a sus muertos mediante resurrección. Otros fueron torturados, no aceptando su liberación, a fin de obtener una mejor resurrección.
+Hubo mujeres que recibieron de nuevo con vida a sus muertos. Otros fueron torturados y no quisieron aceptar que los soltaran, para alcanzar una resurrección mejor.
 
 ## Hebreos 11:36
 
-Otros experimentaron vituperios y azotes, y además de esto, cadenas y prisiones.
+Otros sufrieron burlas y latigazos, y hasta cadenas y cárcel.
 
 ## Hebreos 11:37
 
-Fueron apedreados, aserrados, muertos a espada; anduvieron de aquí para allá cubiertos de pieles de ovejas y de cabras, pobres, angustiados, maltratados—
+Los apedrearon, los cortaron en dos con una sierra, los mataron a espada. Iban de un lugar a otro vestidos con pieles de oveja y de cabra, sin nada, sufriendo y maltratados,
 
 ## Hebreos 11:38
 
-de los cuales el mundo no era digno —errantes por desiertos y montañas, por cuevas y cavernas de la tierra—.
+gente que el mundo no merecía, andando sin rumbo por desiertos y montañas, y viviendo en cuevas y agujeros de la tierra.
 
 ## Hebreos 11:39
 
-Y todos estos, aunque recibieron buen testimonio mediante la fe, no recibieron lo prometido,
+Y aunque todos ellos fueron aprobados por su fe, no recibieron lo que Dios había prometido,
 
 ## Hebreos 11:40
 
-porque Dios había provisto algo mejor para nosotros, para que no fueran ellos perfeccionados aparte de nosotros.
+porque Dios tenía preparado algo mejor para nosotros, para que ellos no llegaran a la perfección sin nosotros.

@@ -5,7 +5,7 @@
 ## Salmo 30:1
 
 > Te exaltaré, Señor, porque me has levantado,  
->  Y no has dejado que mis enemigos se regocijen sobre mí.
+>  y no has dejado que mis enemigos se regocijen sobre mí.
 
 ## Salmo 30:2
 
@@ -15,21 +15,21 @@
 ## Salmo 30:3
 
 > Señor, has sacado mi alma del Seol;  
->  Me has preservado la vida, para que no descienda al abismo.
+>  me has preservado la vida, para que no descienda al abismo.
 
 ---
 
 ## Salmo 30:4
 
 > Cantad al Señor, vosotros sus santos,  
->  Y dad gracias al recordar su santidad.
+>  y dad gracias al recordar su santidad.
 
 ## Salmo 30:5
 
 > Porque su ira es solo por un momento,  
 >  Su favor es para toda la vida;  
->  El llanto puede durar toda la noche,  
->  Pero a la mañana vendrá el grito de alegría.
+>  el llanto puede durar toda la noche,  
+>  pero a la mañana vendrá el grito de alegría.
 
 ---
 
@@ -48,12 +48,12 @@
 ## Salmo 30:8
 
 > A Ti, Señor, clamé,  
->  Y supliqué al Señor:
+>  y supliqué al Señor:
 
 ## Salmo 30:9
 
-> “¿Qué provecho hay en mi muerte, si desciendo al abismo?  
->  ¿Te alabará el polvo? ¿Proclamará tu fidelidad?
+> “¿Qué gano yo con morir, si bajo a la fosa?  
+>  ¿Acaso el polvo te va a alabar? ¿Va a anunciar tu fidelidad?
 
 ## Salmo 30:10
 
@@ -64,8 +64,8 @@
 
 ## Salmo 30:11
 
-> Has cambiado mi lamento en baile;  
->  Has quitado mi cilicio y me has ceñido de alegría,
+> Tú convertiste mi llanto en danza;  
+>  me quitaste la ropa de luto y me vestiste de alegría,
 
 ## Salmo 30:12
 

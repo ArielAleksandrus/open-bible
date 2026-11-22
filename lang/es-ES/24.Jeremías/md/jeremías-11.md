@@ -6,7 +6,7 @@ Esta es la palabra que vino a Jeremías de parte del Señor, diciendo:
 
 ## Jeremías 11:2
 
-Presta atención a los términos de este pacto y transmite lo que dice al pueblo de Judá y a los habitantes de Jerusalén.
+“Presta atención a los términos de este pacto y transmite lo que dice al pueblo de Judá y a los habitantes de Jerusalén.
 
 ## Jeremías 11:3
 
@@ -14,19 +14,19 @@ Diles: ‘Esto es lo que dice el Señor, el Dios de Israel: “Maldito sea el qu
 
 ## Jeremías 11:4
 
-los términos que ordené a sus antepasados cuando los saqué de Egipto, del horno de hierro, diciendo: ‘Obedéceme y haz todo lo que te mando, y serás mi pueblo, y yo seré tu Dios.’
+los términos que ordené a vuestros antepasados cuando los saqué de Egipto, del horno de hierro, diciendo: ‘Obedecedme y haced todo lo que os mando, y seréis mi pueblo, y yo seré vuestro Dios.’
 
 ## Jeremías 11:5
 
-Entonces cumpliré el juramento que hice a sus antepasados, de darles una tierra que fluye leche y miel, como es hoy.”’” Yo respondí, “Amén, Señor.”
+Entonces cumpliré el juramento que hice a vuestros antepasados, de darles una tierra que fluye leche y miel, como es hoy.”’” Yo respondí, “Amén, Señor.”
 
 ## Jeremías 11:6
 
-El Señor me dijo: “Proclama todas estas palabras en las ciudades de Judá y en las calles de Jerusalén: ‘Escucha los términos de este pacto y síguelos.
+El Señor me dijo: “Proclama todas estas palabras en las ciudades de Judá y en las calles de Jerusalén: ‘Escuchad los términos de este pacto y seguidlos.
 
 ## Jeremías 11:7
 
-Porque advertí solemnemente a sus antepasados desde el momento en que los saqué de Egipto hasta hoy, diciendo persistentemente, ‘Obedéceme.’
+Porque advertí solemnemente a vuestros antepasados desde el momento en que los saqué de Egipto hasta hoy, diciendo una y otra vez: ‘Obedecedme.’
 
 ## Jeremías 11:8
 
@@ -62,7 +62,7 @@ Porque tus dioses son tan numerosos como tus ciudades, Judá; y los altares que 
 
 ## Jeremías 11:16
 
-El Señor te llamó un olivo floreciente, hermoso en fruto y forma. Pero con el rugido de una poderosa tormenta, lo prenderá fuego, y sus ramas serán quebradas.
+El Señor te llamó un olivo floreciente, hermoso en fruto y forma. Pero con el rugido de una poderosa tormenta, le prenderá fuego, y sus ramas serán quebradas.
 
 ## Jeremías 11:17
 

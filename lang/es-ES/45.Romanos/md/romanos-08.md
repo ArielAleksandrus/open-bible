@@ -42,11 +42,11 @@ Pero si Cristo está en vosotros, aunque el cuerpo está sujeto a muerte a causa
 
 ## Romanos 8:11
 
-Y si el Espíritu de Aquel que resucitó a Jesús de entre los muertos habita en vosotros, Aquel que resucitó a Cristo de entre los muertos también dará vida a vuestros cuerpos mortales por medio de su Espíritu que habita en vosotros.
+Y si el Espíritu de Aquel que resucitó a Jesús de entre los muertos habita en vosotros, aquel que resucitó a Cristo de entre los muertos también dará vida a vuestros cuerpos mortales por medio de su Espíritu que habita en vosotros.
 
 ## Romanos 8:12
 
-Por lo tanto, hermanos y hermanas, tenemos una obligación, pero no es para con la carne, para vivir según ella—
+Por lo tanto, hermanos y hermanas, tenemos una obligación, pero no es para con la carne, para vivir según ella,
 
 ## Romanos 8:13
 
@@ -102,11 +102,11 @@ Pero si esperamos lo que aún no vemos, lo esperamos con perseverancia.
 
 ## Romanos 8:26
 
-De la misma manera, el Espíritu nos ayuda en nuestra debilidad. No sabemos por qué deberíamos orar, pero el Espíritu mismo intercede por nosotros con gemidos que no pueden expresarse con palabras.
+De la misma manera, el Espíritu nos ayuda en nuestra debilidad. No sabemos qué deberíamos pedir en oración, pero el Espíritu mismo intercede por nosotros con gemidos que no pueden expresarse con palabras.
 
 ## Romanos 8:27
 
-Y aquel que escudriña nuestros corazones sabe la mente del Espíritu, porque el Espíritu intercede por el pueblo de Dios conforme a la voluntad de Dios.
+Y aquel que escudriña nuestros corazones conoce la intención del Espíritu, porque el Espíritu intercede por el pueblo de Dios conforme a la voluntad de Dios.
 
 ## Romanos 8:28
 
@@ -126,7 +126,7 @@ Y a los que predestinó, también los llamó; a los que llamó, también los jus
 
 ## Romanos 8:32
 
-El que no escatimó a su propio Hijo, sino que lo ofreció por todos nosotros, ¿cómo no nos dará también, junto con Él, todas las cosas?
+El que no se guardó ni a su propio Hijo, sino que lo entregó por todos nosotros, ¿cómo no nos va a dar también, junto con Él, todas las cosas por su gracia?
 
 ## Romanos 8:33
 
@@ -138,7 +138,7 @@ El que no escatimó a su propio Hijo, sino que lo ofreció por todos nosotros, �
 
 ## Romanos 8:35
 
-¿Quién nos separará del amor de Cristo? ¿Tribulación, o angustia, o persecución, o hambre, o desnudez, o peligro, o espada?
+¿Quién podrá apartarnos del amor de Cristo? ¿Podrán hacerlo los sufrimientos, las dificultades, la persecución, el hambre, la falta de ropa, el peligro o la espada?
 
 ## Romanos 8:36
 
@@ -149,7 +149,7 @@ Como dice la escritura:
 
 ## Romanos 8:37
 
-No, en todas estas cosas somos más que vencedores por medio de aquel que nos amó.
+No, en medio de todo esto salimos más que vencedores gracias a aquel que nos amó.
 
 ## Romanos 8:38
 

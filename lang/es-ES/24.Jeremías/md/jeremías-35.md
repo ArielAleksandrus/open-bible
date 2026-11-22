@@ -50,11 +50,11 @@ Entonces vino la palabra del Señor a Jeremías, diciendo,
 
 ## Jeremías 35:13
 
-“Así dice el Señor de los Ejércitos, el Dios de Israel: ‘Ve y di al pueblo de Judá y a los habitantes de Jerusalén: “¿No aprenderéis una lección y escucharéis mis palabras?” declara el Señor.
+“Así dice el Señor de los ejércitos, el Dios de Israel: ‘Ve y di al pueblo de Judá y a los habitantes de Jerusalén: “¿No escarmentaréis para escuchar mis palabras?” declara el Señor.
 
 ## Jeremías 35:14
 
-‘Las palabras de Jonadab, hijo de Recab, que mandó a sus descendientes, de no beber vino, han sido observadas. Hasta el día de hoy no beben vino, porque obedecen el mandato de su antepasado. Pero yo os he hablado persistentemente, y no me habéis escuchado.
+‘Las palabras de Jonadab, hijo de Recab, que mandó a sus descendientes, de no beber vino, han sido observadas. Hasta el día de hoy no beben vino, porque obedecen el mandato de su antepasado. Pero yo os he hablado una y otra vez, y no me habéis escuchado.
 
 ## Jeremías 35:15
 
@@ -66,12 +66,12 @@ Los descendientes de Jonadab, hijo de Recab, han cumplido el mandato que su ante
 
 ## Jeremías 35:17
 
-Por tanto, así dice el Señor, el Dios de los Ejércitos, el Dios de Israel: ‘He aquí, traigo sobre Judá y sobre todos los habitantes de Jerusalén todo el desastre que he pronunciado contra ellos, porque les hablé, pero no escucharon; los llamé, pero no respondieron.’”
+Por tanto, así dice el Señor, el Dios de los ejércitos, el Dios de Israel: ‘He aquí, traigo sobre Judá y sobre todos los habitantes de Jerusalén todo el desastre que he pronunciado contra ellos, porque les hablé, pero no escucharon; los llamé, pero no respondieron.’”
 
 ## Jeremías 35:18
 
-Entonces Jeremías dijo a la casa de los recabitas: “Así dice el Señor de los Ejércitos, el Dios de Israel: ‘Porque habéis obedecido el mandato de Jonadab vuestro antepasado, y habéis guardado todas sus instrucciones y hecho todo lo que os ordenó,
+Entonces Jeremías dijo a la casa de los recabitas: “Así dice el Señor de los ejércitos, el Dios de Israel: ‘Porque habéis obedecido el mandato de Jonadab vuestro antepasado, y habéis guardado todas sus instrucciones y hecho todo lo que os ordenó,
 
 ## Jeremías 35:19
 
-por tanto, así dice el Señor de los Ejércitos, el Dios de Israel: ‘Jonadab, hijo de Recab, nunca carecerá de un descendiente que esté delante de mí siempre.’”
+por tanto, así dice el Señor de los ejércitos, el Dios de Israel: ‘Jonadab, hijo de Recab, nunca carecerá de un descendiente que esté delante de mí siempre.’”

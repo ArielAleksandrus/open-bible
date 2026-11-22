@@ -10,7 +10,7 @@ El Señor instruyó a Moisés: “Dile a tu hermano Aarón que no debe entrar en
 Aarón debe entrar en el Lugar Santo con un becerro para ofrenda por el pecado y un carnero para holocausto.
 
 ## Levítico 16:4
-Él vestirá la túnica sagrada de lino, con calzoncillos de lino sobre su cuerpo, y se ceñirá con el cinto de lino, y llevará la mitra de lino. Estas son vestiduras sagradas, por lo que debe lavar su cuerpo en agua antes de ponérselas.
+Él vestirá la túnica sagrada de lino, con calzoncillos de lino sobre su cuerpo, y se ceñirá con el cinto de lino, y llevará el turbante de lino. Estas son vestiduras sagradas, por lo que debe lavar su cuerpo en agua antes de ponérselas.
 
 ## Levítico 16:5
 Tomará de la comunidad israelita dos machos cabríos para ofrenda por el pecado y un carnero para holocausto.

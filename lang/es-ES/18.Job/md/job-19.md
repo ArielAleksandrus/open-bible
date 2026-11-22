@@ -2,7 +2,7 @@
 
 ## Job 19:1
 
-Entonces Job respondió, diciendo,
+Entonces Job respondió diciendo:
 
 ## Job 19:2
 
@@ -30,7 +30,7 @@ Entonces Job respondió, diciendo,
 
 ## Job 19:7
 
-> “Aunque grito, ‘¡Violencia!’ no recibo respuesta;
+> “Aunque grito: ‘¡Violencia!’ no recibo respuesta;
 >  pido ayuda, pero no hay justicia.
 
 ## Job 19:8
@@ -133,13 +133,13 @@ Entonces Job respondió, diciendo,
 
 ## Job 19:27
 
-> Yo mismo lo veré con mis propios ojos —yo,
->  y no otro.
->  ¡Mi corazón anhela dentro de mí—!
+> Yo mismo lo veré con mis propios ojos,
+>  yo y no otro.
+>  ¡Mi corazón anhela dentro de mí!
 
 ## Job 19:28
 
-> Si decís, ‘¿Cómo lo perseguiremos,
+> Si decís: ‘¿Cómo lo perseguiremos,
 >  ya que la raíz del problema se encuentra en él,’
 
 ## Job 19:29

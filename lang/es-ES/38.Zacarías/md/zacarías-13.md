@@ -6,7 +6,7 @@
 
 ## Zacarías 13:2
 
-“Y en aquel día,” declara el Señor de los Ejércitos, “quitaré los nombres de los ídolos de la tierra, y no serán recordados más; también quitaré de la tierra a los profetas y el espíritu de impureza.
+“Y en aquel día,” declara el Señor de los ejércitos, “quitaré los nombres de los ídolos de la tierra, y no serán recordados más; también quitaré de la tierra a los profetas y el espíritu de impureza.
 
 ## Zacarías 13:3
 
@@ -22,14 +22,14 @@ Cada uno dirá: ‘No soy profeta; soy labrador de la tierra, porque he sido tra
 
 ## Zacarías 13:6
 
-Y si alguien pregunta, ‘¿Qué son estas heridas en tu cuerpo?’ responderán, ‘Las heridas que recibí en casa de mis amigos.’
+Y si alguien pregunta, ‘¿Qué son estas heridas en tu cuerpo?’ responderá, ‘Las heridas que recibí en casa de mis amigos.’
 
 ## Zacarías 13:7
 
-> “¡Despierta, oh espada, contra mi pastor,
+> “¡Espada, despierta contra mi pastor,
 >  contra el hombre que es mi compañero!”
->  declara el Señor de los Ejércitos.
->  “Hiere al pastor, y las ovejas se dispersarán,
+>  declara el Señor de los ejércitos.
+>  “Golpea al pastor, y las ovejas se dispersarán,
 >  y volveré mi mano contra los pequeños.
 
 ## Zacarías 13:8
@@ -41,9 +41,9 @@ Y si alguien pregunta, ‘¿Qué son estas heridas en tu cuerpo?’ responderán
 
 ## Zacarías 13:9
 
-> A este tercio lo pasaré por el fuego;
->  los refinaré como se refina la plata y los probaré como se prueba el oro.
->  Invocarán mi nombre,
+> A ese tercio lo haré pasar por el fuego;
+>  los purificaré como se purifica la plata y los pondré a prueba como se prueba el oro.
+>  Ellos invocarán mi nombre,
 >  y yo les responderé;
->  diré, ‘Ellos son mi pueblo,’
->  y ellos dirán, ‘El Señor es nuestro Dios.’”
+>  yo diré: ‘Son mi pueblo,
+> ’ y ellos dirán: ‘El Señor es nuestro Dios.’”

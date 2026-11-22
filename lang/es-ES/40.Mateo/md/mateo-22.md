@@ -56,7 +56,7 @@ Entonces el rey dijo a los asistentes: ‘Atadle de pies y manos, y echadle a la
 
 ## Mateo 22:14
 
-Porque muchos reciben la llamada, pero pocos son escogidos.
+Porque muchos reciben la llamada, pero pocos son escogidos.”
 
 ---
 
@@ -86,7 +86,7 @@ y él les preguntó: “¿De quién es esta imagen y esta inscripción?”
 
 ## Mateo 22:21
 
-“Del César,” respondieron. Entonces les dijo: “Dad, pues, al César lo que es del César, y a Dios lo que es de Dios.”
+“Del César,” respondieron. Entonces les dijo: “Pues devolved al César lo que le pertenece al César, y a Dios lo que le pertenece a Dios.”
 
 ## Mateo 22:22
 
@@ -176,7 +176,7 @@ Mientras los fariseos estaban reunidos, Jesús les preguntó,
 
 ## Mateo 22:42
 
-“¿Qué pensáis del Mesías? ¿De quién es hijo?” Ellos respondieron, “Del hijo de David.”
+“¿Qué pensáis del Mesías? ¿De quién es hijo?” Ellos respondieron, “De David.”
 
 ## Mateo 22:43
 

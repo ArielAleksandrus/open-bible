@@ -22,7 +22,7 @@ Sus discípulos le respondieron: “¿Dónde podrá alguien encontrar suficiente
 
 ## Marcos 8:6
 
-Él dirigió a la multitud a sentarse en el suelo. Tomando los siete panes, dio gracias, los partió y los dio a sus discípulos para que los distribuyeran a la gente, y así lo hicieron.
+Mandó a la multitud que se sentara en el suelo. Tomando los siete panes, dio gracias, los partió y los dio a sus discípulos para que los distribuyeran a la gente, y así lo hicieron.
 
 ## Marcos 8:7
 
@@ -162,4 +162,4 @@ Porque quien quiera salvar su vida, la perderá, pero quien pierda su vida por m
 
 ## Marcos 8:38
 
-Si alguien se avergüenza de mí y de mis palabras en esta generación infiel y pecadora, el Hijo del Hombre se avergonzará de ellos cuando venga en la gloria de su Padre con los santos ángeles.”
+Si alguien se avergüenza de mí y de mis palabras en esta generación infiel y pecadora, el Hijo del Hombre se avergonzará de él cuando venga en la gloria de su Padre con los santos ángeles.”

@@ -48,8 +48,8 @@ Elifaz el temanita respondió:
 
 ## Job 4:10
 
-> El rugido del león y la voz del león feroz,
->  sin embargo, los dientes de los leones jóvenes son destrozados.
+> Ruge el león y brama el león feroz,
+>  pero los dientes de los leones jóvenes son quebrantados.
 
 ## Job 4:11
 
@@ -73,7 +73,7 @@ Elifaz el temanita respondió:
 
 ## Job 4:15
 
-> Un espíritu se deslizó por mi rostro;
+> Un espíritu pasó delante de mi rostro;
 >  el pelo de mi carne se erizó.
 
 ## Job 4:16

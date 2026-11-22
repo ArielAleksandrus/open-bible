@@ -59,7 +59,7 @@ Les dijo,
 
 Los jóvenes que habían crecido con él le hablaron, diciendo,  
  “Esto es lo que debes decir a este pueblo que te ha hablado, diciendo,  
- ‘Tu padre hizo nuestro yugo pesado, ahora hazlo más ligero para nosotros!’  
+ ‘Tu padre hizo pesado nuestro yugo; ¡ahora hazlo más ligero para nosotros!’  
  Les dirás,  
  ‘¡Mi dedo meñique es más grueso que los lomos de mi padre!
 
@@ -89,7 +89,7 @@ y les habló siguiendo el consejo de los jóvenes, diciendo,
 ## 1 Reyes 12:15
 
 Así que el rey no escuchó al pueblo,  
- porque fue un giro de los acontecimientos de parte del Señor,  
+ porque así lo dispuso el Señor,  
  para que Él pudiera establecer Su palabra,  
  que el Señor habló por medio de Ahías el silonita a Jeroboam hijo de Nabat.
 
@@ -154,7 +154,7 @@ Sin embargo, el mensaje de Dios vino a Semaías, el hombre de Dios, diciendo,
 
 ## 1 Reyes 12:25
 
-Jeroboam estableció Siquem en la región montañosa de Efraín, y se estableció allí.  
+Jeroboam fortificó Siquem en la región montañosa de Efraín, y se estableció allí.  
  Luego salió y construyó Penuel.
 
 ## 1 Reyes 12:26

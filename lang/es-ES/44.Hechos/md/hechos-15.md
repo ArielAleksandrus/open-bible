@@ -62,7 +62,7 @@ Simeón ha explicado cómo Dios intervino primero para seleccionar un pueblo par
 
 ## Hechos 15:15
 
-El mensaje de los profetas se alinea con esto, como está escrito:
+El mensaje de los profetas concuerda con esto, como está escrito:
 
 ## Hechos 15:16
 
@@ -84,11 +84,11 @@ El mensaje de los profetas se alinea con esto, como está escrito:
 
 ## Hechos 15:19
 
-Por lo tanto, es mi juicio que no debemos molestar a los gentiles que se están volviendo a Dios,
+Por lo tanto, yo opino que no debemos molestar a los gentiles que se están volviendo a Dios,
 
 ## Hechos 15:20
 
-sino que debemos escribirles, instruyéndoles que se abstengan de alimentos contaminados por ídolos, de inmoralidad sexual, de la carne de animales estrangulados y de sangre.
+sino que debemos escribirles, indicándoles que se abstengan de alimentos contaminados por ídolos, de inmoralidad sexual, de la carne de animales estrangulados y de sangre.
 
 ## Hechos 15:21
 
@@ -110,7 +110,7 @@ Hemos oído que algunos salieron de nosotros sin nuestra autorización y os han 
 
 ## Hechos 15:25
 
-Por lo tanto, todos acordamos seleccionar a algunos hombres y enviarlos a vosotros con nuestros queridos amigos Bernabé y Pablo—
+Por lo tanto, todos acordamos seleccionar a algunos hombres y enviarlos a vosotros con nuestros queridos amigos Bernabé y Pablo,
 
 ## Hechos 15:26
 
@@ -126,7 +126,7 @@ Pareció bien al Espíritu Santo y a nosotros no imponeros ninguna carga más al
 
 ## Hechos 15:29
 
-Debéis absteneros de alimentos sacrificados a ídolos, de sangre, de la carne de animales estrangulados y de inmoralidad sexual. Si os mantenéis alejados de estas cosas, haréis bien. Adiós.
+Debéis absteneros de alimentos sacrificados a ídolos, de sangre, de la carne de animales estrangulados y de inmoralidad sexual. Si os mantenéis alejados de estas cosas, haréis bien. Adiós.”
 
 ---
 

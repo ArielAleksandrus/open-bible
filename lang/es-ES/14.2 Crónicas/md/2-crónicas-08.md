@@ -8,7 +8,7 @@ Al término de los veinte años durante los cuales Salomón construyó la casa d
 
 ## 2 Crónicas 8:2
 
-estableció las ciudades que Huram le había dado, y asentó allí a los hijos de Israel.
+estableció las ciudades que Hiram le había dado, y asentó allí a los hijos de Israel.
 
 ---
 
@@ -62,13 +62,13 @@ Estos eran los principales oficiales del rey Salomón, doscientos cincuenta que 
 
 ## 2 Crónicas 8:11
 
-Entonces Salomón llevó a la hija de Faraón desde la ciudad de David a la casa que había construido para ella, porque dijo: “Mi esposa no vivirá en la casa de David rey de Israel, porque los lugares son santos donde ha entrado el arca del Señor.”
+Entonces Salomón llevó a la hija del faraón desde la ciudad de David a la casa que había construido para ella, porque dijo: “Mi esposa no vivirá en la casa de David rey de Israel, porque los lugares son santos donde ha entrado el arca del Señor.”
 
 ---
 
 ## 2 Crónicas 8:12
 
-Salomón entonces hizo ofrendas quemadas al Señor en el altar del Señor que había construido frente al pórtico;
+Salomón entonces ofreció holocaustos al Señor en el altar del Señor que había construido frente al pórtico;
 
 ---
 
@@ -104,4 +104,4 @@ Salomón entonces viajó a Ezión-geber y a Elot en la costa del mar en la tierr
 
 ## 2 Crónicas 8:18
 
-Y Huram le envió barcos por mano de sus siervos, y siervos que conocían el mar. Y fueron con los siervos de Salomón a Ofir, y tomaron de allí cuatrocientos cincuenta talentos de oro, y lo llevaron al rey Salomón.
+Y Hiram le envió barcos por mano de sus siervos, y siervos que conocían el mar. Y fueron con los siervos de Salomón a Ofir, y tomaron de allí cuatrocientos cincuenta talentos de oro, y lo llevaron al rey Salomón.

@@ -48,7 +48,7 @@ El mar se volvía más tempestuoso. Así que le preguntaron, “¿Qué debemos h
 
 ## Jonás 1:12
 
-Él respondió, “Levántame y arrojadme al mar, y el mar se calmará. Sé que es por mi culpa que esta gran tormenta ha venido sobre vosotros.”
+Él respondió, “Levantadme y arrojadme al mar, y el mar se calmará. Sé que es por mi culpa que esta gran tormenta ha venido sobre vosotros.”
 
 ## Jonás 1:13
 

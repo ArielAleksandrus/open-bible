@@ -10,7 +10,7 @@ En el noveno año, en el décimo mes, el día diez, un mensaje del Señor me lle
 
 ## Ezequiel 24:3
 
-Habla en parábola a esta casa rebelde y diles: ‘Esto es lo que dice el Señor Soberano:
+Habla en parábola a esta casa rebelde y diles: ‘Esto es lo que dice el Señor Dios:
 
 >  “Pon la olla al fuego, ponla,
 >  y vierte agua en ella.
@@ -18,8 +18,8 @@ Habla en parábola a esta casa rebelde y diles: ‘Esto es lo que dice el Señor
 ## Ezequiel 24:4
 
 > Pon en ella los trozos de carne,
->  cada buen trozo —el muslo y la espalda.
->  Llénala con los mejores huesos—;
+>  cada buen trozo: el muslo y la espalda.
+>  Llénala con los mejores huesos;
 
 ## Ezequiel 24:5
 
@@ -30,7 +30,7 @@ Habla en parábola a esta casa rebelde y diles: ‘Esto es lo que dice el Señor
 
 ## Ezequiel 24:6
 
-‘Porque así dice el Señor Soberano:
+‘Porque así dice el Señor Dios:
 
 >  “¡Ay de la ciudad de derramamiento de sangre,
 >  de la olla ahora incrustada,
@@ -52,7 +52,7 @@ Habla en parábola a esta casa rebelde y diles: ‘Esto es lo que dice el Señor
 
 ## Ezequiel 24:9
 
-> Por tanto, esto es lo que dice el Señor Soberano:
+> Por tanto, esto es lo que dice el Señor Dios:
 
 >  “¡Ay de la ciudad de derramamiento de sangre!
 >  Haré grande la pila de leña.
@@ -68,7 +68,7 @@ Habla en parábola a esta casa rebelde y diles: ‘Esto es lo que dice el Señor
 ## Ezequiel 24:11
 
 > Luego pon la olla vacía sobre las brasas para que se caliente y su cobre brille,
->  que sus impurezas se derritan y su inmundicia sea consumida.
+>  para que sus impurezas se derritan y su inmundicia sea consumida.
 
 ## Ezequiel 24:12
 
@@ -78,11 +78,11 @@ Habla en parábola a esta casa rebelde y diles: ‘Esto es lo que dice el Señor
 
 ## Ezequiel 24:13
 
-Tu impureza es lujuria. Porque busqué limpiarte, pero no quisiste ser limpiada de tu impureza, no serás limpia de nuevo hasta que mi furia contra ti se haya agotado.
+Tu impureza es lascivia. Porque busqué limpiarte, pero no quisiste ser limpiada de tu impureza, no serás limpia de nuevo hasta que mi furia contra ti se haya agotado.
 
 ## Ezequiel 24:14
 
-Yo, el Señor, he hablado. Ha llegado el momento de actuar. No me detendré; no tendré piedad, ni me arrepentiré. Serás juzgada según tus caminos y tus obras, declara el Señor Soberano.’”
+Yo, el Señor, he hablado. Ha llegado el momento de actuar. No me detendré; no tendré piedad, ni me arrepentiré. Serás juzgada según tus caminos y tus obras, declara el Señor Dios.’”
 
 ## Ezequiel 24:15
 
@@ -110,7 +110,7 @@ Así que les expliqué: “Un mensaje del Señor me llegó:
 
 ## Ezequiel 24:21
 
-Di a la casa de Israel: ‘Esto es lo que dice el Señor Soberano: Estoy a punto de profanar mi santuario —el orgullo de tu poder, el deleite de tus ojos, el anhelo de tu alma. Los hijos e hijas que dejaste atrás caerán a espada—.
+Di a la casa de Israel: ‘Esto es lo que dice el Señor Dios: Estoy a punto de profanar mi santuario, el orgullo de vuestro poder, el deleite de vuestros ojos, el anhelo de vuestra alma. Los hijos e hijas que dejasteis atrás caerán a espada.
 
 ## Ezequiel 24:22
 
@@ -122,7 +122,7 @@ Mantendréis vuestros turbantes en vuestras cabezas y vuestras sandalias en vues
 
 ## Ezequiel 24:24
 
-Ezequiel servirá como señal para vosotros; actuaréis tal como él ha actuado. Cuando esto ocurra, reconoceréis que yo soy el Señor Soberano.’
+Ezequiel servirá como señal para vosotros; actuaréis tal como él ha actuado. Cuando esto ocurra, reconoceréis que yo soy el Señor Dios.’
 
 ## Ezequiel 24:25
 

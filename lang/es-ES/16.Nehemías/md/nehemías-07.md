@@ -10,7 +10,7 @@ Nombré a mi hermano Hananí, y a Hananías, el comandante de la fortaleza, a ca
 
 ## Nehemías 7:3
 
-Les instruí: “No abran las puertas de Jerusalén hasta que el sol esté alto. Mientras los porteros estén todavía de guardia, que cierren y aseguren las puertas. Además, nombren guardias de entre los habitantes de Jerusalén, cada uno en su puesto y frente a su propia casa.”
+Les instruí: “No abráis las puertas de Jerusalén hasta que el sol esté alto. Mientras los porteros estén todavía de guardia, que cierren y aseguren las puertas. Además, nombrad guardias de entre los habitantes de Jerusalén, cada uno en su puesto y frente a su propia casa.”
 
 ---
 
@@ -28,11 +28,11 @@ Estos son los habitantes de la provincia que regresaron del cautiverio de los ex
 
 ## Nehemías 7:7
 
-acompañando a Zorobabel, Jesúa, Nehemías, Azarías, Reamías, Nahamani, Mardoqueo, Bilshán, Misperet, Bigvay, Nehum y Baaná. La lista de los hombres de Israel:
+acompañando a Zorobabel, Jesúa, Nehemías, Azarías, Reamías, Nahamani, Mardoqueo, Bilshán, Misperet, Bigvai, Nehum y Baaná. La lista de los hombres de Israel:
 
 ## Nehemías 7:8
 
-> la línea de Parós, numerada en 2,172;
+> la línea de Paros, numerada en 2 172;
 
 ## Nehemías 7:9
 
@@ -44,11 +44,11 @@ acompañando a Zorobabel, Jesúa, Nehemías, Azarías, Reamías, Nahamani, Mardo
 
 ## Nehemías 7:11
 
-> la línea de Pahat-Moab, numerada a través de la línea de Jesúa y Joab, 2,818;
+> la línea de Pahat-Moab, numerada a través de la línea de Jesúa y Joab, 2 818;
 
 ## Nehemías 7:12
 
-> la línea de Elam, numerada en 1,254;
+> la línea de Elam, numerada en 1 254;
 
 ## Nehemías 7:13
 
@@ -60,7 +60,7 @@ acompañando a Zorobabel, Jesúa, Nehemías, Azarías, Reamías, Nahamani, Mardo
 
 ## Nehemías 7:15
 
-> la línea de Binuy, numerada en 648;
+> la línea de Binui, numerada en 648;
 
 ## Nehemías 7:16
 
@@ -68,7 +68,7 @@ acompañando a Zorobabel, Jesúa, Nehemías, Azarías, Reamías, Nahamani, Mardo
 
 ## Nehemías 7:17
 
-> la línea de Azgad, numerada en 2,322;
+> la línea de Azgad, numerada en 2 322;
 
 ## Nehemías 7:18
 
@@ -76,7 +76,7 @@ acompañando a Zorobabel, Jesúa, Nehemías, Azarías, Reamías, Nahamani, Mardo
 
 ## Nehemías 7:19
 
-> la línea de Bigvay, numerada en 2,067;
+> la línea de Bigvai, numerada en 2 067;
 
 ## Nehemías 7:20
 
@@ -138,7 +138,7 @@ acompañando a Zorobabel, Jesúa, Nehemías, Azarías, Reamías, Nahamani, Mardo
 
 ## Nehemías 7:34
 
-> la línea del otro Elam, numerada en 1,254;
+> la línea del otro Elam, numerada en 1 254;
 
 ## Nehemías 7:35
 
@@ -154,7 +154,7 @@ acompañando a Zorobabel, Jesúa, Nehemías, Azarías, Reamías, Nahamani, Mardo
 
 ## Nehemías 7:38
 
-> la línea de Senaa, numerada en 3,930.
+> la línea de Senaa, numerada en 3 930.
 
 ---
 
@@ -166,15 +166,15 @@ Los sacerdotes:
 
 ## Nehemías 7:40
 
-> la línea de Imer, numerada en 1,052;
+> la línea de Imer, numerada en 1 052;
 
 ## Nehemías 7:41
 
-> la línea de Pasur, numerada en 1,247;
+> la línea de Pasur, numerada en 1 247;
 
 ## Nehemías 7:42
 
-> la línea de Harim, numerada en 1,017.
+> la línea de Harim, numerada en 1 017.
 
 ---
 
@@ -272,11 +272,11 @@ Estos fueron los que subieron de Tel-Mela, Tel-Harsa, Querub, Adón e Imer, pero
 
 ## Nehemías 7:62
 
-las familias de Delaía, Tobías y Necoda, 642.
+las familias de Delaías, Tobías y Necoda, 642.
 
 ## Nehemías 7:63
 
-Y de entre los sacerdotes: los descendientes de Hobaías, Hacoz y Barzilai, que se había casado con una hija de Barzilai el Galaadita y tomó ese nombre.
+Y de entre los sacerdotes: los descendientes de Hobaías, Hacoz y Barzilai, que se había casado con una hija de Barzilai el galaadita y tomó ese nombre.
 
 ---
 
@@ -292,11 +292,11 @@ El gobernador les ordenó no comer de los alimentos más sagrados hasta que un s
 
 ## Nehemías 7:66
 
-La asamblea entera numeraba 42,360,
+La asamblea entera numeraba 42 360,
 
 ## Nehemías 7:67
 
-además de sus 7,337 siervos y siervas; y también tenían 245 cantores, tanto hombres como mujeres.
+además de sus 7 337 siervos y siervas; y también tenían 245 cantores, tanto hombres como mujeres.
 
 ## Nehemías 7:68
 
@@ -304,21 +304,21 @@ Poseían 736 caballos, 245 mulas,
 
 ## Nehemías 7:69
 
-y tenían 435 camellos, y 6,720 asnos.
+y tenían 435 camellos, y 6 720 asnos.
 
 ---
 
 ## Nehemías 7:70
 
-Algunos de los jefes de las familias contribuyeron a la obra. El gobernador dio al tesoro 1,000 dracmas de oro, 50 tazones y 530 vestiduras para sacerdotes.
+Algunos de los jefes de las familias contribuyeron a la obra. El gobernador dio al tesoro 1 000 dracmas de oro, 50 tazones y 530 vestiduras para sacerdotes.
 
 ## Nehemías 7:71
 
-Algunos de los jefes de las familias dieron al tesoro para la obra 20,000 dracmas de oro y 2,200 minas de plata.
+Algunos de los jefes de las familias dieron al tesoro para la obra 20 000 dracmas de oro y 2 200 minas de plata.
 
 ## Nehemías 7:72
 
-El resto del pueblo dio 20,000 dracmas de oro, 2,000 minas de plata y 67 vestiduras para sacerdotes.
+El resto del pueblo dio 20 000 dracmas de oro, 2 000 minas de plata y 67 vestiduras para sacerdotes.
 
 ## Nehemías 7:73
 

@@ -108,7 +108,7 @@ Una respuesta honesta y sincera es tan agradable como un beso suave.
 
 ## Proverbios 24:27
 
-Prepara tu trabajo afuera, y hazlo listo en el campo; después, edifica tu casa.
+Prepara tu trabajo afuera, y ten listo tu campo; después, edifica tu casa.
 
 ## Proverbios 24:28
 

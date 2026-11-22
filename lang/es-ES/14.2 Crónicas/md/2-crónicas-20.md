@@ -10,7 +10,7 @@ Después de estos acontecimientos, los hijos de Moab y los hijos de Amón, junto
 
 Vinieron mensajeros e informaron a Josafat, diciendo,  
  “Un gran ejército se aproxima a ti desde más allá del mar, desde Aram;  
- y he aquí, están en Hazezón-tamar (es decir, En-gadi).”
+ y he aquí, están en Hazezón-tamar (es decir, en-gadi).”
 
 ---
 
@@ -141,7 +141,7 @@ Los levitas, de los descendientes de los coatitas y de los coreítas,
 
 Se levantaron temprano por la mañana y salieron al desierto de Tecoa;  
  y cuando salieron, Josafat se puso de pie y dijo,  
- “Escuchadme, Judá e habitantes de Jerusalén:  
+ “Escuchadme, Judá y habitantes de Jerusalén:  
  Confiad en el Señor vuestro Dios y permaneceréis firmes.  
  Confiad en Sus profetas, y tendréis éxito.”
 
@@ -268,6 +268,6 @@ Así, se alió con él para hacer barcos que fueran a Tarsis,
 
 ## 2 Crónicas 20:37
 
-Eliezer, hijo de Dodavahu de Maresá, profetizó contra Josafat, diciendo,  
+Eliezer, hijo de Dodavahu de Maresa, profetizó contra Josafat, diciendo,  
  “Porque te has aliado con Ocozías, el Señor ha destruido tus obras.”  
  Como resultado, los barcos se rompieron y no pudieron ir a Tarsis.

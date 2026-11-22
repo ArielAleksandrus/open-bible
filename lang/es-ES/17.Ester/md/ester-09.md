@@ -20,7 +20,7 @@ Mardoqueo era prominente en el palacio del rey, y su fama se extendió por todas
 
 ## Ester 9:5
 
-Los judíos mataron a todos sus enemigos con la espada, matándolos y destruyéndolos, e hicieron lo que quisieron con los que los odiaban.
+Los judíos hirieron a todos sus enemigos a filo de espada, matándolos y destruyéndolos, e hicieron lo que quisieron con los que los odiaban.
 
 ## Ester 9:6
 

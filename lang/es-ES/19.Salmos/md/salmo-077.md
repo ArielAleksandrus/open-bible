@@ -10,7 +10,7 @@
 ## Salmo 77:2
 
 > En mi angustia, busqué al Señor;  
->  En la noche, mi mano se extendía sin cansarse;  
+>  en la noche, mi mano se extendía sin cansarse;  
 >  Mi alma no encontró consuelo.
 
 ---
@@ -18,7 +18,7 @@
 ## Salmo 77:3
 
 > Cuando pienso en Dios, me siento inquieto;  
->  Cuando suspiro, mi espíritu se desmaya.
+>  cuando suspiro, mi espíritu se desmaya.
 
 >  Selah
 
@@ -30,13 +30,13 @@
 ## Salmo 77:5
 
 > He reflexionado sobre los días antiguos,  
->  Los años de tiempos pasados.
+>  los años de tiempos pasados.
 
 ## Salmo 77:6
 
 > Recordaré mi canción en la noche;  
 >  Meditaré en mi corazón,  
->  Y mi espíritu reflexiona:
+>  y mi espíritu reflexiona:
 
 ---
 
@@ -53,7 +53,7 @@
 ## Salmo 77:9
 
 > ¿Ha olvidado Dios ser misericordioso,  
->  O en su ira ha retenido su compasión?
+>  o en su ira ha retenido su compasión?
 
 >  Selah
 
@@ -62,7 +62,7 @@
 ## Salmo 77:10
 
 > Entonces dije: “Este es mi dolor,  
->  Que la mano derecha del Altísimo ha cambiado.”
+>  que la mano derecha del Altísimo ha cambiado.”
 
 ## Salmo 77:11
 
@@ -72,7 +72,7 @@
 ## Salmo 77:12
 
 > Reflexionaré sobre todas tus obras,  
->  Y en tus hechos con gratitud.
+>  y en tus hechos con gratitud.
 
 ---
 
@@ -89,7 +89,7 @@
 ## Salmo 77:15
 
 > Con tu poder, has redimido a tu pueblo,  
->  Los descendientes de Jacob y José.
+>  los descendientes de Jacob y José.
 
 >  Selah
 
@@ -98,26 +98,26 @@
 ## Salmo 77:16
 
 > Las aguas te vieron, Dios;  
->  Las aguas te vieron y se angustiaron;  
->  Las profundidades del océano también temblaron.
+>  las aguas te vieron y se angustiaron;  
+>  las profundidades del océano también temblaron.
 
 ## Salmo 77:17
 
 > Las nubes derramaron agua;  
->  Los cielos resonaron;  
+>  los cielos resonaron;  
 >  Tus flechas destellaron de un lado a otro.
 
 ## Salmo 77:18
 
 > El sonido de tu trueno estaba en el torbellino;  
->  El relámpago iluminó el mundo;  
->  La tierra tembló y se sacudió.
+>  el relámpago iluminó el mundo;  
+>  la tierra tembló y se sacudió.
 
 ## Salmo 77:19
 
 > Tu camino fue a través del mar,  
->  Y tu senda a través de las aguas poderosas,  
->  Y tus huellas eran invisibles.
+>  y tu senda a través de las aguas poderosas,  
+>  y tus huellas eran invisibles.
 
 ## Salmo 77:20
 

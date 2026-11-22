@@ -106,11 +106,11 @@ En el temor del Señor hay fuerte confianza, y para sus hijos será un refugio.
 
 ## Proverbios 14:27
 
-El temor del Señor es una fuente de vida, apartando a uno de las trampas de la muerte.
+El temor del Señor es una fuente de vida, para apartarse de las trampas de la muerte.
 
 ## Proverbios 14:28
 
-La multitud de una nación es el honor de un rey, pero un príncipe se deshace cuando no tiene seguidores.
+La multitud de una nación es el honor de un rey, pero sin súbditos el príncipe se arruina.
 
 ## Proverbios 14:29
 
@@ -130,7 +130,7 @@ Cuando llega la calamidad, los malvados son derribados, pero los justos tienen u
 
 ## Proverbios 14:33
 
-La sabiduría reposa en el corazón del discernidor, pero incluso entre los necios, ella se da a conocer.
+La sabiduría reposa en el corazón del entendido, pero incluso entre los necios, ella se da a conocer.
 
 ## Proverbios 14:34
 

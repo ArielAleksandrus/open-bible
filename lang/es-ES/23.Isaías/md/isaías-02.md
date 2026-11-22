@@ -6,19 +6,19 @@ El mensaje que Isaías, hijo de Amoz, recibió acerca de Judá y Jerusalén.
 
 ## Isaías 2:2
 
-En los últimos días, el monte de la casa del Señor será establecido como el principal entre los montes; será elevado sobre las colinas, y todas las naciones correrán hacia él.
+En los últimos tiempos, el monte donde está la casa del Señor quedará firme como el más importante de los montes; se alzará por encima de las colinas, y todas las naciones acudirán a él como un río.
 
 ## Isaías 2:3
 
-Muchos pueblos vendrán y dirán: “Venid, subamos al monte del Señor, a la casa del Dios de Jacob. Él nos instruirá en sus caminos, para que caminemos por sus sendas.” Porque de Sión saldrá la ley, y de Jerusalén la palabra del Señor.
+Llegarán pueblos numerosos diciendo: “Venid, subamos al monte del Señor, a la casa del Dios de Jacob. Él nos enseñará sus caminos, para que vivamos como Él quiere.” Porque la enseñanza saldrá de Sion, y la palabra del Señor, de Jerusalén.
 
 ## Isaías 2:4
 
-Él arbitrará entre las naciones y mediará por muchos pueblos. Transformarán sus espadas en arados y sus lanzas en hoces. Nación no alzará espada contra nación, ni aprenderán más la guerra.
+Él resolverá los pleitos entre las naciones y pondrá paz entre muchos pueblos. Con sus espadas harán arados y con sus lanzas, herramientas para podar. Ninguna nación volverá a levantar la espada contra otra, ni se entrenarán más para la guerra.
 
 ## Isaías 2:5
 
-Venid, oh casa de Jacob, caminemos a la luz del Señor.
+¡Venid, descendientes de Jacob! Vivamos a la luz del Señor.
 
 ## Isaías 2:6
 
@@ -46,7 +46,7 @@ Los ojos altivos de la humanidad serán humillados, y el orgullo humano será ab
 
 ## Isaías 2:12
 
-Porque el Señor de los Ejércitos tiene un día de ajuste de cuentas contra todo lo que es orgulloso y altivo, contra todo lo que es exaltado, y serán humillados,
+Porque el Señor de los ejércitos tiene un día de ajuste de cuentas contra todo lo que es orgulloso y altivo, contra todo lo que es exaltado, y serán humillados,
 
 ## Isaías 2:13
 

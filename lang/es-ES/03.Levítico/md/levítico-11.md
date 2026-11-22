@@ -62,7 +62,7 @@ todas las variedades de cuervo,
 
 ## Levítico 11:16
 
-el avestruz, el búho, la gaviota y cualquier tipo de halcón,
+el avestruz, el búho, la gaviota y cualquier tipo de gavilán,
 
 ## Levítico 11:17
 
@@ -70,7 +70,7 @@ el búho pequeño, el cormorán y el búho grande,
 
 ## Levítico 11:18
 
-el búho barnacla, el pelícano y el buitre carroñero,
+la lechuza, el pelícano y el buitre carroñero,
 
 ## Levítico 11:19
 
@@ -106,7 +106,7 @@ Quien recoja uno de sus cadáveres debe lavar su ropa, y será impuro hasta la t
 
 ## Levítico 11:27
 
-De todos los animales que caminan sobre cuatro patas, aquellos que caminan sobre sus patas son impuros para vosotros; quien toque sus cadáveres será impuro hasta la tarde.
+De todos los animales que caminan sobre cuatro patas, aquellos que caminan sobre sus zarpas son impuros para vosotros; quien toque sus cadáveres será impuro hasta la tarde.
 
 ## Levítico 11:28
 
@@ -118,7 +118,7 @@ Cualquiera que recoja sus cadáveres debe lavar su ropa, y será impuro hasta la
 
 ## Levítico 11:30
 
-así como el gecko, el lagarto monitor, el lagarto común, el eslizón y el camaleón.
+así como el gecko, el varano, el lagarto común, el eslizón y el camaleón.
 
 ## Levítico 11:31
 

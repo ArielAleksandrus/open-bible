@@ -16,7 +16,7 @@ Considerad también los barcos: a pesar de su tamaño y de ser impulsados por fu
 De igual manera, la lengua es una pequeña parte del cuerpo, pero se jacta de grandes cosas. ¡Ved cómo un gran bosque puede ser incendiado por una pequeña chispa!
 
 ## Santiago 3:6
-La lengua también es un fuego, un mundo de iniquidad entre las partes del cuerpo. Corrompe todo el cuerpo, enciende el curso de la vida de uno, y ella misma es encendida por el infierno.
+La lengua también es un fuego, un mundo de maldad metido entre las partes del cuerpo. Contamina todo el cuerpo, prende fuego a toda nuestra vida, y a ella le prende fuego el infierno.
 
 ## Santiago 3:7
 Toda clase de animales, aves, reptiles y criaturas del mar son domados y han sido domados por la humanidad,
@@ -28,10 +28,10 @@ pero ningún humano puede domar la lengua. Es un mal inquieto, lleno de veneno m
 Con ella bendecimos a nuestro Señor y Padre, y con ella maldecimos a las personas, que están hechas a semejanza de Dios.
 
 ## Santiago 3:10
-De la misma boca salen bendición y maldición. Mis hermanos y hermanas, esto no debería ser así.
+De una misma boca salen bendiciones y maldiciones. Hermanos y hermanas míos, esto no puede seguir así.
 
 ## Santiago 3:11
-¿Puede una fuente producir agua dulce y amarga por la misma abertura?
+¿Acaso puede salir de un mismo manantial agua dulce y agua amarga?
 
 ## Santiago 3:12
 Mis hermanos y hermanas, ¿puede una higuera producir aceitunas, o una vid producir higos? Tampoco puede una fuente salada dar agua dulce.
@@ -43,13 +43,13 @@ Mis hermanos y hermanas, ¿puede una higuera producir aceitunas, o una vid produ
 Pero si alimentáis envidias amargas y ambición egoísta en vuestros corazones, no os jactéis de ello ni neguéis la verdad.
 
 ## Santiago 3:15
-Esa sabiduría no viene de lo alto, sino que es terrenal, no espiritual y demoníaca.
+Una sabiduría así no viene del cielo, sino que es de este mundo, no viene del Espíritu y procede de los demonios.
 
 ## Santiago 3:16
-Porque donde hay envidia y ambición egoísta, hay desorden y toda práctica malvada.
+Porque donde hay envidia y egoísmo, también hay desorden y toda clase de maldad.
 
 ## Santiago 3:17
 Pero la sabiduría que viene de lo alto es primeramente pura, luego amante de la paz, amable, dispuesta a ceder, llena de misericordia y buenos frutos, imparcial y sincera.
 
 ## Santiago 3:18
-Los que promueven la paz siembran semillas de paz y cosechan una cosecha de justicia.
+Los que promueven la paz siembran semillas de paz y recogen una cosecha de justicia.

@@ -31,7 +31,7 @@ Entonces Elihú hijo de Baraquel el buzita declaró:
 
 ## Job 32:7
 
-> Pensé, ‘Que hable la edad,
+> Pensé: ‘Que hable la edad,
 >  y que muchos años impartan sabiduría.’
 
 ## Job 32:8
@@ -65,7 +65,7 @@ Entonces Elihú hijo de Baraquel el buzita declaró:
 
 ## Job 32:13
 
-> Por lo tanto, no afirméis, ‘Hemos descubierto sabiduría;
+> Por lo tanto, no afirméis: ‘Hemos descubierto sabiduría;
 >  que Dios, no el hombre, lo derrote.’
 
 ## Job 32:14
@@ -87,7 +87,7 @@ Entonces Elihú hijo de Baraquel el buzita declaró:
 
 ## Job 32:17
 
-> Yo también tendré mi decir;
+> Yo también diré lo mío;
 >  yo también compartiré mis pensamientos.
 
 ## Job 32:18
@@ -113,4 +113,4 @@ Entonces Elihú hijo de Baraquel el buzita declaró:
 ## Job 32:22
 
 > Porque no sé cómo adular;
->  si lo hiciera, mi Hacedor rápidamente me quitaría.
+>  si lo hiciera, mi Hacedor me quitaría de en medio rápidamente.

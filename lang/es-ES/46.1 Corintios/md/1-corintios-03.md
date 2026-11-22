@@ -42,7 +42,7 @@ Por la gracia de Dios que me fue dada, puse un fundamento como un sabio construc
 
 ## 1 Corintios 3:11
 
-Porque nadie puede establecer otro fundamento que el que ya está establecido, que es Jesucristo.
+Porque nadie puede poner otro fundamento distinto del que ya está puesto, y ese fundamento es Jesucristo.
 
 ## 1 Corintios 3:12
 
@@ -82,7 +82,7 @@ Además, se dice, “El Señor es consciente de que los pensamientos de los sabi
 
 ## 1 Corintios 3:21
 
-Así que, que no haya más jactancia sobre líderes humanos. ¡Todas las cosas son vuestras,
+Así que, ¡que nadie se jacte más de líderes humanos! Todas las cosas son vuestras,
 
 ## 1 Corintios 3:22
 

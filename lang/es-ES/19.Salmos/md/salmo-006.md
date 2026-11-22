@@ -5,7 +5,7 @@
 ## Salmo 6:1
 
 > Señor, no me reprendas en tu ira,  
->  Ni me disciplines en tu enojo.
+>  ni me disciplines en tu enojo.
 
 ## Salmo 6:2
 
@@ -15,7 +15,7 @@
 ## Salmo 6:3
 
 > Y mi alma está profundamente turbada;  
->  Pero tú, Señor, ¿hasta cuándo?
+>  pero tú, Señor, ¿hasta cuándo?
 
 ---
 
@@ -26,8 +26,8 @@
 
 ## Salmo 6:5
 
-> Porque en la muerte no hay memoria de ti;  
->  En el Seol, ¿quién te alabará?
+> Porque en la muerte nadie se acuerda de Ti;  
+>  allá en el Seol, ¿quién te dará alabanza?
 
 ---
 
@@ -35,27 +35,27 @@
 
 > Estoy agotado de tanto gemir;
 
->  Cada noche empapo mi cama,  
+>  cada noche empapo mi cama,  
 >  Inundo mi lecho con mis lágrimas.
 
 ## Salmo 6:7
 
 > Mis ojos se han debilitado de tristeza;  
->  Ha envejecido a causa de todos mis enemigos.
+>  Han envejecido a causa de todos mis enemigos.
 
 ---
 
 ## Salmo 6:8
 
 > Apartaos de mí, todos los que cometéis injusticia,  
->  Porque el Señor ha oído el sonido de mi llanto.
+>  porque el Señor ha oído el sonido de mi llanto.
 
 ## Salmo 6:9
 
 > El Señor ha escuchado mi súplica,  
->  El Señor acepta mi oración.
+>  el Señor acepta mi oración.
 
 ## Salmo 6:10
 
 > Todos mis enemigos serán avergonzados y muy turbados;  
->  Se volverán atrás, de repente serán avergonzados.
+>  se volverán atrás, de repente serán avergonzados.

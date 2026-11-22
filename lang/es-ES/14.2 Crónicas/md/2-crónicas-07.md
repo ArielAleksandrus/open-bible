@@ -33,7 +33,7 @@ Entonces el rey y todo el pueblo presentaron ofrendas y sacrificios delante del 
 
 ## 2 Crónicas 7:5
 
-El rey Salomón ofreció un sacrificio de veintidós mil bueyes y 120,000 ovejas.  
+El rey Salomón ofreció un sacrificio de veintidós mil bueyes y 120 000 ovejas.  
  Así, el rey y todo el pueblo dedicaron la casa de Dios.
 
 ---
@@ -108,7 +108,7 @@ Si cierro los cielos para que no haya lluvia,
 
 ## 2 Crónicas 7:14
 
-y Mi pueblo que es llamado por Mi nombre se humilla,  
+si Mi pueblo, que es llamado por Mi nombre, se humilla,  
  y ora y busca Mi rostro,  
  y se aparta de sus malos caminos,  
  entonces oiré desde el cielo,  
@@ -124,8 +124,7 @@ De ahora en adelante, Mis ojos estarán abiertos y Mis oídos atentos a las orac
 
 ## 2 Crónicas 7:16
 
-Por el presente,  
- he elegido y consagrado esta casa para que Mi nombre resida allí perpetuamente,  
+Ahora he elegido y consagrado esta casa para que Mi nombre resida allí perpetuamente,  
  y Mis ojos y Mi corazón permanecerán allí continuamente.
 
 ---

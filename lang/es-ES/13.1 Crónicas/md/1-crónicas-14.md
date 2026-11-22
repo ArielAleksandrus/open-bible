@@ -107,7 +107,7 @@ David nuevamente consultó a Dios, y Dios le dijo,
 
 ## 1 Crónicas 14:15
 
-Y será que, cuando oigas el sonido de marcha en las copas de los arbustos de baka,
+Cuando oigas el sonido de marcha en las copas de los arbustos de baka,
 
 >  entonces saldrás a la batalla,  
 >  porque Dios habrá salido delante de ti para herir al ejército de los filisteos.”

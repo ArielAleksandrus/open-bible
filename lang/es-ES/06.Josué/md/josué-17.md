@@ -7,7 +7,7 @@ Esta fue la herencia para la tribu de Manasés, el primogénito de José:
 
 ## Josué 17:2
 
-Así que se hizo la herencia para el resto de la tribu de Manasés, según sus clanes —para los descendientes de Abiezer, Helec, Asriel, Siquem, Hefer y Semida. Estos eran los descendientes varones de Manasés hijo de José por sus clanes—.
+Así que se hizo la herencia para el resto de la tribu de Manasés, según sus clanes: para los descendientes de Abiezer, Helec, Asriel, Siquem, Hefer y Semida. Estos eran los descendientes varones de Manasés hijo de José por sus clanes.
 
 ## Josué 17:3
 

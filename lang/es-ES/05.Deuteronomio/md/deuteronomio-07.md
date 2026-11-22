@@ -22,13 +22,13 @@ Porque tú eres un pueblo santo para el Señor tu Dios. El Señor tu Dios te ha 
 El Señor no te escogió porque fueras más numeroso que otros pueblos, pues eras el más pequeño de todos los pueblos.
 
 ## Deuteronomio 7:8
-Sino porque el Señor te amó y guardó el juramento que hizo a tus antepasados, te sacó con mano poderosa y te redimió de la casa de esclavitud, del poder del faraón, rey de Egipto.
+Sino que, porque el Señor te amó y guardó el juramento que hizo a tus antepasados, te sacó con mano poderosa y te redimió de la casa de esclavitud, del poder del faraón, rey de Egipto.
 
 ## Deuteronomio 7:9
 Entiende, por tanto, que el Señor tu Dios es Dios; Él es el Dios fiel, que mantiene su pacto de amor a mil generaciones de aquellos que lo aman y guardan sus mandamientos.
 
 ## Deuteronomio 7:10
-Pero a los que lo odian les retribuirá en su cara con destrucción; no dudará en retribuir en su cara a los que lo odian.
+Pero a los que lo odian les dará su merecido en persona, destruyéndolos; no tardará en dar su merecido en persona a los que lo odian.
 
 ## Deuteronomio 7:11
 Así que, sé diligente en seguir los mandamientos, decretos y leyes que te doy hoy.
@@ -61,7 +61,7 @@ Fuiste testigo con tus propios ojos de las grandes pruebas, las señales y marav
 Además, el Señor tu Dios enviará el avispón entre ellos hasta que incluso los sobrevivientes que se escondan de ti hayan perecido.
 
 ## Deuteronomio 7:21
-No te desanimes por ellos, porque el Señor tu Dios, que está contigo, es un Dios poderoso e impresionante.
+No te desanimes por ellos, porque el Señor tu Dios, que está contigo, es un Dios poderoso y temible.
 
 ## Deuteronomio 7:22
 El Señor tu Dios expulsará a esas naciones delante de ti, poco a poco. No podrás eliminarlas todas de una vez, o los animales salvajes se volverán demasiado numerosos para ti.

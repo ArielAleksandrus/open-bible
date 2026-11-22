@@ -2,23 +2,23 @@
 
 ## Isaías 43:1
 
-Pero ahora, esto es lo que declara el Señor —Él que te creó, Jacob, y Él que te formó, Israel: “No temas, porque yo te he redimido; te he llamado por tu nombre; tú me perteneces—.
+Pero ahora, esto declara el Señor, el que te creó, Jacob, el que te formó, Israel: “No tengas miedo, que yo te he rescatado; te he llamado por tu nombre; tú eres mío.
 
 ## Isaías 43:2
 
-Cuando pases por las aguas, yo estaré contigo; y por los ríos, no te cubrirán. Cuando camines por el fuego, no te quemarás, ni la llama te abrasará.
+Cuando cruces las aguas, yo estaré contigo; cuando cruces los ríos, no te arrastrarán. Cuando camines entre las llamas, no te quemarás, ni el fuego te hará arder.
 
 ## Isaías 43:3
 
-Porque yo soy el Señor tu Dios, el Santo de Israel, tu Salvador; he dado a Egipto como tu rescate, a Cus y Seba en tu lugar.
+Porque yo soy el Señor tu Dios, el Santo de Israel, el que te salva; he entregado a Egipto como pago por tu rescate, a Cus y a Seba en tu lugar.
 
 ## Isaías 43:4
 
-Puesto que eres precioso a mis ojos, honrado y amado, daré personas a cambio de ti, y naciones a cambio de tu vida.
+Como para mí vales mucho, porque te aprecio y te quiero, entregaré a otros a cambio de ti, pueblos enteros a cambio de tu vida.
 
 ## Isaías 43:5
 
-No temas, porque yo estoy contigo; traeré a tu descendencia desde el oriente y te reuniré desde el occidente.
+No tengas miedo, que yo estoy contigo; traeré a tus descendientes desde el oriente y te reuniré desde el occidente.
 
 ## Isaías 43:6
 
@@ -26,7 +26,7 @@ Ordenaré al norte que los libere, y al sur que no los retenga. Reúne a mis hij
 
 ## Isaías 43:7
 
-todos los que son llamados por mi nombre, a quienes creé para mi gloria, a quienes formé e hice.”
+a todos los que llevan mi nombre, a los que creé para mi gloria, a los que yo mismo formé e hice.”
 
 ## Isaías 43:8
 
@@ -38,15 +38,15 @@ Todas las naciones se reúnen, y los pueblos se congregan. ¿Quién de ellos pue
 
 ## Isaías 43:10
 
-“Vosotros sois mis testigos,” dice el Señor, “y mi siervo a quien he escogido, para que me conozcáis y creáis en mí y entendáis que yo soy él. Antes de mí no fue formado dios alguno, ni lo habrá después de mí.
+“Vosotros sois mis testigos,” dice el Señor, “vosotros y mi siervo, al que he elegido, para que me conozcáis, confiéis en mí y comprendáis que yo soy el único. Antes de mí no se formó ningún dios, y después de mí no habrá ninguno.
 
 ## Isaías 43:11
 
-Yo, yo soy el Señor, y fuera de mí no hay salvador.
+Yo, solo yo, soy el Señor, y aparte de mí no hay nadie que salve.
 
 ## Isaías 43:12
 
-He revelado, salvado y proclamado —Yo, y no algún dios extranjero entre vosotros. Vosotros sois mis testigos,” declara el Señor, “de que yo soy Dios—.
+He revelado, salvado y proclamado; yo, y no algún dios extranjero entre vosotros. Vosotros sois mis testigos,” declara el Señor, “de que yo soy Dios.
 
 ## Isaías 43:13
 
@@ -54,7 +54,7 @@ Desde la eternidad, yo soy él, y nadie puede rescatar de mi mano. Cuando actúo
 
 ## Isaías 43:14
 
-Esto es lo que declara el Señor —tu Redentor, el Santo de Israel: “Por tu causa, he enviado a Babilonia y los haré descender a todos como fugitivos, incluso a los caldeos, en los barcos sobre los cuales se regocijaron—.
+Esto es lo que declara el Señor, tu Redentor, el Santo de Israel: “Por tu causa, he enviado a Babilonia y los haré descender a todos como fugitivos, incluso a los caldeos, en los barcos sobre los cuales se regocijaron.
 
 ## Isaías 43:15
 
@@ -62,7 +62,7 @@ Yo soy el Señor, tu Santo, el Creador de Israel, tu Soberano y Rey.”
 
 ## Isaías 43:16
 
-Esto es lo que declara el Señor —Él que hace un camino a través del mar y una senda a través de las aguas poderosas,—
+Esto es lo que declara el Señor, el que abre un camino en el mar y una senda en las aguas poderosas,
 
 ## Isaías 43:17
 
@@ -74,11 +74,11 @@ que saca el carro y el caballo, el ejército y el hombre poderoso; yacen juntos 
 
 ## Isaías 43:19
 
-¡Mirad, estoy haciendo algo nuevo! Ahora brota; ¿no lo percibís? Estoy haciendo un camino en el desierto y ríos en el desierto.
+¡Mirad, voy a hacer algo nuevo! Ya está brotando; ¿no os dais cuenta? Voy a abrir un camino en el desierto y ríos en la tierra seca.
 
 ## Isaías 43:20
 
-Los animales salvajes me honran, los chacales y los avestruces, porque proporciono agua en el desierto y ríos en el desierto, para dar de beber a mi pueblo escogido,
+Los animales salvajes me honran, los chacales y los avestruces, porque proporciono agua en el desierto y ríos en la tierra árida, para dar de beber a mi pueblo escogido,
 
 ## Isaías 43:21
 
@@ -98,11 +98,11 @@ No me has comprado caña dulce con dinero, ni me has satisfecho con la grasa de 
 
 ## Isaías 43:25
 
-“Yo, yo soy el que borra tus transgresiones por mi propio bien, y no recuerda más tus pecados.
+“Yo, solo yo, soy el que borra tus rebeldías por amor a mí mismo, y no me acordaré más de tus pecados.
 
 ## Isaías 43:26
 
-Revisa el pasado conmigo, discutamos el asunto juntos; presenta tu caso, para que puedas ser justificado.
+Revisa el pasado conmigo, entremos juntos en juicio; presenta tu caso, para que puedas ser justificado.
 
 ## Isaías 43:27
 
@@ -110,4 +110,4 @@ Tu primer antepasado pecó, y tus representantes se rebelaron contra mí.
 
 ## Isaías 43:28
 
-Por eso deshonraré a los oficiales del santuario, y consignaré a Jacob a la destrucción e Israel al desprecio.
+Por eso deshonraré a los oficiales del santuario, y entregaré a Jacob a la destrucción y a Israel al escarnio.

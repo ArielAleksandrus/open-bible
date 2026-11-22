@@ -23,22 +23,22 @@
 ## Salmo 11:4
 
 > El Señor está en su santo templo;  
->  El trono del Señor está en el cielo;  
+>  el trono del Señor está en el cielo;  
 >  Sus ojos observan, sus párpados prueban a los hijos de los hombres.
 
 ## Salmo 11:5
 
 > El Señor examina tanto a los justos como a los malvados,  
->  Y detesta profundamente a quien se deleita en la violencia.
+>  y detesta profundamente a quien se deleita en la violencia.
 
 ## Salmo 11:6
 
-> Hará llover carbones de fuego sobre los malvados,  
->  Fuego y azufre y viento abrasador serán la porción de su copa.
+> Sobre los malvados hará caer una lluvia de brasas;  
+>  fuego, azufre y un viento que quema: eso es lo que les tocará beber.
 
 ---
 
 ## Salmo 11:7
 
 > Porque el Señor es justo, ama la justicia;  
->  Los rectos contemplarán su rostro.
+>  los rectos contemplarán su rostro.

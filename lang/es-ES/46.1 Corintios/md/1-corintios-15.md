@@ -14,7 +14,7 @@ Porque os transmití como de suma importancia lo que también recibí, que Crist
 
 ## 1 Corintios 15:4
 
-y que fue sepultado, y que al tercer día resucitó, como fue anunciado por las Escrituras,
+Y que lo enterraron, y que al tercer día fue levantado de entre los muertos, tal como lo habían anunciado las Escrituras,
 
 ## 1 Corintios 15:5
 
@@ -34,11 +34,11 @@ Y finalmente, como a uno nacido a destiempo, se me apareció también a mí.
 
 ## 1 Corintios 15:9
 
-Porque yo soy el menor de los apóstoles, y no digno de ser llamado apóstol, porque perseguí a la iglesia de Dios.
+Porque yo soy el más insignificante de los apóstoles, y ni siquiera merezco que me llamen apóstol, porque perseguí a la iglesia de Dios.
 
 ## 1 Corintios 15:10
 
-Pero por la gracia de Dios, soy lo que soy, y su gracia para conmigo no fue en vano; sino que trabajé más que todos ellos, aunque no yo, sino la gracia de Dios conmigo.
+Pero lo que soy, lo soy por la gracia de Dios, y esa gracia que me dio no quedó sin fruto; al contrario, he trabajado más que todos ellos, aunque no he sido yo, sino la gracia de Dios que está conmigo.
 
 ## 1 Corintios 15:11
 
@@ -58,7 +58,7 @@ Y si Cristo no ha resucitado, entonces nuestra predicación es en vano, y vuestr
 
 ## 1 Corintios 15:15
 
-Además, nos hallamos como falsos testigos de Dios, porque hemos testificado de Dios que resucitó a Cristo, a quien no resucitó si en verdad los muertos no resucitan.
+Además, resultamos ser falsos testigos de Dios, porque hemos testificado de Dios que resucitó a Cristo, a quien no resucitó si en verdad los muertos no resucitan.
 
 ## 1 Corintios 15:16
 
@@ -66,7 +66,7 @@ Porque si los muertos no son resucitados, entonces ni siquiera Cristo ha resucit
 
 ## 1 Corintios 15:17
 
-Y si Cristo no ha resucitado, vuestra fe es vana; seguís en vuestros pecados.
+Y si Cristo no ha sido levantado de entre los muertos, vuestra fe no sirve de nada y todavía estáis en vuestros pecados.
 
 ## 1 Corintios 15:18
 
@@ -74,47 +74,47 @@ Entonces también los que han fallecido en Cristo han perecido.
 
 ## 1 Corintios 15:19
 
-Si hemos esperado en Cristo solo para esta vida, somos de todos los hombres los más dignos de lástima.
+Si nuestra esperanza en Cristo fuera solo para esta vida, seríamos los más dignos de lástima de todo el mundo.
 
 ## 1 Corintios 15:20
 
-Pero ahora Cristo ha resucitado de entre los muertos, las primicias de los que han muerto.
+Pero la verdad es que Cristo ha sido levantado de entre los muertos, como los primeros frutos de los que han muerto.
 
 ## 1 Corintios 15:21
 
-Porque ya que la muerte vino por un hombre, la resurrección de los muertos también viene por un hombre.
+Porque, así como la muerte llegó por medio de un hombre, también por medio de un ser humano llega la resurrección de los muertos.
 
 ## 1 Corintios 15:22
 
-Porque así como en Adán todos mueren, así en Cristo todos serán vivificados.
+Porque, así como todos mueren por estar unidos a Adán, todos recibirán vida por estar unidos a Cristo.
 
 ## 1 Corintios 15:23
 
-Pero cada uno en su debido orden: Cristo las primicias, luego los que son de Cristo en su venida,
+Pero cada uno a su turno: primero Cristo, como primer fruto; después, cuando él venga, los que le pertenecen,
 
 ## 1 Corintios 15:24
 
-Luego vendrá el fin, cuando entregue el reino a nuestro Dios y Padre, después de haber abolido todo dominio, toda autoridad y poder.
+Y entonces llegará el final, cuando él entregue el reino a nuestro Dios y Padre, después de haber acabado con todo gobierno, toda autoridad y todo poder.
 
 ## 1 Corintios 15:25
 
-Porque Él debe reinar hasta que haya puesto a todos sus enemigos bajo sus pies.
+Porque Él tiene que reinar hasta que haya puesto a todos sus enemigos debajo de sus pies.
 
 ## 1 Corintios 15:26
 
-El último enemigo que será abolido es la muerte.
+Y el último enemigo que será eliminado es la muerte.
 
 ## 1 Corintios 15:27
 
-Porque Él ha puesto todas las cosas en sujeción bajo sus pies. Pero cuando dice, “Todas las cosas están sujetas a Él,” es evidente que esto excluye a Aquel que puso todas las cosas en sujeción a Él.
+Porque Él lo ha sometido todo bajo sus pies. Pero cuando dice: “Todo ha quedado sometido”, está claro que no se incluye a Aquel que se lo sometió todo.
 
 ## 1 Corintios 15:28
 
-Cuando todas las cosas le sean sujetas, entonces el Hijo mismo también se sujetará a Aquel que le sujetó todas las cosas, para que Dios sea todo en todos.
+Cuando todo le haya quedado sometido, entonces el Hijo mismo se someterá también a Aquel que se lo sometió todo, para que Dios lo sea todo en todos.
 
 ## 1 Corintios 15:29
 
-De lo contrario, ¿qué harán los que se bautizan por los muertos? Si los muertos no resucitan en absoluto, ¿por qué entonces se bautizan por ellos?
+Si no fuera así, ¿qué sentido tiene lo que hacen los que se bautizan por los muertos? Si los muertos no resucitan de ninguna manera, ¿para qué se bautizan por ellos?
 
 ## 1 Corintios 15:30
 
@@ -149,11 +149,11 @@ Pero alguien preguntará, “¿Cómo resucitan los muertos? ¿Y con qué clase d
 
 ## 1 Corintios 15:37
 
-Y lo que siembras, no siembras el cuerpo que será, sino un grano desnudo, quizás de trigo o de alguna otra cosa.
+Y lo que siembras no es la planta que va a salir, sino solo un grano, tal vez de trigo o de otra cosa.
 
 ## 1 Corintios 15:38
 
-Pero Dios le da un cuerpo como Él desea, y a cada una de las semillas un cuerpo propio.
+Pero Dios le da la forma que Él quiere, y a cada clase de semilla le da su propia forma.
 
 ## 1 Corintios 15:39
 
@@ -169,15 +169,15 @@ Hay un esplendor del sol, otro esplendor de la luna, y otro esplendor de las est
 
 ## 1 Corintios 15:42
 
-Así es con la resurrección de los muertos. El cuerpo se siembra corruptible, se resucita incorruptible;
+Así sucede también con la resurrección de los muertos. Lo que se entierra es un cuerpo que se descompone; lo que resucita es un cuerpo que no se descompone;
 
 ## 1 Corintios 15:43
 
-Aunque se siembra sin honor, se resucita en gloria; aunque se siembra en debilidad, se resucita en poder;
+Lo que se entierra no tiene honra, pero lo que resucita tiene gloria; lo que se entierra es débil, pero lo que resucita tiene poder;
 
 ## 1 Corintios 15:44
 
-Aunque se siembra como cuerpo natural, se resucita como cuerpo espiritual. Si existe un cuerpo natural, también hay un cuerpo espiritual.
+Aunque se siembra como cuerpo natural, resucita como cuerpo espiritual. Si existe un cuerpo natural, también hay un cuerpo espiritual.
 
 ## 1 Corintios 15:45
 
@@ -201,24 +201,24 @@ Así como hemos llevado la imagen del hombre de polvo, también llevaremos la im
 
 ## 1 Corintios 15:50
 
-Ahora declaro esto, queridos amigos, que la carne y la sangre no pueden heredar el reino de Dios; ni lo corruptible hereda lo incorruptible.
+Lo que os quiero decir, queridos amigos, es que lo que está hecho de carne y sangre no puede recibir como herencia el reino de Dios, ni lo que se descompone puede recibir lo que no se descompone.
 
 ## 1 Corintios 15:51
 
-Escuchad, os digo un misterio; no todos dormiremos, pero todos seremos transformados,
+Escuchad, os voy a contar un misterio: no todos moriremos, pero todos seremos transformados,
 
 ## 1 Corintios 15:52
 
-En un momento, en un abrir y cerrar de ojos, al sonar la última trompeta; porque la trompeta sonará, y los muertos serán resucitados incorruptibles, y nosotros seremos transformados.
+En un instante, en un abrir y cerrar de ojos, cuando suene la última trompeta; porque sonará la trompeta, los muertos resucitarán para no volver a descomponerse, y nosotros seremos transformados.
 
 ## 1 Corintios 15:53
 
-Porque esto corruptible debe vestirse de incorrupción, y esto mortal de inmortalidad.
+Porque este cuerpo que se descompone tiene que revestirse de lo que no se descompone, y este cuerpo mortal tiene que revestirse de lo que no muere.
 
 ## 1 Corintios 15:54
 
-Pero cuando esto corruptible se vista de incorrupción, y esto mortal de inmortalidad, entonces se cumplirá lo que está escrito:  
- “La muerte ha sido devorada en victoria.
+Y cuando este cuerpo que se descompone se haya revestido de lo que no se descompone, y este cuerpo mortal de lo que no muere, entonces se hará realidad lo que dice la Escritura:  
+ “La victoria se ha tragado a la muerte.
 
 ## 1 Corintios 15:55
 
@@ -227,12 +227,12 @@ Pero cuando esto corruptible se vista de incorrupción, y esto mortal de inmorta
 
 ## 1 Corintios 15:56
 
-Porque el aguijón de la muerte es el pecado, y el poder del pecado es la Ley;
+Porque lo que da a la muerte su aguijón es el pecado, y lo que da fuerza al pecado es la Ley;
 
 ## 1 Corintios 15:57
 
-Así que, gracias sean dadas a Dios, que nos concede la victoria por medio de nuestro Señor Jesucristo.
+Así que, ¡gracias a Dios, que nos da la victoria por medio de nuestro Señor Jesucristo!
 
 ## 1 Corintios 15:58
 
-Por lo tanto, mis queridos amigos, sed firmes, inamovibles, siempre abundando en la obra del Señor, sabiendo que vuestro trabajo no es en vano en el Señor.
+Por eso, mis queridos amigos, manteneos firmes, que nada os mueva, y entregaos siempre de lleno a la obra del Señor, sabiendo que lo que hacéis por el Señor no es en vano.

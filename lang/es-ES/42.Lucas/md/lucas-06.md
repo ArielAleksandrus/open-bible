@@ -88,8 +88,8 @@ y todos intentaban tocarlo, porque de Él salía poder y sanaba a todos.
 
 Volviéndose hacia Sus discípulos, dijo:
 
->  “Bienaventurados vosotros los pobres,
->  porque vuestro es el reino de Dios.
+>  “Bienaventurados vosotros, los pobres,
+>  porque el reino de Dios es vuestro.
 
 ## Lucas 6:21
 
@@ -118,10 +118,10 @@ Regocijaos en ese día y saltad de alegría, porque he aquí, vuestra recompensa
 
 ## Lucas 6:25
 
-> ¡Ay de vosotros los que ahora estáis saciados,
->  porque tendréis hambre!
->  ¡Ay de vosotros los que ahora reís,
->  porque lamentaréis y lloraréis!
+> ¡Ay de vosotros, los que ahora estáis bien alimentados,
+>  porque pasaréis hambre!
+>  ¡Ay de vosotros, los que ahora reís,
+>  porque estaréis de luto y lloraréis!
 
 ## Lucas 6:26
 
@@ -176,7 +176,7 @@ Por lo tanto, sed misericordiosos, así como vuestro Padre es misericordioso.
 
 ## Lucas 6:37
 
-“No juzguéis, y no seréis juzgados. No condenéis, y no seréis condenados. Perdonad, y seréis perdonados.
+“Absteneos de juzgar, y no se os juzgará. Absteneos de condenar, y no se os condenará. Perdonad, y se os perdonará.
 
 ## Lucas 6:38
 
@@ -186,7 +186,7 @@ Dad, y se os dará. Una medida generosa, apretada, sacudida y rebosante, se derr
 
 ## Lucas 6:39
 
-También les compartió esta parábola: “¿Puede un ciego guiar a otro ciego? ¿No caerán ambos en un hoyo?
+También les contó esta parábola: “¿Puede un ciego guiar a otro ciego? ¿No caerán ambos en un hoyo?
 
 ## Lucas 6:40
 

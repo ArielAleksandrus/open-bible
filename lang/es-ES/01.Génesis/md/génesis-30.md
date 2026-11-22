@@ -86,7 +86,7 @@ Después tuvo una hija y la llamó Dina.
 
 ## Génesis 30:22
 
-Dios se acordó de Raquel, y Dios la escuchó y le permitió concebir.
+Dios se acordó de Raquel, y Dios la escuchó y hizo que concibiera.
 
 ## Génesis 30:23
 

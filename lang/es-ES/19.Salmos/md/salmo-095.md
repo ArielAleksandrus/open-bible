@@ -2,8 +2,8 @@
 
 ## Salmo 95:1
 
-> Venid, cantemos con gozo al Señor,  
->  Aclamemos con alegría a la roca de nuestra salvación.
+> Venid, cantemos alegres al Señor;  
+>  gritemos de alegría a la roca que nos salva.
 
 ## Salmo 95:2
 
@@ -14,51 +14,50 @@
 
 ## Salmo 95:3
 
-> Porque el Señor es en verdad un gran Dios Y un Rey poderoso sobre todos los dioses,
+> Porque el Señor es un Dios grande de verdad, un Rey poderoso por encima de todos los dioses;
 
 ## Salmo 95:4
 
-> En Su mano están las profundidades de la tierra,  
->  Las cumbres de los montes le pertenecen también.
+> en Su mano tiene lo más hondo de la tierra,  
+>  y también son Suyas las cimas de las montañas.
 
 ## Salmo 95:5
 
-> El mar es Suyo, porque Él lo creó,  
->  Y Sus manos formaron la tierra seca.
+> Suyo es el mar, porque Él lo hizo,  
+>  y la tierra firme salió de Sus manos.
 
 ---
 
 ## Salmo 95:6
 
-> Venid, adoremos y postrémonos,  
->  Arrodillémonos ante el Señor, nuestro Creador.
+> Venid, adoremos de rodillas,  
+>  inclinémonos ante el Señor que nos creó.
 
 ## Salmo 95:7
 
 > Porque Él es nuestro Dios,  
->  Y nosotros somos Su pueblo, el rebaño que Él cuida.
+>  y nosotros somos Su pueblo, el rebaño que Él pastorea.
 
 ---
 
->  Hoy, si escucháis Su voz,
+>  Hoy, si oís Su voz,
 
 ## Salmo 95:8
 
-> No endurezcáis vuestros corazones como en Meribá,  
->  Como en el día de Masá en el desierto,
+> no os pongáis tercos como en Meribá,  
+>  como aquel día en Masá, en el desierto,
 
 ## Salmo 95:9
 
-> Cuando vuestros antepasados me pusieron a prueba,  
->  Me tentaron, aunque habían visto Mis obras.
+> cuando vuestros antepasados me desafiaron y me pusieron a prueba,  
+>  a pesar de haber visto lo que Yo hacía.
 
 ## Salmo 95:10
 
-> Durante cuarenta años estuve disgustado con esa generación,  
->  Y dije que son un pueblo que se extravía en su corazón,  
->  Y no han entendido Mis caminos.
+> Cuarenta años me causó dolor aquella generación,  
+>  y dije que es un pueblo que tiene el corazón extraviado y que no ha entendido Mis caminos.
 
 ## Salmo 95:11
 
-> Por tanto, declaré en Mi ira,  
->  Que ciertamente no entrarán en Mi descanso.
+> Por eso, en Mi enojo,  
+>  declaré que jamás entrarán en Mi descanso.

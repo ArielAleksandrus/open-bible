@@ -68,7 +68,7 @@ Cuando uno de los que estaban reclinados a la mesa con Él oyó esto, dijo a Jes
 
 ## Lucas 14:16
 
-Jesús respondió: “Un hombre estaba preparando un gran banquete e invitó a muchos invitados.
+Jesús respondió: “Un hombre estaba preparando un gran banquete e invitó a mucha gente.
 
 ## Lucas 14:17
 

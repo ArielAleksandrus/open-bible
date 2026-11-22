@@ -18,7 +18,7 @@ Pero todos vosotros que os mantuvisteis fieles al Señor vuestro Dios estáis vi
 
 ## Deuteronomio 4:5
 
-Mira, te he enseñado estatutos y decretos como el Señor mi Dios me mandó, para que los sigas en la tierra que estás entrando para poseer.
+Mira, te he enseñado estatutos y decretos como el Señor mi Dios me mandó, para que los sigas en la tierra en la que vas a entrar para poseerla.
 
 ## Deuteronomio 4:6
 
@@ -54,15 +54,15 @@ Entonces el Señor te habló desde en medio del fuego; oíste el sonido de palab
 
 ## Deuteronomio 4:14
 
-Y el Señor me mandó en ese momento enseñarte estatutos y decretos, para que los sigas en la tierra que estás cruzando el Jordán para poseer.
+Y el Señor me mandó en ese momento enseñarte estatutos y decretos, para que los sigas en la tierra que vas a poseer al otro lado del Jordán.
 
 ## Deuteronomio 4:15
 
-Ten mucho cuidado, ya que no viste forma alguna el día que el Señor te habló en Horeb desde el fuego.
+Ten mucho cuidado, ya que no viste forma alguna el día que el Señor te habló en Horeb desde el fuego,
 
 ## Deuteronomio 4:16
 
-Para que no te corrompas y te hagas un ídolo, una imagen de cualquier forma, ya sea en forma de hombre o de mujer,
+para que no te corrompas y te hagas un ídolo, una imagen de cualquier forma, ya sea en forma de hombre o de mujer,
 
 ## Deuteronomio 4:17
 
@@ -102,7 +102,7 @@ Después de que hayas tenido hijos y nietos y hayas vivido en la tierra mucho ti
 
 ## Deuteronomio 4:26
 
-llamo a los cielos y la tierra como testigos contra ti hoy que rápidamente perecerás de la tierra que estás cruzando el Jordán para poseer. No vivirás allí mucho tiempo, sino que ciertamente serás destruido.
+llamo a los cielos y la tierra como testigos contra ti hoy de que rápidamente perecerás de la tierra que vas a poseer al otro lado del Jordán. No vivirás allí mucho tiempo, sino que ciertamente serás destruido.
 
 ## Deuteronomio 4:27
 
@@ -130,7 +130,7 @@ Pregunta ahora sobre los días pasados, mucho antes de tu tiempo, desde el día 
 
 ## Deuteronomio 4:33
 
-¿Ha oído alguna otra gente la voz de Dios hablando desde el fuego, como tú lo has hecho, y ha sobrevivido?
+¿Ha oído algún otro pueblo la voz de Dios hablando desde el fuego, como tú lo has hecho, y ha sobrevivido?
 
 ## Deuteronomio 4:34
 
@@ -194,4 +194,4 @@ Esta tierra se extendía desde Aroer en el borde del desfiladero del Arnón hast
 
 ## Deuteronomio 4:49
 
-e incluía toda la Arabá al este del Jordán, hasta el mar de la Arabá, debajo de las laderas de Pisga.
+e incluía todo el Arabá al este del Jordán, hasta el mar del Arabá, debajo de las laderas de Pisga.

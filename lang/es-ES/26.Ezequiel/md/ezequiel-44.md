@@ -16,7 +16,7 @@ Luego me llevó por el camino de la puerta del norte al frente de la casa, y vi 
 El Señor me dijo: “Hijo de hombre, observa atentamente, mira con tus ojos y oye con tus oídos todo lo que te digo acerca de todas las normas de la casa del Señor y todas sus leyes; presta atención a la entrada de la casa y a todas las salidas del santuario.
 
 ## Ezequiel 44:6
-Di a la casa rebelde de Israel, ‘Esto es lo que dice el Señor Soberano: ¡Basta de todas vuestras abominaciones, oh casa de Israel!
+Di a la casa rebelde de Israel, ‘Esto es lo que dice el Señor Dios: ¡Basta de todas vuestras abominaciones, oh casa de Israel!
 
 ## Ezequiel 44:7
 Además de todas vuestras otras abominaciones, trajisteis extranjeros, incircuncisos de corazón y de carne, para estar en mi santuario, profanándolo así, mi casa, mientras ofrecíais mi comida, la grasa y la sangre, y rompieron mi pacto.
@@ -25,7 +25,7 @@ Además de todas vuestras otras abominaciones, trajisteis extranjeros, incircunc
 En lugar de asumir la responsabilidad de mis cosas sagradas, nombrasteis extranjeros para encargarse de mi santuario.
 
 ## Ezequiel 44:9
-Esto es lo que dice el Señor Soberano: Ningún extranjero, incircunciso de corazón y de carne, entrará en mi santuario, ni siquiera los extranjeros que viven entre los israelitas.
+Esto es lo que dice el Señor Dios: Ningún extranjero, incircunciso de corazón y de carne, entrará en mi santuario, ni siquiera los extranjeros que viven entre los israelitas.
 
 ## Ezequiel 44:10
 Pero los levitas que se alejaron de mí cuando Israel se descarrió, que se descarriaron de mí tras sus ídolos, llevarán el castigo por su maldad.
@@ -34,7 +34,7 @@ Pero los levitas que se alejaron de mí cuando Israel se descarrió, que se desc
 Podrán servir en mi santuario, teniendo a su cargo las puertas de la casa y ministrando en la casa; podrán sacrificar los holocaustos y sacrificios para el pueblo y estar delante de ellos para ministrarles.
 
 ## Ezequiel 44:12
-Porque ministraron ante ellos delante de sus ídolos e hicieron que la casa de Israel cayera en pecado, por eso he jurado contra ellos, declara el Señor Soberano, que llevarán el castigo por su maldad.
+Porque ministraron ante ellos delante de sus ídolos e hicieron que la casa de Israel cayera en pecado, por eso he jurado contra ellos, declara el Señor Dios, que llevarán el castigo por su maldad.
 
 ## Ezequiel 44:13
 No se acercarán para servirme como sacerdotes, ni se acercarán a ninguna de mis cosas sagradas ni a mis ofrendas más santas; llevarán su vergüenza y sus abominaciones que han cometido.
@@ -43,7 +43,7 @@ No se acercarán para servirme como sacerdotes, ni se acercarán a ninguna de mi
 Sin embargo, los nombraré para que se encarguen de la casa, de todo su servicio y de todo lo que se debe hacer en ella.
 
 ## Ezequiel 44:15
-Pero los sacerdotes levitas, los descendientes de Sadoc, que se encargaron de mi santuario cuando los israelitas se descarriaron de mí, se acercarán para ministrar ante mí; estarán delante de mí para ofrecerme la grasa y la sangre, declara el Señor Soberano.
+Pero los sacerdotes levitas, los descendientes de Sadoc, que se encargaron de mi santuario cuando los israelitas se descarriaron de mí, se acercarán para ministrar ante mí; estarán delante de mí para ofrecerme la grasa y la sangre, declara el Señor Dios.
 
 ## Ezequiel 44:16
 Sólo ellos entrarán en mi santuario; sólo ellos se acercarán a mi mesa para ministrar ante mí y servirme.
@@ -79,13 +79,13 @@ Un sacerdote no debe contaminarse acercándose a un muerto; sin embargo, si el m
 Después de su purificación, debe esperar siete días.
 
 ## Ezequiel 44:27
-El día que entre en el santuario, al atrio interior para ministrar en el santuario, ofrecerá una ofrenda por el pecado para sí mismo, declara el Señor Soberano.
+El día que entre en el santuario, al atrio interior para ministrar en el santuario, ofrecerá una ofrenda por el pecado para sí mismo, declara el Señor Dios.
 
 ## Ezequiel 44:28
-Yo seré su única herencia; no les darás propiedad en Israel —yo soy su posesión—.
+Yo seré su única herencia; no les daréis propiedad en Israel —yo soy su posesión—.
 
 ## Ezequiel 44:29
-Comerán las ofrendas de grano, las ofrendas por el pecado y las ofrendas por la culpa; y todo en Israel consagrado al Señor les pertenecerá.
+Comerán las ofrendas de cereal, las ofrendas por el pecado y las ofrendas por la culpa; y todo en Israel consagrado al Señor les pertenecerá.
 
 ## Ezequiel 44:30
 Lo mejor de todos los primeros frutos y de todos vuestros dones especiales pertenecerá a los sacerdotes. Debéis darles la primera porción de vuestra harina molida para que una bendición repose sobre vuestra casa.

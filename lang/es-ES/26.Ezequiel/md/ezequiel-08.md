@@ -1,7 +1,7 @@
 # Ezequiel Capítulo 8
 
 ## Ezequiel 8:1
-En el sexto año, en el quinto día del sexto mes, mientras estaba sentado en mi casa con los ancianos de Judá delante de mí, la mano del Señor Soberano vino sobre mí allí.
+En el sexto año, en el quinto día del sexto mes, mientras estaba sentado en mi casa con los ancianos de Judá delante de mí, la mano del Señor Dios vino sobre mí allí.
 
 ## Ezequiel 8:2
 Miré, y había algo que se asemejaba a la apariencia de un hombre. Desde su cintura hacia abajo, parecía fuego, y desde su cintura hacia arriba, tenía la apariencia de un metal resplandeciente y brillante.
@@ -10,7 +10,7 @@ Miré, y había algo que se asemejaba a la apariencia de un hombre. Desde su cin
 Extendió lo que parecía una mano y me tomó por el cabello de mi cabeza. El Espíritu me levantó entre la tierra y el cielo y me llevó en visiones de Dios a Jerusalén, a la entrada de la puerta norte del atrio interior, donde estaba situada la imagen que provoca celos.
 
 ## Ezequiel 8:4
-Y allí estaba la gloria del Dios de Israel, como la visión que había visto en el valle.
+Y allí estaba la gloria del Dios de Israel, como la visión que había visto en la llanura.
 
 ## Ezequiel 8:5
 Entonces me dijo: “Hijo de hombre, mira hacia el norte.” Así que miré hacia el norte, y allí, al norte de la puerta del altar, estaba esta imagen de celos en la entrada.

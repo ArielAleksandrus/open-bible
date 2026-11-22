@@ -10,7 +10,7 @@ Un mensaje del Señor vino a mí:
 
 ## Ezequiel 27:3
 
-Di a Tiro, que se sienta a la entrada del mar, mercader de pueblos a muchas costas, ‘Esto es lo que dice el Señor Soberano:
+Di a Tiro, que se sienta a la entrada del mar, mercader de pueblos a muchas costas, ‘Esto es lo que dice el Señor Dios:
 
 >  “‘Has declarado, Tiro,
 >  “Soy perfecta en belleza.”
@@ -105,11 +105,11 @@ Vedán y Javán desde Uzal intercambiaban hierro forjado, casia y cálamo por tu
 
 ## Ezequiel 27:22
 
-“‘Los mercaderes de Seba y Raama comerciaban contigo; por tus mercancías intercambiaban lo mejor de todas las especias, piedras preciosas y oro.
+“‘Los mercaderes de Sabá y Raama comerciaban contigo; por tus mercancías intercambiaban lo mejor de todas las especias, piedras preciosas y oro.
 
 ## Ezequiel 27:23
 
-“‘Harán, Cané y Edén, y los mercaderes de Seba, Asur y Quilmad comerciaban contigo.
+“‘Harán, Cané y Edén, y los mercaderes de Sabá, Asur y Quilmad comerciaban contigo.
 
 ## Ezequiel 27:24
 
@@ -156,7 +156,7 @@ En tu mercado comerciaban contigo en prendas selectas, telas azules, trabajos bo
 ## Ezequiel 27:32
 
 > Mientras lloran y se lamentan por ti,
->  tomarán una lamentación por ti y cantarán:
+>  entonarán una lamentación por ti y cantarán:
 >  “¿Quién es como Tiro,
 >  ahora silenciosa en medio del mar?”
 

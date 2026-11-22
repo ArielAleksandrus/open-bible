@@ -6,116 +6,111 @@ La oración de súplica del profeta Habacuc, sobre Sigionot.
 
 ## Habacuc 3:2
 
-> Señor, he oído de Tu fama, y temo, Señor, Tu obra.
->  Avívala en medio de los tiempos,
->  en medio de los años hazla conocer;
->  en la ira acuérdate de la misericordia.
+> Señor, he oído hablar de Tu fama, y Tus obras me llenan de asombro,
+>  Señor. Renuévalas en nuestro tiempo,
+>  dalas a conocer en nuestros días;
+>  aun en Tu enojo, acuérdate de ser misericordioso.
 
 ## Habacuc 3:3
 
-> Dios vino de Temán,
->  y el Santo desde el monte de Parán.
->  Selah Su gloria cubrió los cielos,
->  y la tierra se llenó de Su alabanza.
+> Dios llegó desde Temán,
+>  y el Santo desde el monte Parán.
+>  Selah Su gloria cubría los cielos,
+>  y Su alabanza llenaba la tierra.
 
 ## Habacuc 3:4
 
-> Su resplandor era como la luz;
->  rayos brillaban de Su mano,
->  donde estaba escondido Su poder.
+> Su brillo era como la luz del sol;
+>  de Su mano salían destellos,
+>  y allí se escondía Su poder.
 
 ## Habacuc 3:5
 
 > Delante de Él iba la peste,
->  y el fuego salía a Sus pies.
+>  y la pestilencia seguía Sus pasos.
 
 ## Habacuc 3:6
 
-> Se detuvo, y sacudió la tierra;
->  miró, e hizo temblar a las naciones.
->  Los montes eternos fueron desmenuzados,
->  los collados antiguos se humillaron.
+> Se detuvo, y la tierra se estremeció;
+>  miró, y las naciones temblaron.
+>  Los montes de siempre se hicieron pedazos,
+>  las colinas antiguas se derrumbaron.
 >  Sus caminos son eternos.
 
 ## Habacuc 3:7
 
-> Vi las tiendas de Cusán en aflicción,
->  y temblaban las tiendas de Madián.
+> Vi angustiadas las tiendas de Cusán,
+>  y temblaban las cortinas de las tiendas de Madián.
 
 ## Habacuc 3:8
 
-> ¿Se encendió, oh Señor, Tu ira contra los ríos?
->  ¿Fue Tu enojo contra los ríos?
->  ¿Tu furor contra el mar cuando montaste en Tus caballos y en Tus carros de salvación?
+> ¿Estaba el Señor enojado con los ríos?
+>  ¿Era contra las corrientes Tu ira?
+>  ¿Te enfureciste contra el mar cuando cabalgabas en Tus caballos, en Tus carros de salvación?
 
 ## Habacuc 3:9
 
-> Descubriste Tu arco,
->  llamaste a muchas saetas.
->  Selah Hendiste la tierra con ríos.
+> Desenfundaste Tu arco y pediste muchas flechas.
+>  Selah Abriste la tierra con ríos.
 
 ## Habacuc 3:10
 
-> Los montes Te vieron y temblaron;
->  pasaron torrentes de agua.
->  El abismo dio su voz,
->  y levantó en alto sus manos.
+> Los montes Te vieron y se retorcieron;
+>  pasaron con fuerza los torrentes.
+>  El océano profundo alzó su voz y levantó en alto sus olas.
 
 ## Habacuc 3:11
 
-> El sol y la luna se pararon en su lugar a la luz de Tus saetas voladoras,
->  al resplandor de Tu lanza fulgente.
+> El sol y la luna se quedaron quietos en su sitio ante la luz de Tus flechas que volaban,
+>  ante el brillo de Tu lanza relampagueante.
 
 ## Habacuc 3:12
 
-> Con ira marchaste por la tierra;
->  con furor trillaste las naciones.
+> Lleno de ira recorriste la tierra;
+>  enojado, trillaste a las naciones.
 
 ## Habacuc 3:13
 
-> Saliste para la salvación de Tu pueblo,
->  para salvar a Tu ungido.
->  Heriste la cabeza de la casa del impío,
->  descubriendo el cimiento hasta el cuello. Selah
+> Saliste a salvar a Tu pueblo,
+>  a salvar a Tu ungido.
+>  Aplastaste la cabeza de la casa del malvado y lo dejaste al descubierto de los pies al cuello.
+>  Selah
 
 ## Habacuc 3:14
 
-> Con Su propia lanza atravesaste la cabeza de sus guerreros.
->  Salieron como tempestad para dispersarnos,
->  regocijándose como para devorar al pobre en secreto.
+> Con su propia lanza atravesaste la cabeza de sus guerreros,
+>  que se lanzaban como un vendaval para dispersarnos,
+>  felices como quien va a devorar en secreto al oprimido.
 
 ## Habacuc 3:15
 
-> Caminaste en el mar con Tus caballos,
->  sobre la espuma de las grandes aguas.
+> Cabalgaste sobre el mar con Tus caballos,
+>  agitando las aguas poderosas.
 
 ## Habacuc 3:16
 
-> Oí, y se conmovieron mis entrañas;
->  a Tu voz temblaron mis labios.
->  Pudrición entró en mis huesos,
->  y dentro de mí me estremecí.
->  A pesar de todo,
->  esperaré con tranquilidad el día de la angustia que vendrá sobre el pueblo que nos invade.
+> Lo oí, y el corazón me latía con fuerza;
+>  al oír aquel ruido me temblaron los labios.
+>  La podredumbre se me metió en los huesos,
+>  y me temblaban las piernas.
+>  Aun así,
+>  esperaré tranquilo el día de angustia que vendrá sobre el pueblo que nos invade.
 
 ## Habacuc 3:17
 
-> Aunque la higuera no florezca,
->  ni en las vides haya frutos;
->  aunque falte el producto del olivo,
->  y los campos no den alimento;
->  aunque falten las ovejas del redil,
->  y no haya vacas en los establos,
+> Aunque la higuera no florezca y no haya uvas en las vides,
+>  aunque falle la cosecha de aceitunas y los campos no den alimento,
+>  aunque se acaben las ovejas del redil y no haya ganado en los establos,
 
 ## Habacuc 3:18
 
-> con todo, yo me alegraré en el Señor,
->  y me gozaré en el Dios de mi salvación.
+> aun así, yo encontraré mi alegría en el Señor;
+>  me deleitaré en Dios, mi Salvador.
 
 ## Habacuc 3:19
 
-> El Señor Soberano es mi fortaleza;
->  Él hace mis pies como los de ciervas,
->  y me hace andar en las alturas.
+> El Señor Dios es mi fuerza;
+>  Él me da pies como los del ciervo y me hace caminar por las alturas.
+>  Para el director del coro,
 
- Para el director del coro, sobre mis instrumentos de cuerda.
+ con mis instrumentos de cuerda.

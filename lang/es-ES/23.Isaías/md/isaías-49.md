@@ -1,10 +1,10 @@
 # Isaías Capítulo 49
 
 ## Isaías 49:1
-Escuchadme, islas; prestad atención, pueblos lejanos: El Señor me llamó desde el vientre; desde el cuerpo de mi madre pronunció mi nombre.
+Escuchadme, islas; atended, pueblos lejanos: El Señor me llamó antes de que yo naciera; desde el vientre de mi madre me puso nombre.
 
 ## Isaías 49:2
-Hizo mi boca como espada afilada, en la sombra de su mano me escondió; me hizo como una flecha pulida y me guardó en su aljaba.
+Hizo de mis palabras una espada afilada y me escondió a la sombra de su mano; me convirtió en una flecha bien pulida y me guardó en su aljaba.
 
 ## Isaías 49:3
 Me dijo: “Tú eres mi siervo, Israel, en quien mostraré mi gloria.”
@@ -16,7 +16,7 @@ Pero yo dije: “He trabajado en vano; he gastado mis fuerzas para nada y en fut
 Y ahora dice el Señor —el que me formó desde el vientre para ser su siervo, para hacer que Jacob vuelva a él y reunir a Israel para sí mismo, porque soy honrado a los ojos del Señor y mi Dios es mi fortaleza—
 
 ## Isaías 49:6
-él dice: “Es cosa pequeña que seas mi siervo para restaurar las tribus de Jacob y traer de vuelta a los preservados de Israel. También te haré luz para las naciones, para que mi salvación alcance hasta los confines de la tierra.”
+él dice: “Es poca cosa que seas mi siervo solo para levantar de nuevo a las tribus de Jacob y traer de vuelta a los de Israel que han quedado con vida. Además, te pondré como luz para las naciones, para que mi salvación llegue hasta los extremos de la tierra.”
 
 ## Isaías 49:7
 Así dice el Señor —el Redentor y Santo de Israel— al despreciado y aborrecido por la nación, al siervo de los gobernantes: “Los reyes verán y se levantarán, los príncipes se postrarán, por causa del Señor, que es fiel, el Santo de Israel, que te ha escogido.”
@@ -28,7 +28,7 @@ Así dice el Señor: “En el tiempo de mi favor te responderé, y en el día de
 para decir a los cautivos, ‘Salid,’ y a los que están en tinieblas, ‘Mostraos.’ Se alimentarán junto a los caminos y encontrarán pastos en todas las alturas desiertas.
 
 ## Isaías 49:10
-No tendrán hambre ni sed, ni el calor abrasador ni el sol los herirá. El que tiene compasión de ellos los guiará y los conducirá junto a manantiales de agua.
+No pasarán hambre ni sed, ni los castigará el calor ni el sol. El que les tiene compasión los guiará y los llevará junto a manantiales de agua.
 
 ## Isaías 49:11
 Transformaré todos mis montes en caminos, y mis carreteras serán elevadas.
@@ -37,16 +37,16 @@ Transformaré todos mis montes en caminos, y mis carreteras serán elevadas.
 Mira, vendrán de lejos —unos del norte, otros del oeste, y otros de la tierra de Asuán—.”
 
 ## Isaías 49:13
-Gritad de alegría, cielos; regocíjate, tierra; prorrumpid en cánticos, montañas! Porque el Señor consuela a su pueblo y tendrá compasión de sus afligidos.
+¡Gritad de alegría, cielos; alégrate, tierra; montañas, poneos a cantar! Porque el Señor consuela a su pueblo y se compadece de los que sufren.
 
 ## Isaías 49:14
 Pero Sion lamentó, “El Señor me ha dejado; el Señor ya no se acuerda de mí.”
 
 ## Isaías 49:15
-“¿Puede una madre olvidar a su niño de pecho y no tener compasión del hijo que ha dado a luz? Aunque ella se olvide, yo no te olvidaré!
+“¿Acaso una madre puede olvidarse del niño que amamanta y no sentir cariño por el hijo que dio a luz? Pues aunque ella lo olvidara, ¡yo no me olvidaré de ti!
 
 ## Isaías 49:16
-Mira, te he grabado en las palmas de mis manos; tus muros están siempre delante de mí.
+Mira, te llevo tatuada en las palmas de mis manos; tus murallas no se apartan de mi vista.
 
 ## Isaías 49:17
 Tus hijos se apresuran a regresar, y los que te devastaron se apartarán de ti.
@@ -61,13 +61,13 @@ Aunque fuiste arruinada y desolada y tu tierra quedó devastada, ahora estarás 
 Los hijos nacidos durante tu duelo dirán aún en tu oído, ‘Este lugar es demasiado estrecho para nosotros; danos más espacio para vivir.’
 
 ## Isaías 49:21
-Entonces dirás en tu corazón, ‘¿Quién me ha dado estos? Estaba desolada y estéril; estaba desterrada y rechazada. ¿Quién los ha criado? Estaba sola, pero estos —¿de dónde han venido—?’”
+Entonces dirás en tu corazón, ‘¿Quién me ha dado estos? Estaba desolada y estéril; estaba desterrada y rechazada. ¿Quién los ha criado? Estaba sola, pero estos, ¿de dónde han venido?’”
 
 ## Isaías 49:22
-Así dice el Señor Soberano: “Mira, haré una señal a las naciones, levantaré mi estandarte a los pueblos; traerán a tus hijos en sus brazos y llevarán a tus hijas sobre sus hombros.
+Así dice el Señor Dios: “Mira, haré una señal a las naciones, levantaré mi estandarte a los pueblos; traerán a tus hijos en sus brazos y llevarán a tus hijas sobre sus hombros.
 
 ## Isaías 49:23
-Los reyes serán tus padres adoptivos, y sus reinas tus nodrizas. Se postrarán ante ti con el rostro en tierra; lamerán el polvo de tus pies. Entonces sabrás que yo soy el Señor; los que esperan en mí no serán avergonzados.”
+Los reyes cuidarán de ti como padres, y sus reinas te criarán como nodrizas. Se inclinarán ante ti hasta tocar el suelo con la cara y lamerán el polvo de tus pies. Entonces sabrás que yo soy el Señor y que los que esperan en mí no quedarán defraudados.”
 
 ## Isaías 49:24
 ¿Se pueden quitar los despojos a los guerreros, o liberar a los cautivos del fiero?

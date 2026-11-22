@@ -10,7 +10,7 @@ El Señor habló entonces a Moisés y a Aarón, diciendo:
 
 ## Levítico 13:3
 
-El sacerdote examinará el área infectada en la piel, y si el cabello en la infección se ha vuelto blanco y la infección parece ser más profunda que la piel, es lepra. Cuando el sacerdote los examine, los declarará impuros.
+El sacerdote examinará el área infectada en la piel, y si el cabello en la infección se ha vuelto blanco y la infección parece ser más profunda que la piel, es lepra. Cuando el sacerdote lo examine, lo declarará impuro.
 
 ## Levítico 13:4
 
@@ -18,19 +18,19 @@ Si la mancha brillante es blanca en la piel y no parece ser más profunda que la
 
 ## Levítico 13:5
 
-En el séptimo día, el sacerdote los examinará, y si la infección no ha cambiado y no se ha extendido en la piel, el sacerdote los aislará por otros siete días.
+En el séptimo día, el sacerdote lo examinará, y si la infección no ha cambiado y no se ha extendido en la piel, el sacerdote lo aislará por otros siete días.
 
 ## Levítico 13:6
 
-El sacerdote los examinará de nuevo en el séptimo día, y si la infección ha disminuido y no se ha extendido, el sacerdote los declarará limpios; es solo un sarpullido. Deben lavar sus ropas y quedarán limpios.
+El sacerdote lo examinará de nuevo en el séptimo día, y si la infección ha disminuido y no se ha extendido, el sacerdote lo declarará limpio; es solo un sarpullido. Debe lavar sus ropas y quedará limpio.
 
 ## Levítico 13:7
 
-Pero si el sarpullido se extiende en la piel después de haberse mostrado al sacerdote para la limpieza, deben presentarse de nuevo ante el sacerdote.
+Pero si el sarpullido se extiende en la piel después de haberse mostrado al sacerdote para la limpieza, debe presentarse de nuevo ante el sacerdote.
 
 ## Levítico 13:8
 
-El sacerdote los examinará, y si el sarpullido se ha extendido, los declarará impuros; es lepra.
+El sacerdote lo examinará, y si el sarpullido se ha extendido, lo declarará impuro; es lepra.
 
 ## Levítico 13:9
 
@@ -38,11 +38,11 @@ El sacerdote los examinará, y si el sarpullido se ha extendido, los declarará 
 
 ## Levítico 13:10
 
-El sacerdote los examinará, y si hay una hinchazón blanca en la piel que ha vuelto el cabello blanco, y hay carne viva en la hinchazón,
+El sacerdote lo examinará, y si hay una hinchazón blanca en la piel que ha vuelto el cabello blanco, y hay carne viva en la hinchazón,
 
 ## Levítico 13:11
 
-es una lepra crónica en la piel, y el sacerdote los declarará impuros. No necesitan ser aislados, porque ya están impuros.
+es una lepra crónica en la piel, y el sacerdote lo declarará impuro. No necesita ser aislado, porque ya está impuro.
 
 ## Levítico 13:12
 
@@ -50,23 +50,23 @@ Si la lepra se extiende sobre la piel y cubre todo el cuerpo de la cabeza a los 
 
 ## Levítico 13:13
 
-el sacerdote los examinará, y si la lepra ha cubierto todo su cuerpo, los declarará limpios. Ya que todo se ha vuelto blanco, están limpios.
+el sacerdote lo examinará, y si la lepra ha cubierto todo su cuerpo, lo declarará limpio. Ya que todo se ha vuelto blanco, está limpio.
 
 ## Levítico 13:14
 
-Pero cuando aparezca carne viva en ellos, estarán impuros.
+Pero cuando aparezca carne viva en él, estará impuro.
 
 ## Levítico 13:15
 
-Cuando el sacerdote vea la carne viva, los declarará impuros; la carne viva es impura, es lepra.
+Cuando el sacerdote vea la carne viva, lo declarará impuro; la carne viva es impura, es lepra.
 
 ## Levítico 13:16
 
-Si la carne viva cambia y se vuelve blanca, deben presentarse al sacerdote.
+Si la carne viva cambia y se vuelve blanca, debe presentarse al sacerdote.
 
 ## Levítico 13:17
 
-El sacerdote los examinará, y si el área infectada se ha vuelto blanca, el sacerdote los declarará limpios; están limpios.
+El sacerdote lo examinará, y si el área infectada se ha vuelto blanca, el sacerdote lo declarará limpio; está limpio.
 
 ## Levítico 13:18
 
@@ -74,23 +74,23 @@ El sacerdote los examinará, y si el área infectada se ha vuelto blanca, el sac
 
 ## Levítico 13:19
 
-y en el lugar del divieso haya una hinchazón blanca o una mancha brillante rojiza-blanca, deben presentarse al sacerdote.
+y en el lugar del divieso haya una hinchazón blanca o una mancha brillante rojiza-blanca, debe presentarse al sacerdote.
 
 ## Levítico 13:20
 
-El sacerdote lo examinará, y si parece ser más profundo que la piel y el cabello se ha vuelto blanco, el sacerdote los declarará impuros; es lepra que ha brotado en el divieso.
+El sacerdote lo examinará, y si parece ser más profundo que la piel y el cabello se ha vuelto blanco, el sacerdote lo declarará impuro; es lepra que ha brotado en el divieso.
 
 ## Levítico 13:21
 
-Pero si el sacerdote lo examina y no hay cabello blanco y no es más profundo que la piel y está desvaído, el sacerdote los aislará durante siete días.
+Pero si el sacerdote lo examina y no hay cabello blanco y no es más profundo que la piel y está desvaído, el sacerdote lo aislará durante siete días.
 
 ## Levítico 13:22
 
-Si se extiende en la piel, el sacerdote los declarará impuros; es una infección.
+Si se extiende en la piel, el sacerdote lo declarará impuro; es una infección.
 
 ## Levítico 13:23
 
-Pero si la mancha brillante permanece sin cambios y no se ha extendido, es solo la cicatriz del divieso, y el sacerdote los declarará limpios.
+Pero si la mancha brillante permanece sin cambios y no se ha extendido, es solo la cicatriz del divieso, y el sacerdote lo declarará limpio.
 
 ## Levítico 13:24
 
@@ -98,19 +98,19 @@ Pero si la mancha brillante permanece sin cambios y no se ha extendido, es solo 
 
 ## Levítico 13:25
 
-el sacerdote examinará la mancha, y si el cabello en la mancha brillante se ha vuelto blanco y parece más profunda que la piel, es lepra que ha brotado en la quemadura. El sacerdote los declarará impuros; es una infección de lepra.
+el sacerdote examinará la mancha, y si el cabello en la mancha brillante se ha vuelto blanco y parece más profunda que la piel, es lepra que ha brotado en la quemadura. El sacerdote lo declarará impuro; es una infección de lepra.
 
 ## Levítico 13:26
 
-Pero si el sacerdote lo examina y no hay cabello blanco y no es más profundo que la piel y está desvaído, el sacerdote los aislará durante siete días.
+Pero si el sacerdote lo examina y no hay cabello blanco y no es más profundo que la piel y está desvaído, el sacerdote lo aislará durante siete días.
 
 ## Levítico 13:27
 
-En el séptimo día, el sacerdote los examinará, y si se extiende en la piel, el sacerdote los declarará impuros; es una infección de lepra.
+En el séptimo día, el sacerdote lo examinará, y si se extiende en la piel, el sacerdote lo declarará impuro; es una infección de lepra.
 
 ## Levítico 13:28
 
-Pero si la mancha brillante permanece sin cambios y no se ha extendido en la piel y está desvaída, es la hinchazón de la quemadura, y el sacerdote los declarará limpios; es solo la cicatriz de la quemadura.
+Pero si la mancha brillante permanece sin cambios y no se ha extendido en la piel y está desvaída, es la hinchazón de la quemadura, y el sacerdote lo declarará limpio; es solo la cicatriz de la quemadura.
 
 ## Levítico 13:29
 
@@ -118,11 +118,11 @@ Pero si la mancha brillante permanece sin cambios y no se ha extendido en la pie
 
 ## Levítico 13:30
 
-el sacerdote examinará la infección, y si parece más profunda que la piel y hay cabello delgado amarillento, el sacerdote los declarará impuros; es una tiña, es lepra de la cabeza o barba.
+el sacerdote examinará la infección, y si parece más profunda que la piel y hay cabello delgado amarillento, el sacerdote lo declarará impuro; es una tiña, es lepra de la cabeza o barba.
 
 ## Levítico 13:31
 
-Pero si el sacerdote examina la infección escamosa y no parece más profunda que la piel y no hay cabello negro, el sacerdote los aislará durante siete días.
+Pero si el sacerdote examina la infección escamosa y no parece más profunda que la piel y no hay cabello negro, el sacerdote lo aislará durante siete días.
 
 ## Levítico 13:32
 
@@ -130,23 +130,23 @@ En el séptimo día, el sacerdote examinará la infección, y si la tiña no se 
 
 ## Levítico 13:33
 
-deben afeitarse, excepto el área afectada, y el sacerdote los aislará por otros siete días.
+debe afeitarse, excepto el área afectada, y el sacerdote lo aislará por otros siete días.
 
 ## Levítico 13:34
 
-En el séptimo día, el sacerdote examinará la tiña, y si no se ha extendido y no parece más profunda que la piel, el sacerdote los declarará limpios. Deben lavar sus ropas y quedarán limpios.
+En el séptimo día, el sacerdote examinará la tiña, y si no se ha extendido y no parece más profunda que la piel, el sacerdote lo declarará limpio. Debe lavar sus ropas y quedará limpio.
 
 ## Levítico 13:35
 
-Pero si la tiña se extiende en la piel después de ser declarados limpios,
+Pero si la tiña se extiende en la piel después de ser declarado limpio,
 
 ## Levítico 13:36
 
-el sacerdote los examinará, y si la tiña se ha extendido, no necesita buscar cabello amarillento; están impuros.
+el sacerdote lo examinará, y si la tiña se ha extendido, no necesita buscar cabello amarillento; está impuro.
 
 ## Levítico 13:37
 
-Si la tiña permanece sin cambios y ha crecido cabello negro en ella, la tiña se ha curado, y están limpios; el sacerdote los declarará limpios.
+Si la tiña permanece sin cambios y ha crecido cabello negro en ella, la tiña se ha curado, y está limpio; el sacerdote lo declarará limpio.
 
 ## Levítico 13:38
 
@@ -154,7 +154,7 @@ Si la tiña permanece sin cambios y ha crecido cabello negro en ella, la tiña s
 
 ## Levítico 13:39
 
-el sacerdote los examinará, y si las manchas brillantes son blancas desvaídas, es eczema que ha brotado en la piel; están limpios.
+el sacerdote lo examinará, y si las manchas brillantes son blancas desvaídas, es eczema que ha brotado en la piel; está limpio.
 
 ## Levítico 13:40
 
@@ -182,7 +182,7 @@ es un hombre leproso y está impuro. El sacerdote debe declararlo impuro debido 
 
 ## Levítico 13:46
 
-Deben permanecer impuros mientras tengan la infección. Deben vivir solos fuera del campamento.
+Debe permanecer impuro mientras tenga la infección. Debe vivir solo fuera del campamento.
 
 ## Levítico 13:47
 
@@ -218,11 +218,11 @@ el sacerdote ordenará que el artículo sea lavado y lo aislará por otros siete
 
 ## Levítico 13:55
 
-Después de que el artículo haya sido lavado, el sacerdote lo examinará de nuevo, y si la marca no ha cambiado su apariencia, incluso si no se ha extendido, está impura. Quémela, ya sea que la marca esté en la parte trasera o delantera.
+Después de que el artículo haya sido lavado, el sacerdote lo examinará de nuevo, y si la marca no ha cambiado su apariencia, incluso si no se ha extendido, está impuro. Quémalo, ya sea que la marca esté en la parte trasera o delantera.
 
 ## Levítico 13:56
 
-Pero si el sacerdote la examina y la marca ha desvaído después del lavado, la arrancará de la prenda, cuero, urdimbre o trama.
+Pero si el sacerdote la examina y la marca se ha desvanecido después del lavado, la arrancará de la prenda, cuero, urdimbre o trama.
 
 ## Levítico 13:57
 

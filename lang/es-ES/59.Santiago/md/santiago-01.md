@@ -6,23 +6,23 @@ Santiago, siervo de Dios y del Señor Jesucristo, a las doce tribus dispersas en
 
 ## Santiago 1:2
 
-Considérenlo un gran gozo, hermanos y hermanas míos, cuando se enfrenten a diversas pruebas,
+Consideradlo un gran gozo, hermanos y hermanas míos, cuando os enfrentéis a diversas pruebas,
 
 ## Santiago 1:3
 
-porque saben que la prueba de su fe produce perseverancia.
+porque sabéis que la prueba de vuestra fe produce perseverancia.
 
 ## Santiago 1:4
 
-Dejen que la perseverancia complete su obra, para que sean maduros y completos, sin que les falte nada.
+Dejad que la perseverancia complete su obra, para que seáis maduros y completos, sin que os falte nada.
 
 ## Santiago 1:5
 
-Si a alguno de ustedes le falta sabiduría, pídala a Dios, quien da generosamente a todos sin reproche, y le será dada.
+Si a alguno de vosotros le falta sabiduría, que se la pida a Dios, y Dios se la dará, porque da a todos con generosidad y sin echarles nada en cara.
 
 ## Santiago 1:6
 
-Pero debe pedir con fe, sin dudar, porque el que duda es como una ola del mar, impulsada y agitada por el viento.
+Pero tiene que pedir con fe, sin dudar, porque el que duda es como una ola del mar, que el viento empuja y zarandea.
 
 ## Santiago 1:7
 
@@ -30,7 +30,7 @@ Tales personas no deben esperar recibir nada del Señor.
 
 ## Santiago 1:8
 
-Son de doble ánimo e inestables en todos sus caminos.
+Esa gente no se decide por nada y es inestable en todo lo que hace.
 
 ## Santiago 1:9
 
@@ -46,23 +46,23 @@ Porque el sol sale con calor abrasador y seca la hierba; su flor cae y su bellez
 
 ## Santiago 1:12
 
-Bienaventurado el que persevera bajo prueba; porque habiendo superado la prueba, recibirá la corona de la vida que el Señor ha prometido a los que le aman.
+Dichoso el que sigue firme en medio de la prueba, porque, cuando la haya superado, recibirá la corona de la vida que el Señor ha prometido a los que lo aman.
 
 ## Santiago 1:13
 
-Cuando sea tentado, nadie debe decir: "Estoy siendo tentado por Dios". Porque Dios no puede ser tentado por el mal, ni tienta a nadie;
+Cuando alguien sea tentado, que no diga: "Es Dios quien me tienta". Porque a Dios el mal no lo puede tentar, y Él no tienta a nadie;
 
 ## Santiago 1:14
 
-sino que cada uno es tentado cuando es llevado y seducido por su propio mal deseo.
+sino que cada uno es tentado cuando sus propios malos deseos lo arrastran y lo seducen.
 
 ## Santiago 1:15
 
-Entonces, después de que el deseo ha concebido, da a luz el pecado; y el pecado, cuando ha crecido completamente, produce la muerte.
+Luego, cuando el deseo ha quedado embarazado, da a luz el pecado; y el pecado, cuando ya ha crecido del todo, trae como fruto la muerte.
 
 ## Santiago 1:16
 
-No se dejen engañar, mis queridos hermanos y hermanas.
+No os dejéis engañar, mis queridos hermanos y hermanas.
 
 ## Santiago 1:17
 
@@ -74,7 +74,7 @@ Por su propia voluntad, nos hizo nacer mediante la palabra de verdad, para que s
 
 ## Santiago 1:19
 
-Mis queridos hermanos y hermanas, tomen nota de esto: Todos deben ser rápidos para escuchar, lentos para hablar y lentos para enojarse;
+Mis queridos hermanos y hermanas, tomad nota de esto: Todos deben ser rápidos para escuchar, lentos para hablar y lentos para enojarse;
 
 ## Santiago 1:20
 
@@ -82,11 +82,11 @@ porque la ira humana no produce la justicia que Dios desea.
 
 ## Santiago 1:21
 
-Por lo tanto, desháganse de toda inmundicia moral y del mal que es tan prevalente, y acepten humildemente la palabra sembrada en ustedes, la cual puede salvar sus almas.
+Por lo tanto, desechad toda inmundicia moral y el mal que tanto abunda, y aceptad humildemente la palabra sembrada en vosotros, la cual puede salvar vuestras almas.
 
 ## Santiago 1:22
 
-No se limiten a escuchar la palabra, engañándose a ustedes mismos. Sean hacedores de la palabra.
+No os conforméis con escuchar la palabra, porque os engañaréis a vosotros mismos. Ponedla en práctica.
 
 ## Santiago 1:23
 

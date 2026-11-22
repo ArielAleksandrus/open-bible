@@ -26,8 +26,7 @@ Así como también David habla de la bienaventuranza del hombre a quien Dios atr
 
 ## Romanos 4:7
 
-> “Bienaventurados aquellos cuyas iniquidades son perdonadas,
->  cuyos pecados son cubiertos.
+> “Dichosos aquellos a quienes se les perdonan sus maldades y se les cubren sus pecados.
 
 ## Romanos 4:8
 
@@ -68,7 +67,7 @@ Por lo tanto, la promesa se basa en la fe, para que repose en la gracia y sea as
 
 ## Romanos 4:17
 
-Como está escrito: “Te he hecho padre de muchas naciones.” Él es nuestro padre a la vista de Dios, en quien creyó, el Dios que da vida a los muertos y llama a las cosas que no existen como si existieran.
+Como está escrito: “Te he hecho padre de muchas naciones.” Él es nuestro padre a la vista de Dios, en quien creyó, el Dios que da vida a los muertos y llama a la existencia las cosas que no existen.
 
 ## Romanos 4:18
 

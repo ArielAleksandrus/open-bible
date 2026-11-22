@@ -25,7 +25,7 @@ Si hay una persona pobre entre vosotros, uno de vuestros compatriotas israelitas
 En cambio, abre tu mano libremente hacia él y préstale lo que necesite.
 
 ## Deuteronomio 15:9
-Ten cuidado de no albergar este pensamiento perverso: 'El séptimo año, el año de liberación, está cerca,' de modo que muestres mala voluntad hacia tu hermano necesitado y no le des nada. Entonces él podrá apelar al Señor contra ti, y serás culpable de pecado.
+Ten cuidado de no albergar este pensamiento perverso: ‘El séptimo año, el año de liberación, está cerca,’ de modo que muestres mala voluntad hacia tu hermano necesitado y no le des nada. Entonces él podrá apelar al Señor contra ti, y serás culpable de pecado.
 
 ## Deuteronomio 15:10
 Le darás generosamente, y tu corazón no será mezquino cuando le des, porque por esto el Señor tu Dios te bendecirá en todo tu trabajo y en todo lo que emprendas.
@@ -46,7 +46,7 @@ Proporciónale generosamente de tu rebaño, de tu era y de tu lagar. Dale como e
 Recuerda que fuiste esclavo en Egipto y el Señor tu Dios te redimió; por eso te doy este mandamiento hoy.
 
 ## Deuteronomio 15:16
-Pero si tu siervo te dice, 'No te dejaré,' porque te ama a ti y a tu casa y está bien contigo,
+Pero si tu siervo te dice, ‘No te dejaré,’ porque te ama a ti y a tu casa y está bien contigo,
 
 ## Deuteronomio 15:17
 entonces toma un punzón y perfora su oreja contra la puerta, y será tu siervo de por vida. Haz lo mismo con tu sierva.

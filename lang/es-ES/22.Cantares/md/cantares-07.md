@@ -2,50 +2,49 @@
 
 ## Cantar de los Cantares 7:1
 
-¡Qué hermosos son tus pies en sandalias,  
- Oh hija de príncipe!  
- Las curvas de tus caderas son como joyas,  
- Obra de las manos de un artista.
+¡Qué bonitos son tus pies con esas sandalias,  
+ hija de príncipe!  
+ Las curvas de tus caderas son como joyas hechas por las manos de un artista.
 
 ## Cantar de los Cantares 7:2
 
-Tu ombligo es una copa redonda Que nunca carece de vino mezclado;  
- Tu vientre es como un montón de trigo Cercado de lirios.
+Tu ombligo es una copa redonda en la que nunca falta el vino mezclado;  
+ tu vientre es como un montón de trigo rodeado de lirios.
 
 ## Cantar de los Cantares 7:3
 
-Tus dos pechos son como gacelas,  
- Mellizas de una gacela.
+Tus pechos son como dos cervatillos,  
+ como dos gacelas mellizas.
 
 ## Cantar de los Cantares 7:4
 
-Tu cuello es elegante como una torre de marfil,  
- Tus ojos son como las serenas piscinas en Hesbón Junto a la puerta de Bat-rabim;  
- Tu nariz es tan elegante como la torre del Líbano,  
- Que mira hacia Damasco.
+Tu cuello es esbelto como una torre de marfil;  
+ tus ojos son como los estanques tranquilos de Hesbón, junto a la puerta de Bat-rabim;  
+ tu nariz es elegante como la torre del Líbano,  
+ que da hacia Damasco.
 
 ## Cantar de los Cantares 7:5
 
-Tu cabeza es majestuosa como el Carmelo,  
- Y el cabello suelto de tu cabeza se asemeja a hilos púrpuras;  
- El rey está encantado con tus trenzas.
+Tu cabeza se alza majestuosa como el Carmelo,  
+ y tu cabello suelto brilla como hilos de púrpura;  
+ el rey ha quedado atrapado en tus trenzas.
 
 ## Cantar de los Cantares 7:6
 
-¡Qué hermosa y qué agradable eres,  
- Amada mía, con todos tus encantos!
+¡Qué hermosa eres, amor mío,  
+ qué encantadora con todos tus encantos!
 
 ## Cantar de los Cantares 7:7
 
-Tu estatura es como una palmera,  
- Y tus pechos se asemejan a sus racimos.
+Eres alta y esbelta como una palmera,  
+ y tus pechos son como sus racimos.
 
 ## Cantar de los Cantares 7:8
 
-Dije: “Subiré a la palmera,  
- Me asiré de sus ramas.”  
- Oh, que tus pechos sean como racimos de la vid,  
- Y la fragancia de tu aliento como manzanas,
+Me dije:  
+ “Voy a trepar a la palmera y agarraré sus racimos.  
+” ¡Que tus pechos sean como racimos de uvas,  
+ y tu aliento huela a manzanas,
 
 ## Cantar de los Cantares 7:9
 
@@ -59,23 +58,23 @@ Y tu boca como el mejor vino!”
 ## Cantar de los Cantares 7:10
 
 Yo soy de mi amado,  
- Y su deseo es para mí.
+ y él me desea.
 
 ## Cantar de los Cantares 7:11
 
-Ven, amado mío, vayamos al campo,  
- Pasemos la noche en las aldeas.
+Ven, amado mío, salgamos al campo,  
+ pasemos la noche en las aldeas.
 
 ## Cantar de los Cantares 7:12
 
-Levantémonos temprano y vayamos a las viñas;  
- Veamos si la vid ha brotado Y sus flores se han abierto,  
- Y si las granadas han florecido.  
- Allí compartiré mi amor contigo.
+Madrugaremos para ir a las viñas;  
+ veremos si ya brotaron las vides y se abrieron sus flores,  
+ y si ya florecieron los granados.  
+ Allí te daré mi amor.
 
 ## Cantar de los Cantares 7:13
 
-Las mandrágoras han soltado su fragancia;  
- Y sobre nuestras puertas están todos los frutos selectos,  
- Tanto nuevos como viejos,  
- Que he guardado para ti, amado mío.
+Las mandrágoras ya despiden su perfume,  
+ y a nuestras puertas tenemos las mejores frutas,  
+ nuevas y viejas,  
+ que he guardado para ti, amado mío.

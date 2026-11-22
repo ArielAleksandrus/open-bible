@@ -6,7 +6,7 @@ Había un hombre llamado Lázaro que estaba enfermo. Era de Betania, el pueblo d
 
 ## Juan 11:2
 
-(Era esta María la que ungió al Señor con perfume y le secó los pies con su cabello, cuyo hermano Lázaro estaba enfermo.)
+(Esta María, cuyo hermano Lázaro estaba enfermo, era la que ungió al Señor con perfume y le secó los pies con su cabello.)
 
 ## Juan 11:3
 
@@ -156,7 +156,7 @@ Entonces los presentes comentaron, “¡Observad cuánto lo quería!”
 
 ## Juan 11:37
 
-Sin embargo, otros cuestionaron, “¿No podría el que dio vista al ciego haber evitado la muerte de este hombre?”
+Sin embargo, otros decían, “¿No podría el que dio vista al ciego haber evitado la muerte de este hombre?”
 
 ---
 
@@ -240,7 +240,7 @@ Cuando se acercaba el tiempo de la Pascua judía, muchos subieron del campo a Je
 
 ## Juan 11:56
 
-Seguían buscando a Jesús, y mientras estaban de pie en los atrios del templo se preguntaban unos a otros, “¿Qué pensáis? ¿Vendrá al festival?”
+Seguían buscando a Jesús, y mientras estaban de pie en los atrios del templo se preguntaban unos a otros, “¿Qué pensáis? ¿Vendrá a la fiesta?”
 
 ## Juan 11:57
 

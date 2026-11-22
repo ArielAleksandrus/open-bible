@@ -12,55 +12,55 @@ según el previo conocimiento de Dios Padre, mediante la obra santificadora del 
 
 ## 1 Pedro 1:3
 
-Bendito sea el Dios y Padre de nuestro Señor Jesucristo, que en su gran misericordia nos ha hecho nacer de nuevo a una esperanza viva mediante la resurrección de Jesucristo de entre los muertos,
+Alabado sea el Dios y Padre de nuestro Señor Jesucristo, que por su gran misericordia nos ha hecho nacer de nuevo para que tengamos una esperanza viva, gracias a que Jesucristo fue levantado de entre los muertos,
 
 ## 1 Pedro 1:4
 
-para recibir una herencia que es imperecedera, incontaminada e inmarcesible, reservada en el cielo para vosotros,
+y para que recibamos una herencia que no se echa a perder, que no se mancha y que no se marchita, guardada en el cielo para vosotros,
 
 ## 1 Pedro 1:5
 
-que, mediante la fe, sois protegidos por el poder de Dios para una salvación que está lista para ser revelada en el último tiempo.
+a quienes el poder de Dios protege por medio de la fe, hasta que llegue la salvación que está preparada para manifestarse en los últimos tiempos.
 
 ## 1 Pedro 1:6
 
-En esto os alegráis grandemente, aunque ahora por un poco de tiempo, si es necesario, habéis sido afligidos por diversas pruebas,
+Esto os llena de alegría, aunque ahora, por un tiempo, si hace falta, tengáis que pasar por diversas pruebas que os entristecen,
 
 ## 1 Pedro 1:7
 
-para que la prueba de vuestra fe, más preciosa que el oro que perece aunque sea probado por fuego, sea hallada en alabanza, gloria y honor en la revelación de Jesucristo;
+para que se vea que vuestra fe es auténtica; esa fe vale mucho más que el oro, que se acaba aunque se pruebe al fuego, y dará como resultado alabanza, gloria y honra el día en que Jesucristo se manifieste;
 
 ## 1 Pedro 1:8
 
-y aunque no le habéis visto, le amáis, y aunque ahora no le veis, pero creéis en Él, os alegráis grandemente con gozo inefable y lleno de gloria,
+vosotros lo amáis aunque no lo habéis visto, y aunque ahora no lo veis, creéis en Él y estáis llenos de una alegría tan grande y gloriosa que no se puede expresar con palabras,
 
 ## 1 Pedro 1:9
 
-obteniendo como resultado de vuestra fe la salvación de vuestras almas.
+porque estáis alcanzando el fruto de vuestra fe, que es la salvación de vuestras almas.
 
 ## 1 Pedro 1:10
 
-Acerca de esta salvación, los profetas que profetizaron de la gracia que había de venir a vosotros hicieron indagaciones y búsquedas diligentes,
+Los profetas que anunciaron la gracia que iba a llegar a vosotros estudiaron e investigaron con mucho cuidado esta salvación,
 
 ## 1 Pedro 1:11
 
-tratando de saber qué tiempo o qué clase de tiempo indicaba el Espíritu de Cristo que estaba en ellos al predecir los sufrimientos de Cristo y las glorias que seguirían.
+tratando de saber a qué tiempo y a qué circunstancias se refería el Espíritu de Cristo que estaba en ellos, cuando anunciaba de antemano los sufrimientos de Cristo y la gloria que vendría después.
 
 ## 1 Pedro 1:12
 
-A ellos les fue revelado que no se servían a sí mismos, sino a vosotros, en estas cosas que ahora os han sido anunciadas por los que os predicaron el evangelio por el Espíritu Santo enviado del cielo, cosas en las cuales los ángeles anhelan mirar.
+Dios les dio a entender que no estaban trabajando para sí mismos, sino para vosotros, con lo que anunciaban. Y ahora esas cosas os las han dado a conocer los que os predicaron el evangelio con el poder del Espíritu Santo enviado del cielo; son cosas que hasta los ángeles desean contemplar.
 
 ## 1 Pedro 1:13
 
-Por tanto, preparad vuestra mente para la acción, mantened el espíritu sobrio, poned vuestra esperanza completamente en la gracia que os será traída en la revelación de Jesucristo.
+Por eso, preparad vuestra mente para actuar, mantened la cabeza despejada y poned toda vuestra esperanza en la gracia que recibiréis cuando Jesucristo se manifieste.
 
 ## 1 Pedro 1:14
 
-Como hijos obedientes, no os conforméis a los deseos anteriores que eran vuestros en vuestra ignorancia,
+Como hijos obedientes, no os dejéis llevar por los deseos que teníais antes, cuando vivíais en la ignorancia,
 
 ## 1 Pedro 1:15
 
-sino que, como el Santo que os llamó, sed santos vosotros también en toda vuestra conducta;
+sino que, así como es santo el que os llamó, sed también vosotros santos en todo lo que hacéis;
 
 ## 1 Pedro 1:16
 
@@ -68,43 +68,41 @@ porque está escrito: “Sed santos, porque yo soy santo.”
 
 ## 1 Pedro 1:17
 
-Si invocáis como Padre a aquel que juzga imparcialmente según la obra de cada uno, conducíos con reverencia durante el tiempo de vuestra estancia en la tierra;
+Y si llamáis Padre a Aquel que juzga a cada uno según lo que ha hecho, sin favoritismos, vivid con reverencia el tiempo que estéis de paso en esta tierra;
 
 ## 1 Pedro 1:18
 
-sabiendo que fuisteis rescatados de vuestra vana manera de vivir heredada de vuestros antepasados, no con cosas perecederas como plata o oro,
+porque sabéis que fuisteis rescatados de la vida sin sentido que heredasteis de vuestros antepasados, y no con cosas que se acaban, como la plata o el oro,
 
 ## 1 Pedro 1:19
 
-sino con sangre preciosa, como de un cordero sin tacha y sin mancha, la sangre de Cristo.
+sino con una sangre muy valiosa, como la de un cordero sin defecto y sin mancha: la sangre de Cristo.
 
 ## 1 Pedro 1:20
 
-Porque Él fue conocido antes de la fundación del mundo, pero ha aparecido en estos últimos tiempos por causa de vosotros
+Dios ya lo conocía antes de crear el mundo, pero se ha manifestado en estos últimos tiempos por amor a vosotros.
 
 ## 1 Pedro 1:21
 
-Por medio de Él habéis llegado a creer en Dios, que le resucitó de entre los muertos y le dio gloria, para que vuestra fe y esperanza estén en Dios.
+Por medio de Él habéis llegado a creer en Dios, que lo levantó de entre los muertos y lo llenó de gloria, para que pongáis vuestra fe y vuestra esperanza en Dios.
 
 ## 1 Pedro 1:22
 
-Puesto que habéis purificado vuestras almas en obediencia a la verdad para un amor sincero de los hermanos, amaos unos a otros fervientemente de corazón,
+Ya que, al obedecer a la verdad, os habéis purificado para amar sinceramente a los hermanos y hermanas, amaos de verdad unos a otros, de todo corazón,
 
 ## 1 Pedro 1:23
 
-porque habéis nacido de nuevo no de simiente perecedera, sino imperecedera, mediante la palabra viva y permanente de Dios.
+porque habéis nacido de nuevo, no de una semilla que muere, sino de una que no muere, gracias a la palabra de Dios, que vive y permanece.
 
 ## 1 Pedro 1:24
 
-Porque,
+Porque “todo ser humano es como la hierba,
 
->  “Toda la humanidad es como la hierba,  
->  Y toda su gloria como la flor de la hierba.  
->  La hierba se seca,  
->  Y la flor se cae,
+>  y toda su belleza es como la flor del campo.  
+>  La hierba se seca y la flor se cae,
 
 ## 1 Pedro 1:25
 
-> Pero la palabra del Señor permanece para siempre.”
+> pero la palabra del Señor permanece para siempre.”
 
- Y esta es la palabra que os fue proclamada.
+ Y esta es la palabra del evangelio que se os ha anunciado.

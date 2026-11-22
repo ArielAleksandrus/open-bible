@@ -13,13 +13,13 @@ Marcharéis alrededor de la ciudad, todos los hombres de guerra rodeando la ciud
 Y siete sacerdotes llevarán siete trompetas de cuernos de carnero delante del arca; el séptimo día marcharéis alrededor de la ciudad siete veces, y los sacerdotes tocarán las trompetas.
 
 ## Josué 6:5
-Cuando hagan un sonido prolongado con el cuerno de carnero, y cuando oigáis el sonido de la trompeta, todo el pueblo gritará con gran grito; y el muro de la ciudad caerá plano, y el pueblo subirá, cada hombre derecho adelante.”
+Cuando hagan un sonido prolongado con el cuerno de carnero, y cuando oigáis el sonido de la trompeta, todo el pueblo gritará con gran grito; y el muro de la ciudad se derrumbará, y el pueblo subirá, cada uno directamente hacia adelante.”
 
 ## Josué 6:6
 Entonces Josué hijo de Nun llamó a los sacerdotes y les dijo: “Tomad el arca del pacto, y que siete sacerdotes lleven siete trompetas de cuernos de carnero delante del arca del Señor.”
 
 ## Josué 6:7
-Y dijo al pueblo: “Proceded y marchad alrededor de la ciudad, y que los hombres armados vayan delante del arca del Señor.”
+Y dijo al pueblo: “Avanzad y marchad alrededor de la ciudad, y que los hombres armados vayan delante del arca del Señor.”
 
 ## Josué 6:8
 Y así fue, que cuando Josué habló al pueblo, los siete sacerdotes que llevaban las siete trompetas de cuernos de carnero delante del Señor avanzaron, tocando las trompetas, y el arca del pacto del Señor los seguía.
@@ -58,7 +58,7 @@ Pero guardaos de las cosas consagradas a la destrucción, para que no las codici
 Toda la plata y el oro y los utensilios de bronce y hierro son sagrados para el Señor; irán al tesoro del Señor.”
 
 ## Josué 6:20
-Entonces el pueblo gritó, y los sacerdotes tocaron las trompetas; y cuando el pueblo oyó el sonido de la trompeta, gritó con gran grito, y el muro cayó plano, así que el pueblo subió a la ciudad, cada hombre derecho adelante, y tomaron la ciudad.
+Entonces el pueblo gritó, y los sacerdotes tocaron las trompetas; y cuando el pueblo oyó el sonido de la trompeta, gritó con gran grito, y el muro se derrumbó, así que el pueblo subió a la ciudad, cada uno directamente hacia adelante, y tomaron la ciudad.
 
 ## Josué 6:21
 Destruyeron por completo todo lo que había en la ciudad, tanto hombres como mujeres, jóvenes y viejos, y bueyes, ovejas y asnos, a filo de espada.

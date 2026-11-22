@@ -42,4 +42,4 @@ Además, había ciudades y sus aldeas apartadas para los efraimitas dentro de la
 
 ## Josué 16:10
 
-No expulsaron a los cananeos que vivían en Gezer; por lo tanto, los cananeos continúan viviendo entre los efraimitas hasta el día de hoy, y se convirtieron en sujetos de trabajos forzados.
+No expulsaron a los cananeos que vivían en Gezer; por lo tanto, los cananeos continúan viviendo entre los efraimitas hasta el día de hoy, y quedaron sujetos a trabajos forzados.

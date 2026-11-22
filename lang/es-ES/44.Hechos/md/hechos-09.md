@@ -44,7 +44,7 @@ En Damasco había un discípulo llamado Ananías. El Señor le habló en una vis
 
 ## Hechos 9:11
 
-El Señor le instruyó: “Ve a la calle llamada Derecha, y pregunta en la casa de Judas por un hombre de Tarso llamado Saulo, porque está orando.
+El Señor le dijo: “Ve a la calle llamada Derecha, y pregunta en la casa de Judas por un hombre de Tarso llamado Saulo, porque está orando.
 
 ## Hechos 9:12
 
@@ -102,7 +102,7 @@ Después de muchos días, los judíos tramaron matarlo,
 
 ## Hechos 9:24
 
-pero su complot se hizo conocido a Saulo. Ellos vigilaban las puertas de la ciudad día y noche para matarlo.
+pero Saulo se enteró de su complot. Ellos vigilaban las puertas de la ciudad día y noche para matarlo.
 
 ## Hechos 9:25
 

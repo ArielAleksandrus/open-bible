@@ -58,7 +58,7 @@ No haré responsables a vuestras hijas cuando se entreguen a la prostitución, n
 
 ## Oseas 4:15
 
-Aunque tú, Israel, cometas adulterio, que no se haga culpable Judá. No vayáis a Gilgal, ni subáis a Bet Aven, y no juréis: ‘¡Tan cierto como que el Señor vive!’
+Aunque tú, Israel, cometas adulterio, que no se haga culpable Judá. No vayáis a Gilgal, ni subáis a Bet-avén, y no juréis: ‘¡Tan cierto como que el Señor vive!’
 
 ## Oseas 4:16
 

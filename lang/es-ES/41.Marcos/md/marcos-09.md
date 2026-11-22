@@ -140,7 +140,7 @@ Pero no comprendieron esta declaración y tenían miedo de preguntarle.
 
 ## Marcos 9:33
 
-Llegaron a Capernaum. Cuando estaba en la casa, les preguntó, “¿De qué discutíais en el camino?”
+Llegaron a Capernaúm. Cuando estaba en la casa, les preguntó, “¿De qué discutíais en el camino?”
 
 ## Marcos 9:34
 
@@ -166,7 +166,7 @@ Juan le dijo, “Maestro, vimos a alguien expulsando demonios en tu nombre, y tr
 
 ## Marcos 9:39
 
-Pero Jesús dijo, “No lo detengáis, porque nadie que haga un milagro en mi nombre podrá pronto después hablar mal de mí.
+Pero Jesús dijo, “No lo detengáis, porque nadie que haga un milagro en mi nombre podrá luego hablar mal de mí.
 
 ## Marcos 9:40
 

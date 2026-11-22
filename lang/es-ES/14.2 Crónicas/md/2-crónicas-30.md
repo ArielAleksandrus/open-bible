@@ -43,16 +43,16 @@ No seáis como vuestros padres y vuestros hermanos,
 
 ## 2 Crónicas 30:8
 
-Ahora no endurezcáis vuestra cerviz como vuestros padres,  
- sino entregaos al Señor y entrad en su santuario que Él ha consagrado para siempre,  
- y servid al Señor vuestro Dios, para que su ardiente ira se aparte de vosotros.
+No seáis tercos ahora como vuestros padres;  
+ rendíos al Señor, entrad en su santuario, que Él consagró para siempre,  
+ y servid al Señor vuestro Dios, para que su ira ardiente se aleje de vosotros.
 
 ## 2 Crónicas 30:9
 
-Porque si volvéis al Señor,  
- vuestros hermanos y vuestros hijos hallarán misericordia ante aquellos que los llevaron cautivos y volverán a esta tierra.  
- Porque el Señor vuestro Dios es clemente y compasivo,  
- y no apartará su rostro de vosotros si volvéis a Él.”
+Porque si os volvéis al Señor,  
+ vuestros hermanos y vuestros hijos serán tratados con misericordia por quienes se los llevaron cautivos,  
+ y regresarán a esta tierra. El Señor vuestro Dios es bondadoso y compasivo,  
+ y no os dará la espalda si os volvéis a Él.”
 
 ---
 
@@ -97,7 +97,7 @@ Tomaron sus lugares en sus puestos conforme a la Ley de Moisés, el hombre de Di
 
 Como había muchos en la asamblea que no se habían consagrado,  
  los levitas eran responsables de sacrificar los corderos de la Pascua para todos los que estaban impuros,  
- para que pudieran consagrarse al Señor.
+ para consagrarlos al Señor.
 
 ## 2 Crónicas 30:18
 

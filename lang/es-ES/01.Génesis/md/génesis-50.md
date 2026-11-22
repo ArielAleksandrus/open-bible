@@ -13,7 +13,7 @@ El embalsamamiento duró cuarenta días, ya que ese era el período habitual req
 Cuando se completaron los días de luto, José habló a la casa de Faraón, diciendo: “Si he hallado gracia a vuestros ojos, os ruego que habléis a Faraón en mi nombre, diciendo,
 
 ## Génesis 50:5
-‘Mi padre me hizo jurar, diciendo: “He aquí, estoy a punto de morir; en la tumba que preparé para mí en la tierra de Canaán, allí me enterrarás.” Ahora déjame subir y enterrar a mi padre; luego volveré.’”
+‘Mi padre me hizo jurar, diciendo: “Estoy a punto de morir; me enterrarás en la tumba que me preparé en la tierra de Canaán.” Ahora déjame subir a enterrar a mi padre; después volveré.’”
 
 ## Génesis 50:6
 Faraón respondió: “Ve y entierra a tu padre, como él te hizo jurar.”
@@ -37,7 +37,7 @@ Cuando los cananeos que vivían allí vieron el luto en la era de Atad, dijeron:
 Así hicieron los hijos de Jacob por él como él les había ordenado:
 
 ## Génesis 50:13
-Lo llevaron a la tierra de Canaán y lo enterraron en la cueva en el campo de Macpela, frente a Mamre, que Abraham había comprado junto con el campo como lugar de sepultura de Efrón el hitita.
+Lo llevaron a la tierra de Canaán y lo enterraron en la cueva en el campo de Macpela, frente a Mamré, que Abraham había comprado junto con el campo como lugar de sepultura de Efrón el hitita.
 
 ## Génesis 50:14
 Después de enterrar a su padre, José regresó a Egipto, junto con sus hermanos y todos los que habían subido con él para enterrar a su padre.
@@ -52,7 +52,7 @@ Por lo tanto, enviaron un mensaje a José, diciendo: “Tu padre dio esta orden 
 ‘Esto es lo que habéis de decir a José: Te ruego que perdones las transgresiones de tus hermanos y su pecado, porque te trataron mal.’ Ahora, por favor, perdona las transgresiones de los siervos del Dios de tu padre.” José lloró cuando le hablaron.
 
 ## Génesis 50:18
-Entonces sus hermanos también vinieron y se postraron ante él, diciendo: “He aquí, somos tus siervos.”
+Entonces sus hermanos también vinieron, se postraron ante él y le dijeron: “Aquí nos tienes: somos tus siervos.”
 
 ## Génesis 50:19
 Pero José les dijo: “No temáis, ¿acaso estoy yo en lugar de Dios?

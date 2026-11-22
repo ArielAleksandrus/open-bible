@@ -52,7 +52,7 @@ con los mejores dones de la tierra y su plenitud, y el favor de aquel que habit�
 En majestad es como un toro primogénito; sus cuernos son los cuernos de un búfalo salvaje. Con ellos corneará a las naciones, hasta los confines de la tierra. Tales son las decenas de miles de Efraín, tales son los miles de Manasés.”
 
 ## Deuteronomio 33:18
-De Zabulón dijo: “Alégrate, Zabulón, en tus salidas, e Issacar, en tus tiendas.
+De Zabulón dijo: “Alégrate, Zabulón, en tus salidas, e Isacar, en tus tiendas.
 
 ## Deuteronomio 33:19
 Llamarán a los pueblos al monte; allí ofrecerán sacrificios justos. Se deleitarán en la abundancia de los mares y los tesoros escondidos en la arena.”

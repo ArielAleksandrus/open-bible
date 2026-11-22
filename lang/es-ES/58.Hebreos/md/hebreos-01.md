@@ -23,7 +23,7 @@ Porque, ¿a cuál de los ángeles dijo Dios jamás,
 >  “Tú eres Mi Hijo;
 >  hoy he llegado a ser Tu Padre”?
 
- O también,
+ ¿O también,
 
 >  “Yo seré Su Padre,
 >  y Él será Mi Hijo”?
@@ -52,7 +52,7 @@ Pero acerca del Hijo, dice,
 
 > Has amado la justicia y odiado la maldad;
 >  por eso Dios, Tu Dios,
->  Te ha ungido con el óleo de alegría más que a Tus compañeros.”
+>  te ha ungido con el óleo de alegría más que a Tus compañeros.”
 
 ## Hebreos 1:10
 
@@ -82,4 +82,4 @@ También declara,
 
 ## Hebreos 1:14
 
-¿No son todos los ángeles espíritus ministradores enviados para servir a los que heredarán la salvación?
+¿Acaso no son todos los ángeles espíritus que sirven a Dios, enviados para ayudar a los que van a recibir la salvación como herencia?

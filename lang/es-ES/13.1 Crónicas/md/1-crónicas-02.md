@@ -263,7 +263,7 @@ Jada, el hermano de Samai, tuvo hijos:
 Los hijos de Jonatán fueron:
 
 >  Pelet y Zaza.  
->  Estos fueron entre los descendientes de Jerameel.
+>  Estos estaban entre los descendientes de Jerameel.
 
 ---
 
@@ -364,7 +364,7 @@ La concubina de Caleb, Maaca, dio a luz a Seber y Tirhana.
 ## 1 Crónicas 2:49
 
 Ella también dio a luz a Saaf, el padre de Madmana,  
- Sheva, el padre de Macbena y el padre de Gibeá;  
+ a Seva, el padre de Macbena y el padre de Gibeá;  
  y la hija de Caleb fue Aksa.
 
 ---
@@ -387,7 +387,7 @@ Estos fueron los hijos de Caleb:
 
 Sobal, el padre de Quiriat-jearim, tuvo hijos:
 
->  Haroeh y la mitad de los manaítas,
+>  Haroé y la mitad de los manaítas,
 
 ## 1 Crónicas 2:53
 

@@ -2,27 +2,27 @@
 
 ## Isaías 45:1
 
-Esto es lo que dice el Señor a su ungido, a Ciro, cuya mano derecha he tomado, para someter naciones ante él y desatar la armadura de los reyes; para abrir puertas delante de él para que las puertas no se cierren:
+Esto dice el Señor a su ungido, a Ciro, a quien he tomado de la mano derecha para que someta a las naciones a su paso y les quite a los reyes las armas; para abrirle las puertas de par en par y que ninguna puerta le quede cerrada:
 
 ## Isaías 45:2
 
-Iré delante de ti y allanaré los lugares escabrosos; romperé las puertas de bronce y cortaré los barrotes de hierro.
+Yo iré delante de ti y allanaré los terrenos escabrosos; haré pedazos las puertas de bronce y romperé las barras de hierro.
 
 ## Isaías 45:3
 
-Te daré los tesoros escondidos en la oscuridad y las riquezas guardadas en lugares secretos, para que sepas que yo soy el Señor, el Dios de Israel, que te llama por tu nombre.
+Te daré los tesoros que están escondidos en la oscuridad y las riquezas guardadas en lugares secretos, para que sepas que yo soy el Señor, el Dios de Israel, que te llama por tu nombre.
 
 ## Isaías 45:4
 
-Por amor a Jacob mi siervo, de Israel mi escogido, te he llamado por tu nombre y te he dado un título de honor, aunque no me has conocido.
+Por amor a mi siervo Jacob, a Israel, mi elegido, te he llamado por tu nombre y te he dado un título de honor, aunque tú no me conocías.
 
 ## Isaías 45:5
 
-Yo soy el Señor, y no hay otro; fuera de mí no hay Dios. Te fortaleceré, aunque no me has conocido,
+Yo soy el Señor, y no hay ningún otro; fuera de mí no hay Dios. Yo te daré fuerzas, aunque tú no me conocías,
 
 ## Isaías 45:6
 
-para que desde el nacimiento del sol hasta su ocaso la gente sepa que no hay nadie fuera de mí. Yo soy el Señor, y no hay otro.
+para que desde donde sale el sol hasta donde se pone todos sepan que no hay nadie más que yo. Yo soy el Señor, y no hay ningún otro.
 
 ## Isaías 45:7
 
@@ -30,11 +30,11 @@ Yo formo la luz y creo las tinieblas, traigo prosperidad y creo la calamidad; yo
 
 ## Isaías 45:8
 
-Cielos arriba, derramad justicia; que las nubes la viertan. Que la tierra se abra, que brote la salvación, y que la justicia florezca con ella; yo, el Señor, la he creado.
+Cielos de allá arriba, haced llover justicia; que las nubes la derramen. Que se abra la tierra, que brote la salvación y que crezca con ella la justicia; yo, el Señor, la he creado.
 
 ## Isaías 45:9
 
-¡Ay de aquellos que riñen con su Hacedor, aquellos que no son más que tiestos entre los tiestos en el suelo! ¿Dice el barro al alfarero, ‘¿Qué estás haciendo?’ ¿Dice tu obra, ‘No tiene manos’?
+¡Ay de los que se pelean con el que los hizo, si no son más que un pedazo de cacharro entre los cacharros del suelo! ¿Acaso le dice el barro al alfarero: ‘¿Qué estás haciendo?’ ¿O tu propia obra te dice: ‘No tiene manos’?
 
 ## Isaías 45:10
 
@@ -46,11 +46,11 @@ Esto es lo que dice el Señor, el Santo de Israel, y su Hacedor: En cuanto a las
 
 ## Isaías 45:12
 
-Yo hice la tierra y creé a la humanidad sobre ella. Mis propias manos extendieron los cielos; organicé sus huestes estrelladas.
+Yo soy quien hizo la tierra y creó sobre ella a la humanidad. Con mis propias manos desplegué los cielos; yo doy órdenes a todas las estrellas.
 
 ## Isaías 45:13
 
-Lo he levantado en justicia, y haré rectos todos sus caminos. Él reconstruirá mi ciudad y liberará a mis desterrados, pero no por precio ni recompensa, dice el Señor Todopoderoso.
+Lo he levantado en justicia, y haré rectos todos sus caminos. Él reconstruirá mi ciudad y liberará a mis desterrados, pero no por precio ni recompensa, dice el Señor de los ejércitos.
 
 ## Isaías 45:14
 
@@ -58,7 +58,7 @@ Esto es lo que dice el Señor: Los productos de Egipto, la mercancía de Cus, y 
 
 ## Isaías 45:15
 
-Verdaderamente, tú eres un Dios que se esconde, el Dios y Salvador de Israel.
+Es verdad, Tú eres un Dios que se esconde, el Dios de Israel, el que salva.
 
 ## Isaías 45:16
 
@@ -70,11 +70,11 @@ Pero Israel será salvado por el Señor con una salvación eterna; no serás ave
 
 ## Isaías 45:18
 
-Porque esto es lo que dice el Señor, el que creó los cielos, él es Dios; el que formó e hizo la tierra, la estableció; no la creó para estar vacía, sino que la formó para ser habitada, él dice: Yo soy el Señor, y no hay otro.
+Porque esto dice el Señor, el que creó los cielos, el único Dios; el que formó la tierra y la hizo, el que la afianzó; no la creó para que quedara vacía, sino que la formó para que fuera habitada; Él dice: Yo soy el Señor, y no hay ningún otro.
 
 ## Isaías 45:19
 
-No he hablado en secreto, desde un lugar oculto en una tierra de oscuridad; no he dicho a los descendientes de Jacob, ‘Búscadme en vano.’ Yo, el Señor, hablo la verdad; declaro lo que es correcto.
+No he hablado en secreto, desde un lugar oculto en una tierra de oscuridad; no he dicho a los descendientes de Jacob, ‘Buscadme en vano.’ Yo, el Señor, hablo la verdad; declaro lo que es correcto.
 
 ## Isaías 45:20
 
@@ -86,11 +86,11 @@ Declarad y presentad vuestro caso; que tomen consejo juntos. ¿Quién predijo es
 
 ## Isaías 45:22
 
-Miradme para salvación, todos los confines de la tierra; porque yo soy Dios, y no hay otro.
+Volveos a mí y seréis salvos, todos los pueblos hasta los extremos de la tierra; porque yo soy Dios, y no hay ningún otro.
 
 ## Isaías 45:23
 
-Por mí mismo he jurado, mi boca ha pronunciado con toda integridad una palabra que no será revocada: Ante mí se doblará toda rodilla, por mí jurará toda lengua lealtad.
+He jurado por mí mismo, de mi boca ha salido con toda verdad una palabra que no se echará atrás: Ante mí se arrodillarán todos, y todos jurarán lealtad por mí.
 
 ## Isaías 45:24
 

@@ -14,11 +14,11 @@ se prostituyeron en Egipto. Se prostituyeron desde su juventud; allí sus pechos
 
 ## Ezequiel 23:4
 
-La mayor se llamaba Oholah, y su hermana Oholibah. Eran mías y dieron a luz hijos e hijas. Oholah representa a Samaria, y Oholibah representa a Jerusalén.
+La mayor se llamaba Oholá, y su hermana Oholibá. Eran mías y dieron a luz hijos e hijas. Oholá es Samaria, y Oholibá es Jerusalén.
 
 ## Ezequiel 23:5
 
-“Oholah se prostituyó mientras aún era mía; deseó a sus amantes, los asirios, sus vecinos,
+“Oholá se prostituyó mientras aún era mía; deseó a sus amantes, los asirios, sus vecinos,
 
 ## Ezequiel 23:6
 
@@ -26,7 +26,7 @@ vestidos de azul, gobernadores y comandantes, todos ellos jóvenes apuestos, mon
 
 ## Ezequiel 23:7
 
-Les otorgó sus prácticas obscenas, a toda la élite de los asirios, y se contaminó con todos sus ídolos, con quienes deseaba.
+Les otorgó sus prácticas obscenas, a toda la élite de los asirios, y se contaminó con todos los ídolos de aquellos a quienes deseaba.
 
 ## Ezequiel 23:8
 
@@ -34,7 +34,7 @@ No abandonó la prostitución que comenzó en Egipto; en su juventud los hombres
 
 ## Ezequiel 23:9
 
-Por lo tanto, la entregué a sus amantes, los asirios, por quienes deseaba.
+Por lo tanto, la entregué a sus amantes, los asirios, a quienes deseaba.
 
 ## Ezequiel 23:10
 
@@ -42,7 +42,7 @@ Descubrieron su desnudez, se llevaron a sus hijos e hijas, y la mataron a espada
 
 ## Ezequiel 23:11
 
-“Su hermana Oholibah vio esto, sin embargo, fue más depravada en su lujuria y prostitución que su hermana.
+“Su hermana Oholibá vio esto, sin embargo, fue más depravada en su lujuria y prostitución que su hermana.
 
 ## Ezequiel 23:12
 
@@ -86,7 +86,7 @@ Así, anhelaste la inmoralidad de tu juventud, cuando en Egipto tu seno fue acar
 
 ## Ezequiel 23:22
 
-“Por lo tanto, Oholibah, esto es lo que dice el Señor Soberano: Incitaré a tus amantes contra ti, aquellos de quienes te apartaste con disgusto, y los traeré contra ti de todos lados—
+“Por lo tanto, Oholibá, esto es lo que dice el Señor Dios: Incitaré a tus amantes contra ti, aquellos de quienes te apartaste con disgusto, y los traeré contra ti de todos lados—
 
 ## Ezequiel 23:23
 
@@ -94,7 +94,7 @@ los babilonios y todos los caldeos, los hombres de Pecod y Soa y Coa, y todos lo
 
 ## Ezequiel 23:24
 
-Vendrán contra ti con armas, carros y vagones, y con una multitud de gente; se pondrán contra ti de todos lados con grandes y pequeños escudos y con cascos. Les encomendaré el juicio, y te juzgarán según sus costumbres.
+Vendrán contra ti con armas, carros y carretas, y con una multitud de gente; se pondrán contra ti de todos lados con grandes y pequeños escudos y con cascos. Les encomendaré el juicio, y te juzgarán según sus costumbres.
 
 ## Ezequiel 23:25
 
@@ -110,7 +110,7 @@ Así pondré fin a tu lascivia y prostitución traída de Egipto. No mirarás es
 
 ## Ezequiel 23:28
 
-Porque esto es lo que dice el Señor Soberano: Estoy a punto de entregarte a aquellos que desprecias, a aquellos de quienes te apartaste con disgusto.
+Porque esto es lo que dice el Señor Dios: Estoy a punto de entregarte a aquellos que desprecias, a aquellos de quienes te apartaste con disgusto.
 
 ## Ezequiel 23:29
 
@@ -126,7 +126,7 @@ Has seguido el camino de tu hermana; por lo tanto, pondré su copa en tu mano.
 
 ## Ezequiel 23:32
 
-Esto es lo que dice el Señor Soberano: Beberás la copa de tu hermana, una copa profunda y ancha; traerá escarnio y burla, porque contiene mucho.
+Esto es lo que dice el Señor Dios: Beberás la copa de tu hermana, una copa profunda y ancha; traerá escarnio y burla, porque contiene mucho.
 
 ## Ezequiel 23:33
 
@@ -134,15 +134,15 @@ Te llenarás de embriaguez y tristeza, una copa de ruina y desolación, la copa 
 
 ## Ezequiel 23:34
 
-La beberás y la agotarás; roerás sus fragmentos y desgarrarás tus pechos. Yo he hablado, declara el Señor Soberano.
+La beberás y la agotarás; roerás sus fragmentos y desgarrarás tus pechos. Yo he hablado, declara el Señor Dios.
 
 ## Ezequiel 23:35
 
-Por lo tanto, esto es lo que dice el Señor Soberano: Porque me has olvidado y me has echado detrás de tu espalda, debes soportar las consecuencias de tu lascivia y prácticas obscenas.”
+Por lo tanto, esto es lo que dice el Señor Dios: Porque me has olvidado y me has echado detrás de tu espalda, debes soportar las consecuencias de tu lascivia y prácticas obscenas.”
 
 ## Ezequiel 23:36
 
-Además, el Señor me dijo: “Ser humano, ¿juzgarás a Oholah y Oholibah? Entonces confróntalas con sus prácticas detestables,
+Además, el Señor me dijo: “Hijo de hombre, ¿juzgarás a Oholá y Oholibá? Entonces confróntalas con sus prácticas detestables,
 
 ## Ezequiel 23:37
 
@@ -162,7 +162,7 @@ Además, enviaron mensajeros por hombres que vinieron de lejos, y cuando llegaro
 
 ## Ezequiel 23:41
 
-Te sentaste en un espléndido sofá, con una mesa extendida delante de él en la que habías colocado mi incienso y mi aceite.
+Te sentaste en un espléndido lecho, con una mesa extendida delante de él en la que habías colocado mi incienso y mi aceite.
 
 ## Ezequiel 23:42
 
@@ -170,11 +170,11 @@ El ruido de una multitud despreocupada estaba alrededor de ella; borrachos fuero
 
 ## Ezequiel 23:43
 
-Entonces dije respecto a la que estaba desgastada por el adulterio, ‘Ahora déjenlos usarla como prostituta, porque eso es todo lo que es.’
+Entonces dije respecto a la que estaba desgastada por el adulterio, ‘Ahora que la usen como prostituta, porque eso es todo lo que es.’
 
 ## Ezequiel 23:44
 
-Y fueron a ella como los hombres van a una prostituta. Así fueron a Oholah y Oholibah, las mujeres lascivas.
+Y fueron a ella como los hombres van a una prostituta. Así fueron a Oholá y Oholibá, las mujeres lascivas.
 
 ## Ezequiel 23:45
 
@@ -182,7 +182,7 @@ Pero los jueces justos las sentenciarán al castigo de las mujeres que cometen a
 
 ## Ezequiel 23:46
 
-Porque esto es lo que dice el Señor Soberano: Trae una multitud contra ellas y entrégalas al terror y al saqueo.
+Porque esto es lo que dice el Señor Dios: Trae una multitud contra ellas y entrégalas al terror y al saqueo.
 
 ## Ezequiel 23:47
 
@@ -190,8 +190,8 @@ La multitud las apedreará y las cortará con sus espadas; matarán a sus hijos 
 
 ## Ezequiel 23:48
 
-Así pondré fin a la lascivia en la tierra, para que todas las mujeres tomen advertencia y no te imiten.
+Así pondré fin a la lascivia en la tierra, para que todas las mujeres tomen advertencia y no os imiten.
 
 ## Ezequiel 23:49
 
-Soportarás la pena por tu lascivia y las consecuencias de tus actos idólatras. Entonces sabrás que yo soy el Señor Soberano.”
+Soportaréis la pena por vuestra lascivia y las consecuencias de vuestros actos idólatras. Entonces sabréis que yo soy el Señor Dios.”

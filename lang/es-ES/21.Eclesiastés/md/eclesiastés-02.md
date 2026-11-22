@@ -74,7 +74,7 @@ Detesté todas las cosas por las que había trabajado bajo el sol, porque debo d
 
 ## Eclesiastés 2:19
 
-¿Y quién puede decir si esa persona será sabia o necia? Sin embargo, tendrán autoridad sobre todos los resultados de mi esfuerzo en el que he vertido mi esfuerzo y habilidad bajo el sol. Esto también es inútil.
+¿Y quién puede decir si esa persona será sabia o necia? Sin embargo, tendrá autoridad sobre todo el fruto de mi trabajo, en el que he puesto mi esfuerzo y mi habilidad bajo el sol. Esto también es inútil.
 
 ## Eclesiastés 2:20
 
@@ -102,4 +102,4 @@ porque ¿quién puede comer o encontrar disfrute aparte de Él?
 
 ## Eclesiastés 2:26
 
-A la persona que le agrada, Dios le da sabiduría, conocimiento y felicidad, pero al pecador, le asigna la tarea de reunir y almacenar riquezas para entregarlas a quien agrada a Dios. Esto también es sin sentido, un correr tras el viento.
+A quien le agrada a Él, Dios le da sabiduría, conocimiento y felicidad, pero al pecador, le asigna la tarea de reunir y almacenar riquezas para entregarlas a quien agrada a Dios. Esto también es sin sentido, un correr tras el viento.

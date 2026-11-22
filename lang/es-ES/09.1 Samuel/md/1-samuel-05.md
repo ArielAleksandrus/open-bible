@@ -49,7 +49,7 @@ Entonces enviaron el arca de Dios a Ecrón.
 
 ## 1 Samuel 5:11
 
-Entonces convocaron a todos los gobernantes de los filisteos y dijeron: “Envía el arca del Dios de Israel lejos. Que regrese a su propio lugar, para que no nos mate a nosotros y a nuestro pueblo.”  
+Entonces convocaron a todos los gobernantes de los filisteos y dijeron: “Enviad el arca del Dios de Israel lejos. Que regrese a su propio lugar, para que no nos mate a nosotros y a nuestro pueblo.”  
  Porque la muerte y el pánico habían llenado la ciudad; la mano de Dios era muy pesada allí.
 
 ## 1 Samuel 5:12

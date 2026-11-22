@@ -1,34 +1,34 @@
 # Isaías Capítulo 54
 
 ## Isaías 54:1
-“Regocíjate, mujer estéril, tú que no has dado a luz; prorrumpe en cánticos y grita de alegría, tú que no has pasado por el parto; porque más numerosos son los hijos de la desolada que los de la mujer con marido”, dice el Señor.
+“¡Grita de alegría, mujer que no podías tener hijos, tú que nunca diste a luz! ¡Ponte a cantar y a gritar de júbilo, tú que nunca tuviste dolores de parto! Porque la mujer abandonada tendrá más hijos que la que vive con su marido”, dice el Señor.
 
 ## Isaías 54:2
-“Ensanche el espacio de tu tienda, extiende las cortinas de tu morada, no te detengas; alarga tus cuerdas y fortalece tus estacas.
+“Agranda el espacio de tu tienda, despliega bien las lonas de tu casa, no te quedes corta; alarga las cuerdas y clava bien las estacas.
 
 ## Isaías 54:3
-Porque te extenderás a la derecha y a la izquierda; tus descendientes tomarán posesión de naciones y habitarán las ciudades desoladas.
+Porque te extenderás a derecha e izquierda; tus descendientes se adueñarán de naciones y volverán a poblar las ciudades abandonadas.
 
 ## Isaías 54:4
-“No temas, porque no sufrirás vergüenza; no te desalientes, porque no serás deshonrada; olvidarás la vergüenza de tu juventud y no recordarás más el oprobio de tu viudez.
+“No tengas miedo, que no pasarás vergüenza; no te angusties, que no quedarás humillada; te olvidarás de la vergüenza de tu juventud y no te acordarás más de la deshonra de tu viudez.
 
 ## Isaías 54:5
-Porque tu Hacedor es tu esposo —el Señor de los Ejércitos es su nombre— el Santo de Israel es tu Redentor; Él es llamado el Dios de toda la tierra.
+Porque tu esposo es el que te hizo —su nombre es Señor de los ejércitos—; tu Redentor es el Santo de Israel, al que llaman Dios de toda la tierra.
 
 ## Isaías 54:6
 El Señor te ha llamado de vuelta como a una esposa abandonada y angustiada de espíritu, como a una esposa casada joven, solo para ser rechazada”, dice tu Dios.
 
 ## Isaías 54:7
-“Por un breve momento te abandoné, pero con gran compasión te reuniré de nuevo.
+“Te dejé abandonada por un momento, pero con un amor inmenso te volveré a reunir.
 
 ## Isaías 54:8
-En un momento de ira, me aparté de ti, pero con bondad duradera, te mostraré compasión”, dice el Señor tu Redentor.
+En un arranque de enojo te di la espalda por un momento, pero con un amor que no se acaba te mostraré mi compasión”, dice el Señor, tu Redentor.
 
 ## Isaías 54:9
 “Para mí esto es como los días de Noé, cuando juré que las aguas de Noé nunca más inundarían la tierra. Así he jurado no enojarme contigo ni reprenderte de nuevo.
 
 ## Isaías 54:10
-Aunque se quiten las montañas y se sacudan las colinas, mi amor inquebrantable por ti no será removido ni mi pacto de paz será sacudido”, dice el Señor, que tiene compasión de ti.
+Aunque se muevan los montes y tiemblen las colinas, mi amor por ti no se moverá ni temblará mi pacto de paz”, dice el Señor, que te tiene compasión.
 
 ## Isaías 54:11
 “Ciudad afligida, azotada por tormentas y no consolada, te reconstruiré con piedras de turquesa y pondré tus cimientos con zafiros.
@@ -49,4 +49,4 @@ Si alguien te ataca, no será de mi parte; quien te ataque caerá ante ti.
 “Mira, soy yo quien creó al herrero que aviva las brasas en llama y forja un arma adecuada para su obra; y he creado al destructor para causar estragos.
 
 ## Isaías 54:17
-Ningún arma forjada contra ti tendrá éxito, y refutarás toda lengua que se levante contra ti en juicio. Esta es la herencia de los siervos del Señor, y su vindicación es de mí”, declara el Señor.
+Ningún arma que fabriquen contra ti tendrá éxito, y tú dejarás sin argumentos a todo el que te acuse en un juicio. Esto es lo que les corresponde a los siervos del Señor: yo seré quien les haga justicia”, declara el Señor.

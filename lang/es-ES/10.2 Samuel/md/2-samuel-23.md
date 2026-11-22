@@ -4,28 +4,28 @@
 
 Estas son las últimas palabras de David:  
  David, hijo de Isaí, habla,  
- El hombre exaltado por el Altísimo,  
- El ungido del Dios de Jacob,  
- Y el amado salmista de Israel:
+ el hombre exaltado por el Altísimo,  
+ el ungido del Dios de Jacob,  
+ y el amado salmista de Israel:
 
 ## 2 Samuel 23:2
 
 > “El Espíritu del Señor habló por mí,  
->  Y sus palabras estaban en mi lengua.
+>  y sus palabras estaban en mi lengua.
 
 ## 2 Samuel 23:3
 
 > El Dios de Israel dijo,  
->  La Roca de Israel me habló:  
+>  la Roca de Israel me habló:  
 >  ‘El que gobierna a la humanidad con justicia,  
->  Que gobierna en reverencia a Dios,
+>  que gobierna en reverencia a Dios,
 
 ## 2 Samuel 23:4
 
 > Es como la luz de la mañana cuando sale el sol,  
->  Un amanecer sin nubes,  
->  Cuando la hierba fresca brota de la tierra,  
->  Después del sol y la lluvia.’
+>  un amanecer sin nubes,  
+>  cuando la hierba fresca brota de la tierra,  
+>  después del sol y la lluvia.’
 
 ## 2 Samuel 23:5
 
@@ -37,12 +37,12 @@ Estas son las últimas palabras de David:
 ## 2 Samuel 23:6
 
 > Pero los inútiles, todos ellos serán echados a un lado como espinas,  
->  Porque no se pueden manejar;
+>  porque no se pueden manejar;
 
 ## 2 Samuel 23:7
 
 > Pero el que los toca Debe estar equipado con hierro y el asta de una lanza,  
->  Y serán completamente quemados con fuego donde yacen.  
+>  y serán completamente quemados con fuego donde yacen.  
 > ”
 
 ---
@@ -50,8 +50,8 @@ Estas son las últimas palabras de David:
 ## 2 Samuel 23:8
 
 Estos son los nombres de los valientes que David tuvo:  
- Josheb-basshebeth, un Tahchemonita,  
- jefe de los capitanes —Empuñó su lanza contra ochocientos a quienes mató de una vez—.
+ Joseb-basebet, el tacmonita,  
+ jefe de los capitanes —empuñó su lanza contra ochocientos a quienes mató de una vez—.
 
 ## 2 Samuel 23:9
 
@@ -67,7 +67,7 @@ Se levantó e hirió a los filisteos hasta que su mano se cansó y se pegó a la
 
 ## 2 Samuel 23:11
 
-Junto a él estaba Sama, hijo de Agee, un Hararita.  
+Junto a él estaba Sama, hijo de Agee, un hararita.  
  Y los filisteos se habían reunido en un grupo donde había un terreno lleno de lentejas,  
  y la gente huyó de los filisteos.
 
@@ -161,23 +161,23 @@ Asael, hermano de Joab, estaba entre los treinta;
 
 ## 2 Samuel 23:25
 
-Sama, un Harodita;  
- Elika, otro Harodita;
+Sama, un harodita;  
+ Elika, otro harodita;
 
 ## 2 Samuel 23:26
 
-Helez, un Paltita;  
+Helez, un paltita;  
  Ira, hijo de Iques, de Tecoa,
 
 ## 2 Samuel 23:27
 
-Abiezer, un Anatotita;  
- Mebunnai, un Husatita;
+Abiezer, un anatotita;  
+ Mebunnai, un husatita;
 
 ## 2 Samuel 23:28
 
-Zalmón, un Ahohita;  
- Maharai, un Netofatita;
+Zalmón, un ahohita;  
+ Maharai, un netofatita;
 
 ## 2 Samuel 23:29
 
@@ -186,50 +186,50 @@ Heleb, hijo de Baaná de Netofa;
 
 ## 2 Samuel 23:30
 
-Benaía, un Piratonita;  
- Hiddai de los arroyos de Gaas,
+Benaía, un piratonita;  
+ Hidai de los arroyos de Gaas,
 
 ## 2 Samuel 23:31
 
-Abi-albón, un Arbatita;  
- Azmavet, un Barhumita,
+Abi-albón, un arbatita;  
+ Azmavet, un barhumita,
 
 ## 2 Samuel 23:32
 
-Eliahba, un Saalbonita;  
+Eliahba, un saalbonita;  
  los hijos de Jasén, incluyendo a Jonatán,
 
 ## 2 Samuel 23:33
 
-Sama, un Hararita;  
+Sama, un hararita;  
  Ahiam, hijo de Sarar de Arar,
 
 ## 2 Samuel 23:34
 
-Elifelet, hijo de Ahasbai, un Maacatita;  
+Elifelet, hijo de Ahasbai, un maacatita;  
  Eliam, hijo de Ahitofel de Gilo,
 
 ## 2 Samuel 23:35
 
-Hezro, un Carmelita;  
- Paarai, un Arbitita;
+Hezro, un carmelita;  
+ Paarai, un arbitita;
 
 ## 2 Samuel 23:36
 
 Igal, hijo de Natán, de Zobá;  
- Baní, un Gadita,
+ Baní, un gadita,
 
 ## 2 Samuel 23:37
 
 Zelec, un amonita;  
- Naharai, un Beerotita, escudero de Joab, hijo de Sarvia,
+ Naharai, un beerotita, escudero de Joab, hijo de Sarvia,
 
 ## 2 Samuel 23:38
 
-Ira, un Itrita;  
- Gareb, otro Itrita,
+Ira, un itrita;  
+ Gareb, otro itrita,
 
 ## 2 Samuel 23:39
 
-Uriah, un hitita;  
+Urías, un hitita;  
  treinta y siete en total.

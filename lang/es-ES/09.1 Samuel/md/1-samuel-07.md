@@ -10,7 +10,7 @@ El arca permaneció en Quiriat-jearim mucho tiempo, veinte años en total. Enton
 
 ## 1 Samuel 7:3
 
-Samuel dijo a todo el pueblo de Israel: “Si realmente se vuelven al Señor con todo su corazón, entonces quiten de entre ustedes los dioses extranjeros y las Astartes. Comprométanse con el Señor y sírvanle solo a Él, y Él los librará de la mano de los filisteos”.
+Samuel dijo a todo el pueblo de Israel: “Si realmente os volvéis al Señor con todo vuestro corazón, quitad de entre vosotros los dioses extranjeros y las Astartes. Entregaos al Señor y servidle solo a Él, y Él os librará de la mano de los filisteos”.
 
 ## 1 Samuel 7:4
 
@@ -20,7 +20,7 @@ Así que los israelitas quitaron los Baales y las Astartes y sirvieron solo al S
 
 ## 1 Samuel 7:5
 
-Entonces Samuel dijo: “Reúnan a todo Israel en Mizpa, y yo oraré al Señor por ustedes”.
+Entonces Samuel dijo: “Reunid a todo Israel en Mizpa, y yo oraré al Señor por vosotros”.
 
 ## 1 Samuel 7:6
 

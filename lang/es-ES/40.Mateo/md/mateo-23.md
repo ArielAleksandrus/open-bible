@@ -10,7 +10,7 @@ diciendo: “Los escribas y los fariseos se han sentado en la cátedra de Moisé
 
 ## Mateo 23:3
 
-Por lo tanto, hagan y observen todo lo que les digan, pero no sigan su ejemplo, porque ellos no practican lo que predican.
+Por lo tanto, haced y observad todo lo que os digan, pero no sigáis su ejemplo, porque ellos no practican lo que predican.
 
 ## Mateo 23:4
 
@@ -30,29 +30,29 @@ disfrutan de los saludos en las plazas y de ser llamados ‘Rabí’ por los dem
 
 ## Mateo 23:8
 
-Pero ustedes no deben ser llamados ‘Rabí’, porque tienen un solo Maestro, y todos ustedes son hermanos.
+Pero vosotros no debéis ser llamados ‘Rabí’, porque tenéis un solo Maestro, y todos vosotros sois hermanos.
 
 ## Mateo 23:9
 
-Y no llamen a nadie en la tierra ‘padre’, porque tienen un solo Padre, que está en el cielo.
+Y no llaméis a nadie en la tierra ‘padre’, porque tenéis un solo Padre, que está en el cielo.
 
 ## Mateo 23:10
 
-Ni deben ser llamados líderes, porque tienen un solo Líder, el Cristo.
+Ni debéis ser llamados líderes, porque tenéis un solo Líder, el Cristo.
 
 ## Mateo 23:11
 
-El que es mayor entre ustedes será su servidor.
+El que es mayor entre vosotros será vuestro servidor.
 
 ## Mateo 23:12
 
-Porque el que se exalta será humillado, y el que se humilla será exaltado.
+Porque el que se pone por encima de los demás será humillado, y el que se hace pequeño será exaltado.
 
 ---
 
 ## Mateo 23:13
 
-“¡Ay de ustedes, escribas y fariseos, hipócritas! Cierran la puerta del reino de los cielos en la cara de la gente. Ustedes no entran, ni dejan entrar a los que están entrando.
+“¡Ay de vosotros, escribas y fariseos, hipócritas! Cerráis la puerta del reino de los cielos en la cara de la gente. Vosotros no entráis, ni dejáis entrar a los que están entrando.
 
 ## Mateo 23:14
 
@@ -60,11 +60,11 @@ Porque el que se exalta será humillado, y el que se humilla será exaltado.
 
 ## Mateo 23:15
 
-“¡Ay de ustedes, escribas y fariseos, hipócritas! Recorren tierra y mar para hacer un solo converso, y cuando lo logran, lo hacen dos veces más hijo del infierno que ustedes.
+“¡Ay de vosotros, escribas y fariseos, hipócritas! Recorréis tierra y mar para hacer un solo converso, y cuando lo lográis, lo hacéis dos veces más hijo del infierno que vosotros.
 
 ## Mateo 23:16
 
-“¡Ay de ustedes, guías ciegos! Dicen: ‘Si alguien jura por el templo, no significa nada; pero si alguien jura por el oro del templo, está obligado por ese juramento.’
+“¡Ay de vosotros, guías ciegos! Decís: ‘Si alguien jura por el templo, no significa nada; pero si alguien jura por el oro del templo, está obligado por ese juramento.’
 
 ## Mateo 23:17
 
@@ -72,7 +72,7 @@ Porque el que se exalta será humillado, y el que se humilla será exaltado.
 
 ## Mateo 23:18
 
-Y dicen: ‘Si alguien jura por el altar, no significa nada; pero si alguien jura por la ofrenda que está sobre él, está obligado por ese juramento.’
+Y decís: ‘Si alguien jura por el altar, no significa nada; pero si alguien jura por la ofrenda que está sobre él, está obligado por ese juramento.’
 
 ## Mateo 23:19
 
@@ -94,15 +94,15 @@ Y cualquiera que jura por el cielo jura por el trono de Dios y por aquel que est
 
 ## Mateo 23:23
 
-“¡Ay de ustedes, escribas y fariseos, hipócritas! Dan el diezmo de sus especias: menta, eneldo y comino. Pero han descuidado los asuntos más importantes de la ley: la justicia, la misericordia y la fidelidad. Debían haber practicado esto, sin descuidar aquello.
+“¡Ay de vosotros, escribas y fariseos, hipócritas! Dais el diezmo de vuestras especias: menta, eneldo y comino. Pero habéis descuidado los asuntos más importantes de la ley: la justicia, la misericordia y la fidelidad. Debíais haber practicado esto, sin descuidar aquello.
 
 ## Mateo 23:24
 
-¡Guías ciegos! Cuelan el mosquito, pero se tragan el camello.
+¡Guías ciegos! Sacáis con el colador un mosquito, pero os tragáis un camello.
 
 ## Mateo 23:25
 
-“¡Ay de ustedes, escribas y fariseos, hipócritas! Limpian el exterior de la copa y del plato, pero por dentro están llenos de codicia y desenfreno.
+“¡Ay de vosotros, escribas y fariseos, hipócritas! Limpiáis el exterior de la copa y del plato, pero por dentro están llenos de codicia y desenfreno.
 
 ## Mateo 23:26
 
@@ -110,53 +110,53 @@ Y cualquiera que jura por el cielo jura por el trono de Dios y por aquel que est
 
 ## Mateo 23:27
 
-“¡Ay de ustedes, escribas y fariseos, hipócritas! Son como sepulcros blanqueados, que por fuera lucen hermosos, pero por dentro están llenos de huesos de muertos y de toda inmundicia.
+“¡Ay de vosotros, escribas y fariseos, hipócritas! Sois como tumbas pintadas de blanco, que por fuera se ven bonitas, pero por dentro están llenas de huesos de muertos y de toda clase de impureza.
 
 ## Mateo 23:28
 
-De la misma manera, por fuera parecen justos ante la gente, pero por dentro están llenos de hipocresía y de iniquidad.
+Así también vosotros: por fuera la gente os ve como justos, pero por dentro estáis llenos de hipocresía y de desprecio por la ley.
 
 ## Mateo 23:29
 
-“¡Ay de ustedes, escribas y fariseos, hipócritas! Construyen los sepulcros de los profetas y adornan las tumbas de los justos.
+“¡Ay de vosotros, escribas y fariseos, hipócritas! Construís los sepulcros de los profetas y adornáis las tumbas de los justos.
 
 ## Mateo 23:30
 
-Y dicen: ‘Si hubiéramos vivido en los días de nuestros antepasados, no habríamos sido cómplices de ellos en derramar la sangre de los profetas.’
+Y decís: ‘Si hubiéramos vivido en los días de nuestros antepasados, no habríamos sido cómplices de ellos en derramar la sangre de los profetas.’
 
 ## Mateo 23:31
 
-Al decir esto, reconocen que son descendientes de los que asesinaron a los profetas.
+Al decir esto, reconocéis que sois descendientes de los que asesinaron a los profetas.
 
 ## Mateo 23:32
 
-¡Así que, completen lo que sus antepasados comenzaron!
+¡Así que, completad lo que vuestros antepasados comenzaron!
 
 ## Mateo 23:33
 
-¡Serpientes! ¡Generación de víboras! ¿Cómo escaparán de ser condenados al infierno?
+¡Serpientes! ¡Camada de víboras! ¿Cómo vais a escapar de la condena al infierno?
 
 ## Mateo 23:34
 
-Por lo tanto, les envío profetas, sabios y escribas. A algunos de ellos matarán y crucificarán; a otros los azotarán en sus sinagogas y los perseguirán de ciudad en ciudad.
+Por lo tanto, os envío profetas, sabios y escribas. A algunos de ellos los mataréis y crucificaréis; a otros los azotaréis en vuestras sinagogas y los perseguiréis de ciudad en ciudad.
 
 ## Mateo 23:35
 
-Y así vendrá sobre ustedes toda la sangre justa que ha sido derramada en la tierra, desde la sangre del justo Abel hasta la sangre de Zacarías hijo de Berequías, a quien mataron entre el templo y el altar.
+Y así vendrá sobre vosotros toda la sangre justa que ha sido derramada en la tierra, desde la sangre del justo Abel hasta la sangre de Zacarías hijo de Berequías, a quien matasteis entre el templo y el altar.
 
 ## Mateo 23:36
 
-En verdad les digo, todo esto caerá sobre esta generación.
+En verdad os digo, todo esto caerá sobre esta generación.
 
 ---
 
 ## Mateo 23:37
 
-“Jerusalén, Jerusalén, tú que matas a los profetas y apedreas a los que te son enviados, ¡cuántas veces he deseado reunir a tus hijos, como la gallina reúne a sus polluelos bajo sus alas, y no quisiste!
+“Jerusalén, Jerusalén, tú que das muerte a los profetas y matas a pedradas a los que se te envían, ¡cuántas veces quise juntar a tus hijos como junta la gallina a sus pollitos bajo las alas, y tú no quisiste!
 
 ## Mateo 23:38
 
-He aquí, vuestra casa os es dejada desierta.
+Mirad, vuestra casa se queda abandonada.
 
 ## Mateo 23:39
 

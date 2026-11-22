@@ -4,45 +4,45 @@
 
 ## Salmo 121:1
 
-> Alzo mis ojos a los montes;  
->  ¿De dónde vendrá mi ayuda?
+> Levanto la vista hacia las montañas:  
+>  ¿de dónde me llegará la ayuda?
 
 ## Salmo 121:2
 
-> Mi ayuda viene del Señor,  
->  Creador del cielo y de la tierra.
+> La ayuda me llega del Señor,  
+>  que creó el cielo y la tierra.
 
 ---
 
 ## Salmo 121:3
 
-> No dejará que tu pie resbale;  
->  El que te cuida no dormirá.
+> Él no dejará que tu pie tropiece;  
+>  el que te cuida no se queda dormido.
 
 ## Salmo 121:4
 
-> He aquí,  
->  el guardián de Israel No dormirá ni dormirá.
+> Fíjate bien:  
+>  el que cuida a Israel nunca se duerme, nunca cabecea.
 
 ---
 
 ## Salmo 121:5
 
-> El Señor es tu guardián;  
->  El Señor proporciona sombra a tu mano derecha.
+> El Señor es quien te cuida;  
+>  el Señor te da sombra a tu lado derecho.
 
 ## Salmo 121:6
 
-> Y el sol no te dañará de día,  
->  Ni la luna de noche.
+> De día el sol no te hará daño,  
+>  ni la luna de noche.
 
 ---
 
 ## Salmo 121:7
 
-> El Señor te protegerá de todo mal;  
->  Él preservará tu alma.
+> El Señor te protegerá de todo peligro;  
+>  Él cuidará tu vida.
 
 ## Salmo 121:8
 
-> El Señor cuidará tu entrada y salida Ahora y para siempre.
+> El Señor estará pendiente de ti cuando salgas y cuando vuelvas, desde ahora y para siempre.

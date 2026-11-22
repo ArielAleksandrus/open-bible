@@ -24,11 +24,11 @@ Podría haberse vendido por más de trescientos denarios y haberse dado el diner
 
 ## Marcos 14:6
 
-Pero Jesús dijo, “Déjenla. ¿Por qué la molestan? Ha hecho una buena obra conmigo.
+Pero Jesús dijo, “Dejadla. ¿Por qué la molestáis? Ha hecho una buena obra conmigo.
 
 ## Marcos 14:7
 
-Siempre tendrán a los pobres con ustedes, y podrán ayudarlos cuando quieran. Pero a mí no siempre me tendrán.
+Siempre tendréis a los pobres con vosotros, y podréis ayudarlos cuando queráis. Pero a mí no siempre me tendréis.
 
 ## Marcos 14:8
 
@@ -36,7 +36,7 @@ Ella ha hecho lo que ha podido; ha ungido mi cuerpo de antemano para mi sepultur
 
 ## Marcos 14:9
 
-Les aseguro que dondequiera que se proclame el evangelio en todo el mundo, también se contará lo que ella ha hecho, en memoria de ella.”
+Os aseguro que dondequiera que se proclame el evangelio en todo el mundo, también se contará lo que ella ha hecho, en memoria de ella.”
 
 ---
 
@@ -52,19 +52,19 @@ Ellos se alegraron al oírlo y prometieron darle dinero. Así que él comenzó a
 
 ## Marcos 14:12
 
-El primer día de la Fiesta de los Panes sin Levadura, cuando se sacrificaba el cordero de la Pascua, los discípulos de Jesús le preguntaron, “¿Dónde quieres que vayamos a preparar para que comas la Pascua?”
+El primer día de la Fiesta de los Panes sin Levadura, cuando se sacrificaba el cordero de la Pascua, los discípulos de Jesús le preguntaron, “¿Dónde quieres que vayamos a preparar la Pascua para que la comas?”
 
 ## Marcos 14:13
 
-Entonces él envió a dos de sus discípulos, diciéndoles, “Vayan a la ciudad, y encontrarán a un hombre llevando un cántaro de agua; síganlo.
+Entonces él envió a dos de sus discípulos, diciéndoles, “Id a la ciudad, y encontraréis a un hombre llevando un cántaro de agua; seguidlo.
 
 ## Marcos 14:14
 
-Digan al dueño de la casa en la que entre, ‘El Maestro pregunta: ¿Dónde está mi sala de huéspedes, donde pueda comer la Pascua con mis discípulos?’
+Decid al dueño de la casa en la que entre, ‘El Maestro pregunta: ¿Dónde está mi sala de huéspedes, donde pueda comer la Pascua con mis discípulos?’
 
 ## Marcos 14:15
 
-Él les mostrará una sala grande en el piso superior, amueblada y lista. Prepárenla para nosotros allí.”
+Él os mostrará una sala grande en el piso superior, amueblada y lista. Preparadla allí para nosotros.”
 
 ## Marcos 14:16
 
@@ -78,7 +78,7 @@ Al anochecer, Jesús llegó con los doce.
 
 ## Marcos 14:18
 
-Mientras estaban sentados a la mesa comiendo, Jesús dijo, “Les aseguro que uno de ustedes me traicionará, uno que está comiendo conmigo.”
+Mientras estaban sentados a la mesa comiendo, Jesús dijo, “Os aseguro que uno de vosotros me traicionará, uno que está comiendo conmigo.”
 
 ## Marcos 14:19
 
@@ -108,7 +108,7 @@ Luego tomó una copa, y después de dar gracias, se la ofreció, y todos bebiero
 
 ## Marcos 14:25
 
-“Les aseguro que no volveré a beber del fruto de la vid hasta aquel día cuando lo beba nuevo en el reino de Dios.”
+“Os aseguro que no volveré a beber del fruto de la vid hasta aquel día cuando lo beba nuevo en el reino de Dios.”
 
 ## Marcos 14:26
 
@@ -118,14 +118,14 @@ Después de cantar un himno, salieron hacia el Monte de los Olivos.
 
 ## Marcos 14:27
 
-“Todos ustedes caerán,” les dijo Jesús, “porque está escrito:
+“Todos vosotros caeréis,” les dijo Jesús, “porque está escrito:
 
 >  ‘Heriré al pastor,
 >  y las ovejas se dispersarán.’
 
 ## Marcos 14:28
 
-Pero después de que haya resucitado, iré delante de ustedes a Galilea.”
+Pero después de que haya resucitado, iré delante de vosotros a Galilea.”
 
 ## Marcos 14:29
 
@@ -143,7 +143,7 @@ Pero Pedro insistió enfáticamente, “Aunque tenga que morir contigo, jamás t
 
 ## Marcos 14:32
 
-Llegaron a un lugar llamado Getsemaní, y Jesús dijo a sus discípulos, “Siéntense aquí mientras yo oro.”
+Llegaron a un lugar llamado Getsemaní, y Jesús dijo a sus discípulos, “Sentaos aquí mientras yo oro.”
 
 ## Marcos 14:33
 
@@ -151,7 +151,7 @@ Tomó consigo a Pedro, a Santiago y a Juan, y comenzó a sentirse profundamente 
 
 ## Marcos 14:34
 
-“Mi alma está muy triste, hasta el punto de la muerte,” les dijo. “Quédense aquí y velen.”
+“Siento en el alma una tristeza tan grande que me lleva al borde de la muerte,” les dijo. “Quedaos aquí y permaneced despiertos.”
 
 ## Marcos 14:35
 
@@ -167,7 +167,7 @@ Luego regresó a sus discípulos y los encontró durmiendo. “Simón,” le dij
 
 ## Marcos 14:38
 
-Velen y oren para que no caigan en tentación. El espíritu está dispuesto, pero el cuerpo es débil.”
+Velad y orad para que no caigáis en tentación. El espíritu está dispuesto, pero el cuerpo es débil.”
 
 ## Marcos 14:39
 
@@ -179,11 +179,11 @@ Cuando volvió, los encontró otra vez dormidos, porque sus ojos estaban pesados
 
 ## Marcos 14:41
 
-Volviendo por tercera vez, les dijo, “¿Todavía están durmiendo y descansando? ¡Basta! Ha llegado la hora. Miren, el Hijo del Hombre es entregado en manos de pecadores.
+Volviendo por tercera vez, les dijo, “¿Todavía estáis durmiendo y descansando? ¡Basta! Ha llegado la hora. Mirad, el Hijo del Hombre es entregado en manos de pecadores.
 
 ## Marcos 14:42
 
-¡Levántense! ¡Vamos! ¡Aquí viene mi traidor!”
+¡Levantaos! ¡Vamos! ¡Aquí viene mi traidor!”
 
 ---
 
@@ -193,7 +193,7 @@ Mientras él aún hablaba, apareció Judas, uno de los Doce. Con él venía una 
 
 ## Marcos 14:44
 
-El traidor había acordado una señal con ellos: “Al que yo bese, ese es; arréstenlo y llévenlo bajo custodia.”
+El traidor había acordado una señal con ellos: “Al que yo bese, ese es; arrestadlo y llevadlo bajo custodia.”
 
 ## Marcos 14:45
 
@@ -209,11 +209,11 @@ Entonces uno de los que estaban allí sacó su espada y golpeó al siervo del su
 
 ## Marcos 14:48
 
-“¿Acaso soy un bandido,” dijo Jesús, “para que hayan venido con espadas y palos a arrestarme?
+“¿Acaso soy un bandido,” dijo Jesús, “para que hayáis venido con espadas y palos a arrestarme?
 
 ## Marcos 14:49
 
-Todos los días estaba con ustedes, enseñando en los patios del templo, y no me arrestaron. Pero así se deben cumplir las Escrituras.”
+Todos los días estaba con vosotros, enseñando en los patios del templo, y no me arrestasteis. Pero así se deben cumplir las Escrituras.”
 
 ## Marcos 14:50
 
@@ -271,7 +271,7 @@ Pero Jesús permaneció en silencio y no respondió. De nuevo el sumo sacerdote 
 
 ## Marcos 14:62
 
-“Yo soy,” dijo Jesús. “Y verán al Hijo del Hombre sentado a la derecha del Poderoso y viniendo en las nubes del cielo.”
+“Yo soy,” dijo Jesús. “Y veréis al Hijo del Hombre sentado a la derecha del Poderoso y viniendo en las nubes del cielo.”
 
 ## Marcos 14:63
 
@@ -279,7 +279,7 @@ Ante esto, el sumo sacerdote rasgó sus vestiduras. “¿Para qué necesitamos m
 
 ## Marcos 14:64
 
-“Han oído la blasfemia. ¿Cuál es su decisión?” Todos lo condenaron como merecedor de muerte.
+“Habéis oído la blasfemia. ¿Cuál es vuestra decisión?” Todos lo condenaron como merecedor de muerte.
 
 ## Marcos 14:65
 
@@ -309,7 +309,7 @@ De nuevo Pedro lo negó. Poco después, los que estaban allí le dijeron, “Seg
 
 ## Marcos 14:71
 
-Él comenzó a maldecir y a jurar, “No conozco a este hombre del que hablan.”
+Él comenzó a maldecir y a jurar, “No conozco a este hombre del que habláis.”
 
 ## Marcos 14:72
 

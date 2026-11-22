@@ -2,7 +2,7 @@
 
 ## Job 26:1
 
-Job respondió,
+Job respondió:
 
 ## Job 26:2
 
@@ -62,7 +62,7 @@ Job respondió,
 ## Job 26:13
 
 > Con Su aliento, los cielos se aclaran;
->  Su mano atravesó al veloz serpiente.
+>  Su mano atravesó a la serpiente veloz.
 
 ---
 

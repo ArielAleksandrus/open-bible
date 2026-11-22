@@ -1,7 +1,7 @@
 # Éxodo Capítulo 34
 
 ## Éxodo 34:1
-El Señor instruyó a Moisés: “Labrad dos tablas de piedra como las anteriores, y escribiré en ellas las palabras que estaban en las tablas originales, que tú rompiste.
+El Señor instruyó a Moisés: “Labra dos tablas de piedra como las anteriores, y escribiré en ellas las palabras que estaban en las tablas originales, que tú rompiste.
 
 ## Éxodo 34:2
 Prepárate para la mañana, y sube al monte Sinaí para presentarte ante Mí en la cima del monte.
@@ -19,7 +19,7 @@ El Señor descendió en la nube y se quedó allí con él, e invocó el nombre d
 El Señor pasó delante de él y proclamó: “El Señor, el Señor Dios, compasivo y clemente, lento para la ira, y rico en amor constante y verdad,
 
 ## Éxodo 34:7
-manteniendo el amor a miles, perdonando la iniquidad, la transgresión y el pecado. Sin embargo, no dejará sin castigo al culpable, visitando la iniquidad de los padres sobre los hijos y nietos hasta la tercera y cuarta generación.”
+que mantiene su amor por miles, que perdona la maldad, la rebeldía y el pecado. Pero no deja sin castigo al culpable: pide cuentas por la maldad de los padres a sus hijos y a sus nietos, hasta la tercera y la cuarta generación.”
 
 ## Éxodo 34:8
 Moisés inmediatamente se inclinó hasta el suelo en reverencia.
@@ -34,7 +34,7 @@ El Señor respondió: “Estoy estableciendo un pacto. Ante todo tu pueblo, real
 Observa lo que te mando hoy. Expulsaré de delante de ti a los amorreos, cananeos, hititas, ferezeos, heveos y jebuseos.
 
 ## Éxodo 34:12
-Cuida de no hacer un pacto con los habitantes de la tierra que vas a entrar, no sea que se convierta en una trampa entre vosotros.
+Cuida de no hacer un pacto con los habitantes de la tierra en la que vas a entrar, no sea que se convierta en una trampa entre vosotros.
 
 ## Éxodo 34:13
 En su lugar, demolerás sus altares, romperás sus piedras sagradas y cortarás sus postes de Asera.
@@ -67,7 +67,7 @@ Trabajarás durante seis días, pero en el séptimo día descansarás; incluso d
 Celebra la Fiesta de las Semanas con los primeros frutos de la cosecha de trigo, y la Fiesta de la Recolección al final del año.
 
 ## Éxodo 34:23
-Tres veces al año, todos tus varones deben presentarse ante el Señor Soberano, el Dios de Israel.
+Tres veces al año, todos tus varones deben presentarse ante el Señor Dios, el Dios de Israel.
 
 ## Éxodo 34:24
 Expulsaré naciones de delante de ti y expandiré tus fronteras, y nadie codiciará tu tierra cuando subas tres veces al año para presentarte ante el Señor tu Dios.
@@ -76,7 +76,7 @@ Expulsaré naciones de delante de ti y expandiré tus fronteras, y nadie codicia
 No ofrezcas la sangre de Mi sacrificio con nada leudado, ni debe dejarse el sacrificio de la Fiesta de la Pascua hasta la mañana.
 
 ## Éxodo 34:26
-Lleva lo mejor de los primeros frutos de tu suelo a la casa del Señor tu Dios. No cocines un cabrito en la leche de su madre.
+Lleva lo mejor de los primeros frutos de tu suelo a la casa del Señor tu Dios. No cocines un cabrito en la leche de su madre.”
 
 ## Éxodo 34:27
 El Señor dijo a Moisés: “Escribe estas palabras, porque conforme a estas palabras he hecho un pacto contigo y con Israel.”

@@ -76,7 +76,7 @@ Ahora tú, levántate, regresa a tu casa.
 ## 1 Reyes 14:13
 
 Y todo Israel lo llorará y lo enterrará,  
- porque él solo de la familia de Jeroboam llegará a la tumba,  
+ porque solo él, de la familia de Jeroboam llegará a la tumba,  
  porque en él se encontró algo bueno hacia el Señor, el Dios de Israel,  
  en la casa de Jeroboam.
 

@@ -10,19 +10,19 @@ Y el mensaje del Señor me fue dado:
 “Hijo de hombre, estos hombres han puesto ídolos en sus corazones y han colocado un obstáculo de maldad ante sus rostros. ¿Debería permitirles consultarme en absoluto?
 
 ## Ezequiel 14:4
-Por lo tanto, háblales y diles: ‘Esto es lo que dice el Señor Dios: Cuando cualquiera de la casa de Israel pone ídolos en su corazón y coloca un obstáculo de maldad ante su rostro, y luego viene al profeta, yo, el Señor, les responderé de acuerdo con su idolatría.
+Por lo tanto, háblales y diles: ‘Esto es lo que dice el Señor Dios: Cuando cualquiera de la casa de Israel pone ídolos en su corazón y coloca un obstáculo de maldad ante su rostro, y luego viene al profeta, yo, el Señor, le responderé de acuerdo con su idolatría.
 
 ## Ezequiel 14:5
-Haré esto para reclamar los corazones de la casa de Israel, que todos se han apartado de mí por sus ídolos.’
+Haré esto para reclamar los corazones de la casa de Israel, pues todos se han apartado de mí por sus ídolos.’
 
 ## Ezequiel 14:6
 “Por lo tanto, di a la casa de Israel: ‘Esto es lo que dice el Señor Dios: ¡Arrepentíos y apartaos de vuestros ídolos, y renunciad a todas vuestras prácticas detestables!
 
 ## Ezequiel 14:7
-Cuando cualquiera de los israelitas o cualquier extranjero que resida en Israel se separa de mí, pone ídolos en su corazón, y coloca un obstáculo de maldad ante su rostro, y luego viene a un profeta para consultarme, yo, el Señor, les responderé yo mismo.
+Cuando cualquiera de los israelitas o cualquier extranjero que resida en Israel se separa de mí, pone ídolos en su corazón, y coloca un obstáculo de maldad ante su rostro, y luego viene a un profeta para consultarme, yo, el Señor, le responderé yo mismo.
 
 ## Ezequiel 14:8
-Pondré mi rostro contra esa persona y la convertiré en un signo y un proverbio, y la eliminaré de mi pueblo. Entonces sabréis que yo soy el Señor.
+Pondré mi rostro contra esa persona y la convertiré en una señal y un proverbio, y la eliminaré de mi pueblo. Entonces sabréis que yo soy el Señor.
 
 ## Ezequiel 14:9
 Y si el profeta es seducido para hablar una palabra, soy yo, el Señor, quien ha seducido a ese profeta, y extenderé mi mano contra él y lo eliminaré de entre mi pueblo Israel.
@@ -64,7 +64,7 @@ tan cierto como que vivo, declara el Señor Dios, aunque Noé, Daniel y Job estu
 Porque esto es lo que dice el Señor Dios: ¡Cuánto peor será cuando envíe mis cuatro severos juicios contra Jerusalén —espada, hambre, bestias salvajes y plaga— para eliminar la vida humana y animal!
 
 ## Ezequiel 14:22
-Sin embargo, habrá algunos sobrevivientes —hijos e hijas que serán sacados. Vendrán a vosotros, y cuando veáis su conducta y acciones, os sentiréis consolados respecto al desastre que he traído sobre Jerusalén— cada desastre que he traído sobre ella.
+Sin embargo, habrá algunos sobrevivientes, hijos e hijas que serán sacados. Vendrán a vosotros, y cuando veáis su conducta y acciones, os sentiréis consolados respecto al desastre que he traído sobre Jerusalén, por todo el desastre que he traído sobre ella.
 
 ## Ezequiel 14:23
 Os sentiréis consolados cuando veáis su conducta y acciones, porque sabréis que no he hecho nada en ella sin causa, declara el Señor Dios.”

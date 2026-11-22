@@ -2,46 +2,46 @@
 
 ## 1 Pedro 5:1
 
-Por lo tanto, apelo a los ancianos entre vosotros, como compañero anciano y testigo de los sufrimientos de Cristo, y también como uno que comparte la gloria que ha de ser revelada:
+Por eso, a los ancianos que hay entre vosotros les ruego yo, que también soy anciano como ellos, testigo de los sufrimientos de Cristo y alguien que también tendrá parte en la gloria que se va a manifestar:
 
 ## 1 Pedro 5:2
 
-cuidar del rebaño de Dios que está a vuestro cargo, proporcionando supervisión de buena gana, de acuerdo con la voluntad de Dios; y no por ganancia deshonesta, sino con entusiasmo;
+cuidad del rebaño de Dios que tenéis a vuestro cargo, vigilándolo de buena gana, como Dios quiere; no por ganar dinero de forma deshonesta, sino con entusiasmo;
 
 ## 1 Pedro 5:3
 
-no enseñoreándoos sobre los que os han sido confiados, sino siendo ejemplos para el rebaño.
+no como quien manda sobre los que se le han confiado, sino siendo un ejemplo para el rebaño.
 
 ## 1 Pedro 5:4
 
-Y cuando se revele el Príncipe de los pastores, recibiréis la corona de gloria que no se marchita.
+Y cuando aparezca el Pastor principal, recibiréis la corona de gloria que nunca se marchita.
 
 ## 1 Pedro 5:5
 
-Vosotros, los jóvenes, igualmente, someteos a los ancianos; y todos vosotros, revestíos de humildad unos hacia otros,
+Igualmente, vosotros, los jóvenes, aceptad la autoridad de los ancianos; y todos, revestíos de humildad en el trato de unos con otros,
 
->  porque “Dios se opone a los orgullosos,  
->  Pero da gracia a los humildes.”
+>  porque “Dios se pone en contra de los orgullosos,  
+>  pero a los humildes les da su gracia.”
 
 ## 1 Pedro 5:6
 
-Humillaos, pues, bajo la poderosa mano de Dios, para que Él os exalte a su debido tiempo,
+Humillaos, pues, bajo la mano poderosa de Dios, para que Él os levante en el momento oportuno,
 
 ## 1 Pedro 5:7
 
-echando toda vuestra ansiedad sobre Él, porque Él cuida de vosotros.
+y dejad en sus manos todas vuestras preocupaciones, porque Él se interesa por vosotros.
 
 ## 1 Pedro 5:8
 
-Sed sobrios y vigilantes. Vuestro adversario, el diablo, ronda como león rugiente, buscando a quien devorar.
+Estad atentos y vigilad. Vuestro enemigo, el diablo, anda dando vueltas como un león que ruge, buscando a quién devorar.
 
 ## 1 Pedro 5:9
 
-Resistidle, firmes en la fe, sabiendo que vuestros hermanos y hermanas en todo el mundo están sufriendo los mismos padecimientos.
+Hacedle frente, manteniéndoos firmes en la fe, sabiendo que vuestros hermanos y hermanas en todo el mundo están pasando por los mismos sufrimientos.
 
 ## 1 Pedro 5:10
 
-Después de que hayáis sufrido por un poco de tiempo, el Dios de toda gracia, que os llamó a su gloria eterna en Cristo, Él mismo os restaurará, confirmará, fortalecerá y establecerá.
+Y después de que hayáis sufrido un poco de tiempo, el Dios de toda gracia, que os llamó a su gloria eterna en Cristo, os restaurará Él mismo, os afianzará, os dará fuerzas y os pondrá sobre una base firme.
 
 ## 1 Pedro 5:11
 
@@ -49,7 +49,7 @@ A Él sea todo el poder, por toda la eternidad. Amén.
 
 ## 1 Pedro 5:12
 
-Por medio de Silvano, nuestro fiel hermano (como lo considero), os he escrito brevemente, para animaros y testificar que esta es la verdadera gracia de Dios. ¡Manteneos firmes en ella!
+Os he escrito brevemente por medio de Silvano, a quien considero un hermano fiel, para animaros y aseguraros que esta es la verdadera gracia de Dios. ¡Manteneos firmes en ella!
 
 ## 1 Pedro 5:13
 

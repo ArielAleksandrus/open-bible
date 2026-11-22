@@ -1,67 +1,67 @@
 # Apocalipsis Capítulo 3
 
 ## Apocalipsis 3:1
-“Escribe al ángel de la iglesia en Sardis: Estas son las palabras del que posee los siete espíritus de Dios y las siete estrellas. Conozco tus obras; tienes fama de estar vivo, pero estás muerto.
+“Escribe al ángel de la iglesia de Sardis: Esto dice el que tiene los siete espíritus de Dios y las siete estrellas. Sé todo lo que haces; tienes fama de estar vivo, pero estás muerto.
 
 ## Apocalipsis 3:2
-Sé vigilante y fortalece lo que queda, que está a punto de morir, porque no he hallado tus obras completas delante de mi Dios.
+¡Despierta y refuerza lo que te queda, que está a punto de morir! Porque he visto que lo que haces no está completo a los ojos de mi Dios.
 
 ## Apocalipsis 3:3
-Recuerda, pues, lo que has recibido y oído; consérvalo firmemente, y arrepiéntete. Si no te mantienes alerta, vendré como un ladrón, y no sabrás a qué hora vendré a ti.
+Así que acuérdate de lo que has recibido y oído; obedécelo y arrepiéntete. Si no te mantienes despierto, llegaré como un ladrón, y no sabrás a qué hora voy a venir.
 
 ## Apocalipsis 3:4
-Sin embargo, tienes unas pocas personas en Sardis que no han manchado sus vestiduras. Ellos caminarán conmigo, vestidos de blanco, porque son dignos.
+Sin embargo, tienes en Sardis a unas pocas personas que no han manchado su ropa. Ellas andarán conmigo vestidas de blanco, porque se lo merecen.
 
 ## Apocalipsis 3:5
-El que salga vencedor será vestido con vestiduras blancas como ellos, y no borraré su nombre del libro de la vida, sino que reconoceré su nombre delante de mi Padre y de sus ángeles.
+Al que venza lo vestiré de blanco como a ellos, y no borraré su nombre del libro de la vida, sino que lo reconoceré delante de mi Padre y de sus ángeles.
 
 ## Apocalipsis 3:6
-El que tenga oído, que oiga lo que el Espíritu dice a las iglesias.
+El que tenga oídos, que escuche lo que el Espíritu dice a las iglesias.
 
 ## Apocalipsis 3:7
-“Escribe al ángel de la iglesia en Filadelfia: Estas son las palabras del que es santo y verdadero, que tiene la llave de David. Lo que él abre, nadie puede cerrar, y lo que él cierra, nadie puede abrir.
+“Escribe al ángel de la iglesia de Filadelfia: Esto dice el que es santo y verdadero, el que tiene la llave de David. Lo que él abre, nadie lo puede cerrar, y lo que él cierra, nadie lo puede abrir.
 
 ## Apocalipsis 3:8
-Conozco tus obras. Mira, he puesto delante de ti una puerta abierta que nadie puede cerrar. Tienes poca fuerza, pero has guardado mi palabra y no has negado mi nombre.
+Sé todo lo que haces. Mira, he dejado delante de ti una puerta abierta que nadie puede cerrar. Tienes pocas fuerzas, pero has obedecido mi palabra y no has renegado de mi nombre.
 
 ## Apocalipsis 3:9
-Haré que aquellos que pertenecen a la sinagoga de Satanás, que dicen ser judíos pero no lo son, y son mentirosos, vengan y se postren a tus pies y reconozcan que te he amado.
+A los de la sinagoga de Satanás, que dicen ser judíos, pero no lo son, sino que mienten, los haré venir a postrarse a tus pies, y reconocerán que yo te he amado.
 
 ## Apocalipsis 3:10
-Porque has guardado mi mandato de perseverar, también te guardaré de la hora de prueba que está a punto de venir sobre todo el mundo para poner a prueba a los habitantes de la tierra.
+Como has obedecido mi mandato de ser constante, yo también te protegeré de la hora de prueba que va a venir sobre el mundo entero para poner a prueba a los que viven en la tierra.
 
 ## Apocalipsis 3:11
-Vengo pronto. Aférrate a lo que tienes, para que nadie tome tu corona.
+Vengo pronto. Agárrate bien a lo que tienes, para que nadie te quite tu corona.
 
 ## Apocalipsis 3:12
-Al que salga vencedor lo haré columna en el templo de mi Dios, y nunca lo dejará. Escribiré sobre él el nombre de mi Dios, y el nombre de la ciudad de mi Dios, la nueva Jerusalén, que desciende del cielo de parte de mi Dios; y también escribiré sobre él mi nuevo nombre.
+Al que venza lo haré columna del templo de mi Dios, y nunca más saldrá de allí. Escribiré sobre él el nombre de mi Dios y el nombre de la ciudad de mi Dios, la nueva Jerusalén, que baja del cielo, de parte de mi Dios; y también escribiré sobre él mi nombre nuevo.
 
 ## Apocalipsis 3:13
-El que tenga oído, que oiga lo que el Espíritu dice a las iglesias.
+El que tenga oídos, que escuche lo que el Espíritu dice a las iglesias.
 
 ## Apocalipsis 3:14
-“Escribe al ángel de la iglesia en Laodicea: Estas son las palabras del Amén, el testigo fiel y verdadero, el origen de la creación de Dios.
+“Escribe al ángel de la iglesia de Laodicea: Esto dice el Amén, el testigo fiel y verdadero, el origen de todo lo que Dios ha creado.
 
 ## Apocalipsis 3:15
-Conozco tus obras, que no eres ni frío ni caliente. ¡Ojalá fueras frío o caliente!
+Sé todo lo que haces, y sé que no eres ni frío ni caliente. ¡Ojalá fueras frío o caliente!
 
 ## Apocalipsis 3:16
 Por lo tanto, puesto que eres tibio, ni caliente ni frío, estoy a punto de vomitarte de mi boca.
 
 ## Apocalipsis 3:17
-Dices: ‘Soy rico; he adquirido riquezas y no necesito nada’. Pero no te das cuenta de que eres desventurado, miserable, pobre, ciego y desnudo.
+Tú dices: ‘Soy rico, me ha ido muy bien y no me hace falta nada’. Pero no te das cuenta de que eres un desdichado, digno de lástima, pobre, ciego y desnudo.
 
 ## Apocalipsis 3:18
-Te aconsejo que compres de mí oro refinado en el fuego, para que te hagas rico; y vestiduras blancas para vestirte, para que cubras tu vergonzosa desnudez; y colirio para ungir tus ojos, para que puedas ver.
+Te aconsejo que me compres oro refinado en el fuego, para que seas rico de verdad; y ropa blanca para vestirte y que no se vea la vergüenza de tu desnudez; y colirio para ponerte en los ojos, para que puedas ver.
 
 ## Apocalipsis 3:19
-A los que amo, los reprendo y disciplino. Por lo tanto, sé ferviente y arrepiéntete.
+A los que amo, los reprendo y los corrijo. Por eso, toma esto en serio y arrepiéntete.
 
 ## Apocalipsis 3:20
-¡Aquí estoy! Estoy a la puerta y llamo. Si alguien oye mi voz y abre la puerta, entraré y cenaré con esa persona, y ella conmigo.
+¡Mira! Estoy a la puerta y llamo. Si alguien oye mi voz y abre la puerta, entraré en su casa y cenaremos juntos, él conmigo y yo con él.
 
 ## Apocalipsis 3:21
-Al que salga vencedor, le concederé el derecho de sentarse conmigo en mi trono, así como yo salí vencedor y me senté con mi Padre en su trono.
+Al que venza le daré el derecho de sentarse conmigo en mi trono, así como yo vencí y me senté con mi Padre en su trono.
 
 ## Apocalipsis 3:22
-El que tenga oído, que oiga lo que el Espíritu dice a las iglesias.”
+El que tenga oídos, que escuche lo que el Espíritu dice a las iglesias.”

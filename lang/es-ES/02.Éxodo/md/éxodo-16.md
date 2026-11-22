@@ -14,7 +14,7 @@ Los israelitas les dijeron: “¡Ojalá hubiéramos muerto por la mano del Seño
 
 ## Éxodo 16:4
 
-Entonces el Señor dijo a Moisés: “He aquí, haré llover pan del cielo para vosotros. El pueblo deberá salir cada día y recoger lo suficiente para ese día. Al hacerlo, los pondré a prueba para ver si seguirán Mis instrucciones.
+Entonces el Señor dijo a Moisés: “Voy a hacer que os llueva pan del cielo. El pueblo deberá salir cada día y recoger lo suficiente para ese día. Al hacerlo, los pondré a prueba para ver si seguirán Mis instrucciones.
 
 ## Éxodo 16:5
 
@@ -38,7 +38,7 @@ Entonces Moisés instruyó a Aarón: “Di a toda la asamblea de los israelitas:
 
 ## Éxodo 16:10
 
-Mientras Aarón hablaba a toda la congregación de los israelitas, se volvieron hacia el desierto, y he aquí, la gloria del Señor apareció en la nube.
+Mientras Aarón hablaba a toda la congregación de los israelitas, ellos se volvieron hacia el desierto, y de pronto la gloria del Señor apareció en la nube.
 
 ## Éxodo 16:11
 
@@ -54,7 +54,7 @@ Aquella tarde, llegaron codornices y cubrieron el campamento, y por la mañana h
 
 ## Éxodo 16:14
 
-Cuando el rocío se evaporó, he aquí, en la superficie del desierto había una sustancia fina, como escamas, tan fina como la escarcha sobre la tierra.
+Cuando el rocío se evaporó, sobre la superficie del desierto apareció una sustancia fina, como escamas, tan fina como la escarcha sobre la tierra.
 
 ## Éxodo 16:15
 

@@ -34,11 +34,11 @@ Si el Señor se agrada de nosotros, nos llevará a esta tierra, una tierra que f
 
 ## Números 14:9
 
-Solo no se rebelen contra el Señor. No teman a la gente de la tierra, porque serán presa nuestra. Su protección se ha ido, y el Señor está con nosotros. No les teman.”
+Solo no os rebeléis contra el Señor. No temáis a la gente de la tierra, porque serán presa nuestra. Su protección se ha ido, y el Señor está con nosotros. No les temáis.”
 
 ## Números 14:10
 
-Pero toda la asamblea discutió apedrearlos. Entonces la gloria del Señor apareció en la tienda de reunión a todos los israelitas.
+Pero toda la asamblea habló de apedrearlos. Entonces la gloria del Señor apareció en la tienda de reunión a todos los israelitas.
 
 ## Números 14:11
 
@@ -98,7 +98,7 @@ Pero porque mi siervo Caleb tiene un espíritu diferente y me sigue de todo cora
 
 ## Números 14:25
 
-Dado que los amalecitas y los cananeos viven en los valles, den la vuelta mañana y diríjanse hacia el desierto por el camino del Mar Rojo.”
+Dado que los amalecitas y los cananeos viven en los valles, volveos mañana y partid hacia el desierto por el camino del Mar Rojo.”
 
 ## Números 14:26
 
@@ -110,31 +110,31 @@ El Señor habló a Moisés y Aarón, diciendo:
 
 ## Números 14:28
 
-Así que diles: ‘Tan cierto como que yo vivo, declara el Señor, haré con ustedes tal como han hablado:
+Así que diles: ‘Tan cierto como que yo vivo, declara el Señor, haré con vosotros tal como habéis hablado:
 
 ## Números 14:29
 
-En este desierto caerán sus cuerpos, todos los que tienen veinte años o más que fueron contados en el censo y que se han quejado contra mí.
+En este desierto caerán vuestros cuerpos, todos los que tenéis veinte años o más, que fuisteis contados en el censo y que os habéis quejado contra mí.
 
 ## Números 14:30
 
-Ninguno de ustedes entrará en la tierra que juré darles como hogar, excepto Caleb, hijo de Jefone, y Josué, hijo de Nun.
+Ninguno de vosotros entrará en la tierra que juré daros como hogar, excepto Caleb, hijo de Jefone, y Josué, hijo de Nun.
 
 ## Números 14:31
 
-En cuanto a sus hijos, de quienes dijeron que serían tomados como botín, los llevaré a disfrutar de la tierra que ustedes han rechazado.
+En cuanto a vuestros hijos, de quienes dijisteis que serían tomados como botín, los llevaré a disfrutar de la tierra que vosotros habéis rechazado.
 
 ## Números 14:32
 
-Sin embargo, sus cuerpos encontrarán su fin en este desierto.
+Sin embargo, vuestros cuerpos encontrarán su fin en este desierto.
 
 ## Números 14:33
 
-Sus hijos serán pastores aquí durante cuarenta años, sufriendo las consecuencias de su infidelidad, hasta que el último de sus cuerpos yaga en el desierto.
+Vuestros hijos serán pastores aquí durante cuarenta años, sufriendo las consecuencias de vuestra infidelidad, hasta que el último de vuestros cuerpos yazca en el desierto.
 
 ## Números 14:34
 
-Durante cuarenta años, un año por cada uno de los cuarenta días que exploraron la tierra, cargarán con las consecuencias de sus pecados y sabrán lo que es tenerme en contra.’
+Durante cuarenta años, un año por cada uno de los cuarenta días que explorasteis la tierra, cargaréis con las consecuencias de vuestros pecados y sabréis lo que es tenerme en contra.’
 
 ## Números 14:35
 
@@ -162,15 +162,15 @@ A la mañana siguiente se dispusieron a subir al punto más alto de la región m
 
 ## Números 14:41
 
-Pero Moisés dijo: “¿Por qué están yendo contra la orden del Señor? ¡Esto no tendrá éxito!
+Pero Moisés dijo: “¿Por qué vais contra la orden del Señor? ¡Esto no tendrá éxito!
 
 ## Números 14:42
 
-No procedan, porque el Señor no está con ustedes. Se enfrentarán a la derrota a manos de sus enemigos,
+No sigáis adelante, porque el Señor no está con vosotros. Seréis derrotados a manos de vuestros enemigos,
 
 ## Números 14:43
 
-porque los amalecitas y los cananeos los confrontarán allí. Ya que se han apartado del Señor, Él no los apoyará, y caerán a espada.”
+porque los amalecitas y los cananeos os harán frente allí. Ya que os habéis apartado del Señor, Él no os apoyará, y caeréis a espada.”
 
 ## Números 14:44
 

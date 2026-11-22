@@ -86,7 +86,7 @@ Pero cuando los judíos se opusieron, me vi obligado a apelar al César, no porq
 
 ## Hechos 28:20
 
-Por esta razón, he pedido verlos y hablar con ustedes, porque es por la esperanza de Israel que estoy atado con esta cadena.”
+Por esta razón, he pedido veros y hablar con vosotros, porque es por la esperanza de Israel que estoy atado con esta cadena.”
 
 ## Hechos 28:21
 
@@ -108,15 +108,15 @@ Algunos quedaron convencidos por sus palabras, pero otros se negaron a creer.
 
 ## Hechos 28:25
 
-Estaban en desacuerdo entre ellos y comenzaron a irse después de que Pablo hizo esta última observación: “El Espíritu Santo habló acertadamente por medio del profeta Isaías a sus antepasados,
+Estaban en desacuerdo entre ellos y comenzaron a irse después de que Pablo hizo esta última observación: “El Espíritu Santo habló acertadamente por medio del profeta Isaías a vuestros antepasados,
 
 ## Hechos 28:26
 
 diciendo,
 
 >  ‘Ve a este pueblo y diles,
->  “Siempre estarán oyendo pero nunca entendiendo;
->  siempre estarán viendo pero nunca percibiendo.”
+>  “Siempre estaréis oyendo pero nunca entendiendo;
+>  siempre estaréis viendo pero nunca percibiendo.”
 
 ## Hechos 28:27
 
@@ -129,7 +129,7 @@ diciendo,
 
 ## Hechos 28:28
 
-“Por lo tanto, entiendan que esta salvación de Dios ha sido enviada a los gentiles, y ellos escucharán.”
+“Por lo tanto, sabed que esta salvación de Dios ha sido enviada a los gentiles, y ellos escucharán.”
 
 ---
 

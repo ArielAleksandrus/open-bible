@@ -3,23 +3,23 @@
 ## Miqueas 2:1
 
 > ¡Ay de los que planean maldad,  
->  Que traman el mal mientras están en cama!  
+>  que traman el mal mientras están en cama!  
 >  Cuando llega el amanecer, lo llevan a cabo,  
->  Porque está en su poder hacerlo.
+>  porque está en su poder hacerlo.
 
 ## Miqueas 2:2
 
 > Codician campos y luego los toman,  
->  Y casas, y se las llevan;  
+>  y casas, y se las llevan;  
 >  Oprimen a un hombre y su casa,  
->  A una persona y su herencia.
+>  a una persona y su herencia.
 
 ## Miqueas 2:3
 
 > Por lo tanto, esto es lo que dice el Señor:  
 >  “He aquí, estoy planeando contra esta familia un desastre Del cual no podréis quitaros el yugo;  
->  Y no caminaréis con altivez,  
->  Porque será un tiempo malo.
+>  y no caminaréis con altivez,  
+>  porque será un tiempo malo.
 
 ## Miqueas 2:4
 
@@ -52,7 +52,7 @@
 
 > Últimamente,  
 >  Mi pueblo se ha levantado como enemigos —Despojáis la túnica de las vestiduras De los transeúntes desprevenidos,  
->  De los que regresan de la guerra—.
+>  de los que regresan de la guerra—.
 
 ## Miqueas 2:9
 
@@ -62,8 +62,8 @@
 ## Miqueas 2:10
 
 > Levantaos y marchaos,  
->  Porque este no es un lugar de descanso Debido a la impureza que trae destrucción,  
->  Una destrucción dolorosa.
+>  porque este no es un lugar de descanso Debido a la impureza que trae destrucción,  
+>  una destrucción dolorosa.
 
 ## Miqueas 2:11
 
@@ -73,14 +73,14 @@
 
 ## Miqueas 2:12
 
-> Ciertamente reuniré a todos vosotros, Jacob,  
+> Ciertamente os reuniré a todos, Jacob,  
 >  Ciertamente reuniré al remanente de Israel.  
 >  Los pondré juntos como ovejas en el redil;  
->  Como un rebaño en medio de su pastizal Estarán ruidosos con gente.
+>  como un rebaño en medio de su pastizal Estarán ruidosos con gente.
 
 ## Miqueas 2:13
 
 > El que abre el camino sube delante de ellos;  
 >  Rompen, pasan por la puerta, y salen por ella.  
 >  Así su rey avanza delante de ellos,  
->  Y el Señor los guía.”
+>  y el Señor los guía.

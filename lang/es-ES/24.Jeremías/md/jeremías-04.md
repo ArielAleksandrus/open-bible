@@ -7,28 +7,28 @@
 y si juras, ‘Tan cierto como que vive el Señor,’ en verdad, en justicia y en rectitud, entonces las naciones se bendecirán por Él y en Él se gloriarán.”
 
 ## Jeremías 4:3
-Porque esto es lo que dice el Señor a la gente de Judá y a Jerusalén: “Rompan su tierra no labrada y no siembren entre espinos.
+Porque esto es lo que dice el Señor a la gente de Judá y a Jerusalén: “Romped vuestro barbecho y no sembréis entre espinos.
 
 ## Jeremías 4:4
-Circuncídense para el Señor y circunciden sus corazones, gente de Judá y habitantes de Jerusalén, o Mi ira se encenderá como fuego y arderá sin que nadie la apague, por la maldad de sus obras.”
+Circuncidaos para el Señor y circuncidad vuestros corazones, gente de Judá y habitantes de Jerusalén, o Mi ira se encenderá como fuego y arderá sin que nadie la apague, por la maldad de vuestras obras.”
 
 ## Jeremías 4:5
-“Proclamen en Judá y anuncien en Jerusalén, y digan: ‘¡Toquen la trompeta por toda la tierra!’ Clamen en voz alta y digan: ‘¡Reúnanse y huyamos a las ciudades fortificadas!’
+“Proclamad en Judá y anunciad en Jerusalén, y decid: ‘¡Tocad la trompeta por toda la tierra!’ Clamad en voz alta y decid: ‘¡Reuníos y huyamos a las ciudades fortificadas!’
 
 ## Jeremías 4:6
-¡Levanten una señal hacia Sión! ¡Huyan para ponerse a salvo sin demora! Porque estoy trayendo desastre desde el norte, incluso gran destrucción.”
+¡Levantad una señal hacia Sion! ¡Huid para poneros a salvo sin demora! Porque estoy trayendo desastre desde el norte, incluso gran destrucción.”
 
 ## Jeremías 4:7
 Un león ha salido de su guarida; un destructor de naciones se ha puesto en marcha. Ha dejado su lugar para devastar tu tierra. Tus ciudades serán arruinadas sin habitante.
 
 ## Jeremías 4:8
-Por esto, vístanse de cilicio, lamenten y giman, porque la feroz ira del Señor no se ha apartado de nosotros.
+Por esto, vestíos de cilicio, lamentad y gemid, porque la feroz ira del Señor no se ha apartado de nosotros.
 
 ## Jeremías 4:9
 “En ese día,” declara el Señor, “el corazón del rey y los corazones de los oficiales fallarán; los sacerdotes estarán horrorizados, y los profetas se quedarán atónitos.”
 
 ## Jeremías 4:10
-Entonces dije, “¡Ay, Soberano Señor! Seguramente has engañado por completo a este pueblo y a Jerusalén diciendo, ‘Tendréis paz,’ mientras la espada está en nuestras gargantas.”
+Entonces dije, “¡Ay, Señor Dios! Ciertamente has engañado por completo a este pueblo y a Jerusalén diciendo, ‘Tendréis paz,’ mientras la espada está en nuestras gargantas.”
 
 ## Jeremías 4:11
 En ese momento, se dirá a este pueblo y a Jerusalén, “Un viento abrasador de las alturas desérticas sopla hacia Mi pueblo, no para aventar o limpiar;
@@ -46,7 +46,7 @@ Jerusalén, lava la maldad de tu corazón para que puedas ser salvada. ¿Hasta c
 Una voz anuncia desde Dan, proclamando desastre desde las colinas de Efraín.
 
 ## Jeremías 4:16
-“Informen esto a las naciones, proclamen acerca de Jerusalén: ‘Un ejército sitiador viene de una tierra lejana, levantando un grito de guerra contra las ciudades de Judá.
+“Informad esto a las naciones, proclamad acerca de Jerusalén: ‘Un ejército sitiador viene de una tierra lejana, levantando un grito de guerra contra las ciudades de Judá.
 
 ## Jeremías 4:17
 La rodean como centinelas de un campo, porque se ha rebelado contra Mí,’ declara el Señor.
@@ -61,7 +61,7 @@ La rodean como centinelas de un campo, porque se ha rebelado contra Mí,’ decl
 Se proclama desastre tras desastre; toda la tierra está devastada. En un instante mis tiendas son destruidas, mis refugios en un momento.
 
 ## Jeremías 4:21
-¿Cuánto tiempo debo ver el estandarte de batalla y oír el sonido de la trompeta?
+¿Hasta cuándo he de ver el estandarte de batalla y oír el sonido de la trompeta?
 
 ## Jeremías 4:22
 “Porque Mi pueblo es necio; no Me conocen. Son hijos insensatos; no tienen entendimiento. Son hábiles para hacer el mal; no saben hacer el bien.”
@@ -91,4 +91,4 @@ Al sonido de jinetes y arqueros cada ciudad huye; se van a los matorrales y sube
 Y tú, devastada, ¿qué harás? Aunque te vistas de escarlata, aunque te adornes con joyas de oro, aunque resaltes tus ojos con maquillaje, en vano te haces hermosa. Tus amantes te desprecian; buscan tu vida.
 
 ## Jeremías 4:31
-Oigo un grito como de mujer en trabajo de parto, un gemido como de una que da a luz por primera vez —el grito de la Hija de Sión jadeando, extendiendo sus manos y diciendo, “¡Ay! Estoy desfalleciendo; mi vida está entregada a asesinos—.”
+Oigo un grito como de mujer en trabajo de parto, un gemido como de una que da a luz por primera vez: el grito de la Hija de Sion, que jadea, extiende sus manos y dice: “¡Ay! Estoy desfalleciendo; mi vida está entregada a asesinos.”

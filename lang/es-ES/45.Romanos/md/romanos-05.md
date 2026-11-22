@@ -18,7 +18,7 @@ y la perseverancia lleva a un carácter probado; y el carácter probado fomenta 
 
 ## Romanos 5:5
 
-y la esperanza no nos avergüenza, porque el amor de Dios ha sido derramado en nuestros corazones por el Espíritu Santo que nos ha sido dado.
+y esa esperanza no nos deja en vergüenza, porque Dios ha derramado su amor en nuestros corazones por medio del Espíritu Santo que nos dio.
 
 ## Romanos 5:6
 
@@ -38,7 +38,7 @@ Mucho más entonces, ahora que hemos sido justificados por su sangre, seremos sa
 
 ## Romanos 5:10
 
-Porque si, cuando éramos enemigos, fuimos reconciliados con Dios por la muerte de su Hijo, mucho más, habiendo sido reconciliados, seremos salvos por su vida.
+Porque si, cuando todavía éramos enemigos, Dios nos reconcilió consigo por la muerte de su Hijo, con mucha más razón, ya reconciliados, seremos salvados por su vida.
 
 ## Romanos 5:11
 
@@ -46,7 +46,7 @@ Y no solo esto, sino que también nos regocijamos en Dios por medio de nuestro S
 
 ## Romanos 5:12
 
-Por tanto, así como por un solo hombre el pecado entró en el mundo, y por el pecado la muerte, y de esta manera la muerte se extendió a todas las personas, porque todos pecaron—
+Por eso, así como el pecado entró en el mundo a través de un solo hombre, y con el pecado vino la muerte, y así la muerte alcanzó a todas las personas, porque todos pecaron.
 
 ## Romanos 5:13
 

@@ -3,7 +3,7 @@
 ## 2 Reyes 13:1
 
 En el año veintitrés de Joás, hijo de Ocozías, rey de Judá,  
- Jehú, hijo de Jehú, comenzó a reinar sobre Israel en Samaria, y su reinado duró diecisiete años.
+ Joacaz, hijo de Jehú, comenzó a reinar sobre Israel en Samaria, y su reinado duró diecisiete años.
 
 ## 2 Reyes 13:2
 
@@ -18,7 +18,7 @@ Entonces se encendió la ira del Señor contra Israel,
 
 ## 2 Reyes 13:4
 
-Entonces Jehú pidió el favor del Señor,  
+Entonces Joacaz pidió el favor del Señor,  
  y el Señor lo escuchó;  
  porque vio la opresión de Israel, cómo el rey de Aram los oprimía.
 
@@ -36,19 +36,19 @@ Sin embargo, no se apartaron de los pecados de la casa de Jeroboam,
 
 ## 2 Reyes 13:7
 
-Porque no dejó a Jehú más del ejército que cincuenta jinetes, diez carros y diez mil soldados de a pie,  
+Porque no dejó a Joacaz más del ejército que cincuenta jinetes, diez carros y diez mil soldados de a pie,  
  porque el rey de Aram los había destruido y los había hecho como el polvo en la trilla.
 
 ---
 
 ## 2 Reyes 13:8
 
-En cuanto a los otros hechos de Jehú, incluyendo todos sus logros y su poder,  
+En cuanto a los otros hechos de Joacaz, incluyendo todos sus logros y su poder,  
  ¿no están registrados en el Libro de las Crónicas de los Reyes de Israel?
 
 ## 2 Reyes 13:9
 
-Y Jehú se acostó con sus padres, y lo enterraron en Samaria;  
+Y Joacaz se acostó con sus padres, y lo enterraron en Samaria;  
  y su hijo Joás reinó en su lugar.
 
 ---
@@ -56,7 +56,7 @@ Y Jehú se acostó con sus padres, y lo enterraron en Samaria;
 ## 2 Reyes 13:10
 
 En el año treinta y siete de Joás, rey de Judá,  
- Joás, hijo de Jehú, comenzó a reinar sobre Israel en Samaria, y reinó dieciséis años.
+ Joás, hijo de Joacaz, comenzó a reinar sobre Israel en Samaria, y reinó dieciséis años.
 
 ## 2 Reyes 13:11
 
@@ -78,9 +78,9 @@ Así que Joás se acostó con sus padres, y Jeroboam se sentó en su trono;
 
 ## 2 Reyes 13:14
 
-Cuando Eliseo se enfermó de la enfermedad de la cual iba a morir,  
- Joás, el rey de Israel, bajó a él y lloró sobre él y dijo:  
- “¡Padre mío, padre mío, los carros de Israel y su gente de a caballo!”
+Cuando Eliseo cayó enfermo de la enfermedad de la que iba a morir,  
+ Joás, rey de Israel, bajó a verlo, lloró sobre él y dijo:  
+ “¡Padre mío, padre mío, los carros de Israel y sus jinetes!”
 
 ## 2 Reyes 13:15
 
@@ -113,7 +113,7 @@ Luego dijo, “Toma las flechas,” y él las tomó.
 
 Entonces el hombre de Dios se enojó con él y dijo,  
  “Deberías haber golpeado cinco o seis veces;  
- entonces habrías golpeado a Aram hasta que lo hubieras terminado.  
+ entonces habrías golpeado a Aram hasta acabar con él.  
  Pero ahora golpearás a Aram solo tres veces.”
 
 ---
@@ -133,7 +133,7 @@ Mientras estaban enterrando a un hombre, notaron una banda de merodeadores;
 
 ## 2 Reyes 13:22
 
-Durante el tiempo de Jehú, Hazael, rey de Aram, había oprimido a Israel.
+Durante el tiempo de Joacaz, Hazael, rey de Aram, había oprimido a Israel.
 
 ## 2 Reyes 13:23
 
@@ -147,6 +147,6 @@ A la muerte de Hazael, rey de Aram, su hijo Ben-adad lo sucedió como rey.
 
 ## 2 Reyes 13:25
 
-Entonces Joás, hijo de Jehú, recuperó de la mano de Ben-adad, hijo de Hazael,  
- las ciudades que había tomado en guerra de la mano de su padre Jehú.  
+Entonces Joás, hijo de Joacaz, recuperó de la mano de Ben-adad, hijo de Hazael,  
+ las ciudades que había tomado en guerra de la mano de su padre Joacaz.  
  Joás lo derrotó tres veces y recuperó las ciudades de Israel.

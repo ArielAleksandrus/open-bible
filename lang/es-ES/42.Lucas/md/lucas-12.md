@@ -2,7 +2,7 @@
 
 ## Lucas 12:1
 
-En estas circunstancias, como se había reunido una multitud de miles, de modo que se pisaban unos a otros, comenzó a hablar primero a sus discípulos, diciendo: “Cuídense de la levadura de los fariseos, que es la hipocresía.
+En estas circunstancias, como se había reunido una multitud de miles, de modo que se pisaban unos a otros, comenzó a hablar primero a sus discípulos, diciendo: “Guardaos de la levadura de los fariseos, que es la hipocresía.
 
 ## Lucas 12:2
 
@@ -10,17 +10,17 @@ Porque no hay nada oculto que no será revelado, ni escondido que no será conoc
 
 ## Lucas 12:3
 
-Por lo tanto, lo que han dicho en la oscuridad se oirá en la luz, y lo que han susurrado en las habitaciones interiores se proclamará desde las azoteas.
+Por lo tanto, lo que habéis dicho en la oscuridad se oirá en la luz, y lo que habéis susurrado en las habitaciones interiores se proclamará desde las azoteas.
 
 ---
 
 ## Lucas 12:4
 
-“Les digo a ustedes, mis amigos, no teman a los que matan el cuerpo y después de eso no pueden hacer más.
+“Os digo a vosotros, mis amigos, no temáis a los que matan el cuerpo y después de eso no pueden hacer más.
 
 ## Lucas 12:5
 
-Pero les mostraré a quién deben temer: teman a aquel que, después de haber matado, tiene el poder de arrojar al infierno; sí, les digo, teman a él.
+Pero os mostraré a quién debéis temer: temed a aquel que, después de haber matado, tiene el poder de arrojar al infierno; sí, os digo, temed a ese.
 
 ## Lucas 12:6
 
@@ -28,13 +28,13 @@ Pero les mostraré a quién deben temer: teman a aquel que, después de haber ma
 
 ## Lucas 12:7
 
-De hecho, hasta los cabellos de su cabeza están todos contados. No teman; ustedes valen más que muchos gorriones.
+De hecho, hasta los cabellos de vuestra cabeza están todos contados. No temáis; vosotros valéis más que muchos gorriones.
 
 ---
 
 ## Lucas 12:8
 
-“Les digo, todo el que me reconozca ante los demás, el Hijo del Hombre también lo reconocerá ante los ángeles de Dios.
+“Os digo, todo el que me reconozca ante los demás, el Hijo del Hombre también lo reconocerá ante los ángeles de Dios.
 
 ## Lucas 12:9
 
@@ -46,11 +46,11 @@ Y cualquiera que hable contra el Hijo del Hombre será perdonado, pero el que ha
 
 ## Lucas 12:11
 
-Cuando los lleven ante las sinagogas, los gobernantes y las autoridades, no se preocupen por cómo defenderse o qué decir,
+Cuando os lleven ante las sinagogas, los gobernantes y las autoridades, no os preocupéis por cómo defenderos o qué decir,
 
 ## Lucas 12:12
 
-porque el Espíritu Santo les enseñará en ese momento lo que deben decir.”
+porque el Espíritu Santo os enseñará en ese momento lo que debéis decir.”
 
 ---
 
@@ -60,11 +60,11 @@ Una persona de la multitud le dijo: “Maestro, dile a mi hermano que comparta l
 
 ## Lucas 12:14
 
-Pero él respondió: “Hombre, ¿quién me ha puesto por juez o árbitro sobre ustedes?”
+Pero él respondió: “Hombre, ¿quién me ha puesto por juez o árbitro sobre vosotros?”
 
 ## Lucas 12:15
 
-Luego les dijo: “Cuídense y estén alerta contra toda forma de avaricia; porque la vida no consiste en acumular una abundancia de posesiones.”
+Luego les dijo: “Guardaos y estad alerta contra toda forma de avaricia; porque la vida no consiste en acumular una abundancia de posesiones.”
 
 ## Lucas 12:16
 
@@ -94,7 +94,7 @@ Así será para cualquiera que acumule tesoros para sí mismo pero no sea rico p
 
 ## Lucas 12:22
 
-Luego dijo a sus discípulos: “Por esta razón les digo, no se preocupen por su vida, qué comerán; ni por su cuerpo, qué vestirán.
+Luego dijo a sus discípulos: “Por esta razón os digo, no os preocupéis por vuestra vida, qué comeréis; ni por vuestro cuerpo, qué vestiréis.
 
 ## Lucas 12:23
 
@@ -102,53 +102,53 @@ Porque la vida no es solo comida, ni el cuerpo solo es ropa.
 
 ## Lucas 12:24
 
-Consideren los cuervos: no siembran ni cosechan, no tienen almacén ni granero, sin embargo, Dios los alimenta. ¡Cuánto más valen ustedes que las aves!
+Considerad los cuervos: no siembran ni cosechan, no tienen almacén ni granero, sin embargo, Dios los alimenta. ¡Cuánto más valéis vosotros que las aves!
 
 ## Lucas 12:25
 
-¿Quién de ustedes, por preocuparse, puede añadir una sola hora al curso de su vida?
+¿Quién de vosotros, por preocuparse, puede añadir una sola hora al curso de su vida?
 
 ## Lucas 12:26
 
-Si no pueden hacer ni siquiera una cosa muy pequeña, ¿por qué se preocupan por lo demás?
+Si no podéis hacer ni siquiera una cosa muy pequeña, ¿por qué os preocupáis por lo demás?
 
 ## Lucas 12:27
 
-Consideren los lirios, cómo crecen: no trabajan ni hilan; sin embargo, les digo que ni siquiera Salomón en toda su gloria se vistió como uno de estos.
+Considerad los lirios, cómo crecen: no trabajan ni hilan; sin embargo, os digo que ni siquiera Salomón en toda su gloria se vistió como uno de estos.
 
 ## Lucas 12:28
 
-Si así viste Dios la hierba del campo, que hoy está aquí y mañana es echada al fuego, ¡cuánto más los vestirá a ustedes, hombres de poca fe!
+Si así viste Dios la hierba del campo, que hoy está aquí y mañana es echada al fuego, ¡cuánto más os vestirá a vosotros, hombres de poca fe!
 
 ## Lucas 12:29
 
-Y no pongan su corazón en lo que comerán o beberán; no sigan preocupándose.
+Y no pongáis vuestro corazón en lo que comeréis o beberéis; no sigáis preocupándoos.
 
 ## Lucas 12:30
 
-Porque todas estas cosas las buscan con ansiedad las naciones del mundo; pero su Padre sabe que las necesitan.
+Porque todas estas cosas las buscan con ansiedad las naciones del mundo; pero vuestro Padre sabe que las necesitáis.
 
 ## Lucas 12:31
 
-En cambio, busquen su reino, y estas cosas les serán añadidas.
+En cambio, poned vuestro empeño en su reino, y también se os darán estas cosas.
 
 ## Lucas 12:32
 
-No teman, pequeño rebaño, porque su Padre se complace en darles el reino.
+No temáis, pequeño rebaño, porque vuestro Padre se complace en daros el reino.
 
 ## Lucas 12:33
 
-Vendan sus posesiones y den a los pobres; provean bolsas para ustedes que no se desgasten, un tesoro en el cielo que nunca fallará, donde ningún ladrón se acerca y ninguna polilla destruye.
+Vended vuestras posesiones y dad a los pobres; haceos bolsas que no se desgasten, un tesoro en el cielo que nunca fallará, donde ningún ladrón se acerca y ninguna polilla destruye.
 
 ## Lucas 12:34
 
-Porque donde esté su tesoro, allí estará también su corazón.
+Porque donde esté vuestro tesoro, allí estará también vuestro corazón.
 
 ---
 
 ## Lucas 12:35
 
-“Estén listos para el servicio y mantengan sus lámparas encendidas,
+“Estad listos para el servicio y mantened vuestras lámparas encendidas,
 
 ## Lucas 12:36
 
@@ -156,7 +156,7 @@ como siervos que esperan a que su señor regrese de una boda, para que cuando ll
 
 ## Lucas 12:37
 
-Bienaventurados aquellos siervos a quienes el señor encuentre vigilando cuando llegue. En verdad les digo, él se vestirá para servir, los hará reclinarse a la mesa, y vendrá y los servirá.
+Bienaventurados aquellos siervos a quienes el señor encuentre vigilando cuando llegue. En verdad os digo, él se vestirá para servir, los hará reclinarse a la mesa, y vendrá y los servirá.
 
 ## Lucas 12:38
 
@@ -164,11 +164,11 @@ Será bueno para aquellos siervos cuyo señor los encuentre listos, ya sea que v
 
 ## Lucas 12:39
 
-Pero estén seguros de esto: si el dueño de la casa hubiera sabido a qué hora venía el ladrón, no habría permitido que su casa fuera robada.
+Pero estad seguros de esto: si el dueño de la casa hubiera sabido a qué hora venía el ladrón, no habría permitido que su casa fuera robada.
 
 ## Lucas 12:40
 
-Ustedes también deben estar preparados, porque el Hijo del Hombre vendrá a una hora inesperada.”
+Vosotros también debéis estar preparados, porque el Hijo del Hombre vendrá a una hora inesperada.”
 
 ---
 
@@ -186,7 +186,7 @@ Bienaventurado aquel siervo a quien su señor encuentre haciendo así cuando reg
 
 ## Lucas 12:44
 
-En verdad les digo, lo pondrá a cargo de todas sus posesiones.
+En verdad os digo, lo pondrá a cargo de todas sus posesiones.
 
 ## Lucas 12:45
 
@@ -216,7 +216,7 @@ Pero tengo un bautismo que pasar, ¡y cómo me angustio hasta que se cumpla!
 
 ## Lucas 12:51
 
-¿Piensan que he venido a traer paz a la tierra? No, les digo, sino división.
+¿Pensáis que he venido a traer paz a la tierra? No, os digo, sino división.
 
 ## Lucas 12:52
 
@@ -230,26 +230,26 @@ Estarán enfrentados: padre contra hijo y hijo contra padre, madre contra hija y
 
 ## Lucas 12:54
 
-También dijo a las multitudes: “Cuando ven una nube que se levanta en el oeste, inmediatamente dicen, ‘Viene un aguacero,’ y así sucede.
+También dijo a las multitudes: “Cuando veis una nube que se levanta en el oeste, inmediatamente decís, ‘Viene un aguacero,’ y así sucede.
 
 ## Lucas 12:55
 
-Y cuando sienten que sopla un viento del sur, dicen, ‘Hará calor,’ y así es.
+Y cuando sentís que sopla un viento del sur, decís, ‘Hará calor,’ y así es.
 
 ## Lucas 12:56
 
-¡Hipócritas! Saben interpretar la apariencia de la tierra y del cielo, pero ¿cómo es que no saben interpretar este tiempo presente?
+¡Hipócritas! Sabéis interpretar la apariencia de la tierra y del cielo, pero ¿cómo es que no sabéis interpretar este tiempo presente?
 
 ---
 
 ## Lucas 12:57
 
-“¿Y por qué no juzgan por ustedes mismos lo que es correcto?
+“¿Y por qué no juzgáis por vosotros mismos lo que es correcto?
 
 ## Lucas 12:58
 
-Cuando vayan con su adversario al magistrado, hagan un esfuerzo por reconciliarse en el camino, para que no los arrastre ante el juez, y el juez los entregue al oficial, y el oficial los arroje a la cárcel.
+Cuando vayáis con vuestro adversario al magistrado, haced un esfuerzo por reconciliaros en el camino, para que no os arrastre ante el juez, y el juez os entregue al oficial, y el oficial os arroje a la cárcel.
 
 ## Lucas 12:59
 
-Les digo, no saldrán de allí hasta que hayan pagado el último centavo.”
+Os digo, no saldréis de allí hasta que hayáis pagado el último centavo.”

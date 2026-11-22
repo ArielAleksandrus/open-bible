@@ -10,7 +10,7 @@ Me hizo pasar alrededor de ellos, y observé una gran cantidad de huesos sobre l
 
 ## Ezequiel 37:3
 
-Me preguntó: “Hijo de hombre, ¿pueden vivir estos huesos?” Yo respondí: “Señor Soberano, solo Tú lo sabes.”
+Me preguntó: “Hijo de hombre, ¿pueden vivir estos huesos?” Yo respondí: “Señor Dios, solo Tú lo sabes.”
 
 ## Ezequiel 37:4
 
@@ -18,7 +18,7 @@ Entonces me instruyó: “Profetiza sobre estos huesos y diles, ‘Huesos secos,
 
 ## Ezequiel 37:5
 
-Esto es lo que dice el Señor Soberano a estos huesos: ‘Haré que entre aliento en vosotros, y viviréis.
+Esto es lo que dice el Señor Dios a estos huesos: ‘Haré que entre aliento en vosotros, y viviréis.
 
 ## Ezequiel 37:6
 
@@ -34,7 +34,7 @@ Observé que se formaron tendones y carne sobre ellos, y los cubrió la piel; si
 
 ## Ezequiel 37:9
 
-Entonces Él me dijo: “Profetiza al aliento, profetiza, hijo de hombre, y dile, ‘Esto es lo que dice el Señor Soberano: Ven de los cuatro vientos, aliento, y sopla sobre estos muertos, para que vivan.’”
+Entonces Él me dijo: “Profetiza al aliento, profetiza, hijo de hombre, y dile, ‘Esto es lo que dice el Señor Dios: Ven de los cuatro vientos, aliento, y sopla sobre estos muertos, para que vivan.’”
 
 ## Ezequiel 37:10
 
@@ -42,11 +42,11 @@ Así que profeticé como Él me lo ordenó, y entró aliento en ellos; cobraron 
 
 ## Ezequiel 37:11
 
-Entonces Él me dijo: “Hijo de hombre, estos huesos representan toda la casa de Israel. Ellos dicen, ‘Nuestros huesos están secos, nuestra esperanza se ha perdido; estamos completamente cortados.’
+Entonces Él me dijo: “Hijo de hombre, estos huesos son toda la casa de Israel. Ellos dicen, ‘Nuestros huesos están secos, nuestra esperanza se ha perdido; estamos perdidos del todo.’
 
 ## Ezequiel 37:12
 
-Por lo tanto, profetiza y diles: ‘Esto es lo que dice el Señor Soberano: Pueblo mío, voy a abrir vuestros sepulcros y os haré salir de ellos; os devolveré a la tierra de Israel.
+Por lo tanto, profetiza y diles: ‘Esto es lo que dice el Señor Dios: Pueblo mío, voy a abrir vuestros sepulcros y os haré salir de ellos; os devolveré a la tierra de Israel.
 
 ## Ezequiel 37:13
 
@@ -74,15 +74,15 @@ Cuando tu pueblo te pregunte, ‘¿No nos dirás qué quieres decir con esto?’
 
 ## Ezequiel 37:19
 
-diles, ‘Esto es lo que dice el Señor Soberano: Voy a tomar el palo de José, que está en la mano de Efraín, y las tribus de Israel asociadas con él, y lo uniré con el palo de Judá. Haré de ellos un solo palo, y serán uno en Mi mano.’
+diles, ‘Esto es lo que dice el Señor Dios: Voy a tomar el palo de José, que está en la mano de Efraín, y las tribus de Israel asociadas con él, y lo uniré con el palo de Judá. Haré de ellos un solo palo, y serán uno en Mi mano.’
 
 ## Ezequiel 37:20
 
-Sostén los palos sobre los que has escrito ante sus ojos.
+Sostén ante sus ojos los palos en los que has escrito.
 
 ## Ezequiel 37:21
 
-Y diles, ‘Esto es lo que dice el Señor Soberano: Tomaré a los israelitas de entre las naciones adonde han ido, y los reuniré de todos lados y los llevaré de regreso a su propia tierra.
+Y diles, ‘Esto es lo que dice el Señor Dios: Tomaré a los israelitas de entre las naciones adonde han ido, y los reuniré de todos lados y los llevaré de regreso a su propia tierra.
 
 ## Ezequiel 37:22
 

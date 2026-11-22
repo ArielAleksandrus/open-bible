@@ -4,7 +4,7 @@
 He aquí, se acerca un día para el Señor cuando tus posesiones serán saqueadas y divididas en medio de ti.
 
 ## Zacarías 14:2
-Reuniré a todas las naciones contra Jerusalén para la batalla; la ciudad será capturada, las casas saqueadas, y las mujeres violadas. La mitad de la ciudad irá al exilio, pero el resto del pueblo no será removido de la ciudad.
+Reuniré a todas las naciones contra Jerusalén para la batalla; la ciudad será capturada, las casas saqueadas, y las mujeres violadas. La mitad de la ciudad irá al exilio, pero el resto del pueblo no será sacado de la ciudad.
 
 ## Zacarías 14:3
 Entonces el Señor saldrá y peleará contra esas naciones, como pelea en un día de batalla.
@@ -46,10 +46,10 @@ Judá también peleará en Jerusalén, y la riqueza de todas las naciones circun
 Una plaga similar herirá a los caballos, mulas, camellos, asnos, y todos los animales en esos campamentos.
 
 ## Zacarías 14:16
-Entonces los sobrevivientes de todas las naciones que atacaron Jerusalén subirán año tras año a adorar al Rey, el Señor de los Ejércitos, y a celebrar la Fiesta de los Tabernáculos.
+Entonces los sobrevivientes de todas las naciones que atacaron Jerusalén subirán año tras año a adorar al Rey, el Señor de los ejércitos, y a celebrar la Fiesta de los Tabernáculos.
 
 ## Zacarías 14:17
-Si alguna de las familias de la tierra no sube a Jerusalén a adorar al Rey, el Señor de los Ejércitos, no tendrán lluvia.
+Si alguna de las familias de la tierra no sube a Jerusalén a adorar al Rey, el Señor de los ejércitos, no tendrán lluvia.
 
 ## Zacarías 14:18
 Si la familia de Egipto no sube y entra, no recibirán lluvia. Esta será la plaga con la que el Señor herirá a las naciones que no suban a celebrar la Fiesta de los Tabernáculos.
@@ -58,7 +58,7 @@ Si la familia de Egipto no sube y entra, no recibirán lluvia. Esta será la pla
 Este será el castigo de Egipto y el castigo de todas las naciones que no suban a celebrar la Fiesta de los Tabernáculos.
 
 ## Zacarías 14:20
-En ese día, "Santo para el Señor" estará inscrito en los cascabeles de los caballos, y las ollas de cocina en la casa del Señor serán como los tazones sagrados delante del altar.
+En ese día, “Santo para el Señor” estará inscrito en los cascabeles de los caballos, y las ollas de cocina en la casa del Señor serán como los tazones sagrados delante del altar.
 
 ## Zacarías 14:21
-Cada olla en Jerusalén y Judá será santa para el Señor de los Ejércitos, y todos los que vengan a sacrificar tomarán algunas de ellas y cocinarán en ellas. En ese día, ya no habrá cananeo en la casa del Señor de los Ejércitos.
+Cada olla en Jerusalén y Judá será santa para el Señor de los ejércitos, y todos los que vengan a sacrificar tomarán algunas de ellas y cocinarán en ellas. En ese día, ya no habrá cananeo en la casa del Señor de los ejércitos.

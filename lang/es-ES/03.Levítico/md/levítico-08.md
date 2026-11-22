@@ -10,11 +10,11 @@ El Señor habló a Moisés, diciendo:
 
 ## Levítico 8:3
 
-y reúne a toda la congregación a la entrada del tabernáculo de reunión.”
+y reúne a toda la congregación a la entrada de la tienda de reunión.”
 
 ## Levítico 8:4
 
-Moisés hizo tal como el Señor le mandó, y la congregación se reunió a la entrada del tabernáculo de reunión.
+Moisés hizo tal como el Señor le mandó, y la congregación se reunió a la entrada de la tienda de reunión.
 
 ## Levítico 8:5
 
@@ -34,7 +34,7 @@ Colocó el pectoral sobre él y puso el Urim y el Tumim en el pectoral.
 
 ## Levítico 8:9
 
-Puso la mitra sobre la cabeza de Aarón y colocó la lámina de oro, el emblema sagrado, en la parte frontal de la mitra, tal como el Señor había mandado a Moisés.
+Puso el turbante sobre la cabeza de Aarón y colocó la lámina de oro, el emblema sagrado, en la parte frontal del turbante, tal como el Señor había mandado a Moisés.
 
 ## Levítico 8:10
 
@@ -50,7 +50,7 @@ Vertió un poco del aceite de la unción sobre la cabeza de Aarón, ungiéndolo 
 
 ## Levítico 8:13
 
-Moisés luego presentó a los hijos de Aarón, los vistió con túnicas, les ciñó con cintos y les ató las tiaras, tal como el Señor había mandado a Moisés.
+Moisés luego presentó a los hijos de Aarón, los vistió con túnicas, les ciñó con cintos y les ató los gorros, tal como el Señor había mandado a Moisés.
 
 ## Levítico 8:14
 
@@ -70,7 +70,7 @@ Pero el becerro, con su piel, carne y excrementos, lo quemó fuera del campament
 
 ## Levítico 8:18
 
-Luego presentó el carnero para la ofrenda quemada, y Aarón y sus hijos pusieron sus manos sobre su cabeza.
+Luego presentó el carnero para el holocausto, y Aarón y sus hijos pusieron sus manos sobre su cabeza.
 
 ## Levítico 8:19
 
@@ -82,7 +82,7 @@ Dividió el carnero en partes y quemó la cabeza, los trozos y la grasa.
 
 ## Levítico 8:21
 
-Después de lavar las entrañas y las piernas con agua, quemó todo el carnero sobre el altar. Era una ofrenda quemada, un aroma agradable, una ofrenda por fuego al Señor, tal como el Señor había mandado a Moisés.
+Después de lavar las entrañas y las piernas con agua, quemó todo el carnero sobre el altar. Era un holocausto, un aroma agradable, una ofrenda por fuego al Señor, tal como el Señor había mandado a Moisés.
 
 ## Levítico 8:22
 
@@ -110,7 +110,7 @@ Colocó todo esto en las manos de Aarón y sus hijos, y lo meció como ofrenda m
 
 ## Levítico 8:28
 
-Moisés luego los tomó de sus manos y los quemó sobre el altar encima de la ofrenda quemada. Eran una ofrenda de consagración, un aroma agradable, una ofrenda por fuego al Señor.
+Moisés luego los tomó de sus manos y los quemó sobre el altar encima del holocausto. Eran una ofrenda de consagración, un aroma agradable, una ofrenda por fuego al Señor.
 
 ## Levítico 8:29
 
@@ -122,23 +122,23 @@ Moisés tomó un poco del aceite de la unción y un poco de la sangre del altar 
 
 ## Levítico 8:31
 
-Moisés entonces instruyó a Aarón y a sus hijos: “Hiervan la carne a la entrada del tabernáculo de reunión y cómanla allí con el pan de la cesta de las ofrendas de consagración, tal como se me mandó: ‘Aarón y sus hijos la comerán.’
+Moisés entonces instruyó a Aarón y a sus hijos: “Hervid la carne a la entrada de la tienda de reunión y comedla allí con el pan de la cesta de las ofrendas de consagración, tal como se me mandó: ‘Aarón y sus hijos la comerán.’
 
 ## Levítico 8:32
 
-Quemen el resto de la carne y el pan.
+Quemad el resto de la carne y el pan.
 
 ## Levítico 8:33
 
-No salgan de la entrada del tabernáculo de reunión durante siete días, hasta que se complete el período de su consagración, porque su consagración durará siete días.
+No salgáis de la entrada de la tienda de reunión durante siete días, hasta que se complete el período de vuestra consagración, porque vuestra consagración durará siete días.
 
 ## Levítico 8:34
 
-Lo que se ha hecho hoy fue ordenado por el Señor para hacer expiación por ustedes.
+Lo que se ha hecho hoy fue ordenado por el Señor para hacer expiación por vosotros.
 
 ## Levítico 8:35
 
-Deben permanecer a la entrada del tabernáculo de reunión día y noche durante siete días y cumplir su deber ante el Señor, para que no mueran; porque eso es lo que se me ha mandado.”
+Debéis permanecer a la entrada de la tienda de reunión día y noche durante siete días y cumplir vuestro deber ante el Señor, para que no muráis; porque eso es lo que se me ha mandado.”
 
 ## Levítico 8:36
 

@@ -172,7 +172,7 @@ Jesús les dijo, “No sabéis lo que estáis pidiendo. ¿Podéis beber la copa 
 
 ## Marcos 10:40
 
-pero sentarse a mi derecha o a mi izquierda no es para mí concederlo. Esos lugares están reservados para aquellos para quienes han sido preparados.”
+pero sentarse a mi derecha o a mi izquierda no me corresponde concederlo. Esos lugares están reservados para aquellos para quienes han sido preparados.”
 
 ---
 
@@ -194,7 +194,7 @@ y quien quiera ser el primero debe ser el esclavo de todos.
 
 ## Marcos 10:45
 
-Porque incluso el Hijo del Hombre no vino para ser servido, sino para servir y para dar Su vida en rescate por muchos.”
+Porque ni siquiera el Hijo del Hombre vino para que le sirvieran, sino para servir y para entregar Su vida como rescate por muchos.”
 
 ---
 

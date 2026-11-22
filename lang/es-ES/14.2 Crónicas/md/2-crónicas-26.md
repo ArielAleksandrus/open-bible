@@ -56,25 +56,25 @@ Además, Uzías construyó torres en Jerusalén en la Puerta de la Esquina, la P
 
 ## 2 Crónicas 26:10
 
-Construyó torres en el desierto y cavó muchos pozos, porque tenía mucho ganado, tanto en la llanura como en el llano. También tenía agricultores y viñadores en la región montañosa y campos fértiles, porque amaba la tierra.
+Construyó torres en el desierto y cavó muchos pozos, porque tenía mucho ganado, tanto en la Sefelá como en la llanura. También tenía agricultores y viñadores en la región montañosa y campos fértiles, porque amaba la tierra.
 
 ---
 
 ## 2 Crónicas 26:11
 
-Además, Uzías tenía un ejército listo para la batalla, que entraba en combate por divisiones según el número de su registro, tal como estaba registrado por el escriba Jeiel y el oficial Maaseías, bajo la dirección de Hananías, uno de los oficiales del rey.
+Además, Uzías tenía un ejército listo para la batalla, que entraba en combate por divisiones según el número de su registro, tal como estaba registrado por el escriba Jeiel y el oficial Maasías, bajo la dirección de Hananías, uno de los oficiales del rey.
 
 ---
 
 ## 2 Crónicas 26:12
 
-El número total de los líderes de las familias, valientes guerreros, era de 2,600.
+El número total de los líderes de las familias, valientes guerreros, era de 2 600.
 
 ---
 
 ## 2 Crónicas 26:13
 
-Bajo su mando había un formidable ejército de 307,500, que podían entrar en batalla con gran fuerza para ayudar al rey contra los adversarios.
+Bajo su mando había un formidable ejército de 307 500, que podían entrar en batalla con gran fuerza para ayudar al rey contra los adversarios.
 
 ---
 

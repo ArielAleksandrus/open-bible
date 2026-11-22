@@ -4,81 +4,79 @@
 
 ## Salmo 19:1
 
-> Los cielos cuentan la gloria de Dios;  
->  Y el firmamento anuncia la obra de Sus manos.
+> Los cielos hablan de la gloria de Dios;  
+>  la bóveda celeste proclama lo que Sus manos han hecho.
 
 ## Salmo 19:2
 
-> Un día emite palabra al otro día,  
->  Y una noche a la otra declara sabiduría.
+> Cada día trae nuevas palabras,  
+>  y cada noche deja ver el conocimiento.
 
 ## Salmo 19:3
 
-> No hablan, ni usan palabras;  
->  Su voz no se oye.
+> No hablan ni dicen palabras;  
+>  su voz no se escucha.
 
 ## Salmo 19:4
 
-> Por toda la tierra salió su voz,  
->  Y hasta el extremo del mundo sus palabras.  
->  En ellos puso una tienda para el sol,
+> Su mensaje se ha extendido por toda la tierra,  
+>  y sus palabras llegan hasta el fin del mundo.  
+>  En ellos Dios ha puesto una morada para el sol,
 
 ## Salmo 19:5
 
-> Que sale como un esposo de su alcoba;  
->  Se alegra cual atleta para correr su carrera.
+> que es como un novio cuando sale de su habitación;  
+>  disfruta como un corredor fuerte que recorre su camino.
 
 ## Salmo 19:6
 
-> De un extremo de los cielos es su salida,  
->  Y su curso hasta el otro extremo de ellos;  
->  Y nada se esconde de su calor.
+> Sale por un extremo del cielo y da la vuelta hasta el otro extremo;  
+>  nada queda escondido de su calor.
 
 ---
 
 ## Salmo 19:7
 
-> La ley del Señor es perfecta, que restaura el alma;  
->  El testimonio del Señor es seguro, que hace sabio al sencillo.
+> La Ley del Señor no tiene falla, da nueva vida al alma;  
+>  el testimonio del Señor es firme, hace sabio al ingenuo.
 
 ## Salmo 19:8
 
-> Los preceptos del Señor son rectos, que alegran el corazón;  
->  El mandamiento del Señor es puro, que alumbra los ojos.
+> Los preceptos del Señor son justos, llenan de alegría el corazón;  
+>  el mandamiento del Señor es claro, da luz a los ojos.
 
 ## Salmo 19:9
 
-> El temor del Señor es limpio, que permanece para siempre;  
->  Los juicios del Señor son verdaderos, todos ellos justos.
+> La reverencia al Señor es pura, dura para siempre;  
+>  los juicios del Señor son dignos de confianza, todos ellos son justos.
 
 ---
 
 ## Salmo 19:10
 
-> Son más deseables que el oro, sí, que mucho oro fino;  
->  Más dulces también que la miel y que el destilar del panal.
+> Valen más que el oro, más que mucho oro fino;  
+>  son más dulces que la miel, que la miel que gotea del panal.
 
 ## Salmo 19:11
 
-> Además, Tu siervo es advertido por ellos;  
->  En guardarlos hay gran recompensa.
+> Además, ellos iluminan a Tu siervo;  
+>  quien los cumple recibe una gran recompensa.
 
 ## Salmo 19:12
 
-> ¿Quién puede discernir sus propios errores?  
->  Líbrame de los que me son ocultos.
+> ¿Quién puede darse cuenta de sus propios errores?  
+>  Límpiame de las faltas que no veo.
 
 ## Salmo 19:13
 
-> También guarda a Tu siervo de pecados intencionados;  
->  Que no se enseñoreen de mí;  
->  Entonces seré íntegro,  
->  Y estaré libre de gran transgresión.
+> Aparta también a Tu siervo de los pecados cometidos a propósito;  
+>  que no me dominen;  
+>  así no tendré culpa y estaré libre de un gran pecado.
 
 ---
 
 ## Salmo 19:14
 
-> Sean gratos los dichos de mi boca y la meditación de mi corazón Delante de Ti,  
+> Que lo que digo con mi boca y lo que medito en mi corazón te agraden,  
 >  Señor,  
->  roca mía y redentor mío.
+>  mi roca y mi Redentor.

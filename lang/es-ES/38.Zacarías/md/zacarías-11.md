@@ -9,8 +9,8 @@
 
 > Gime, ciprés, porque el cedro ha caído;
 >  ¡los árboles majestuosos están destruidos!
->  Gimen, robles de Basán,
->  porque el denso bosque ha sido derribado.
+>  ¡Gemid, robles de Basán,
+>  porque el denso bosque ha sido derribado!
 
 ## Zacarías 11:3
 

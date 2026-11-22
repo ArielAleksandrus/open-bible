@@ -2,19 +2,19 @@
 
 ## 1 Corintios 10:1
 
-Porque no quiero que ignoréis, hermanos y hermanas, que nuestros padres estuvieron todos bajo la nube y todos pasaron por el mar;
+Hermanos y hermanas, quiero que sepáis que todos nuestros antepasados estuvieron bajo la nube y todos atravesaron el mar;
 
 ## 1 Corintios 10:2
 
-Y todos fueron bautizados en Moisés en la nube y en el mar;
+Todos ellos, en la nube y en el mar, fueron bautizados para unirse a Moisés;
 
 ## 1 Corintios 10:3
 
-Y todos comieron el mismo alimento espiritual,
+Todos comieron el mismo alimento espiritual,
 
 ## 1 Corintios 10:4
 
-Y todos bebieron la misma bebida espiritual, porque bebían de una roca espiritual que los acompañaba; y esa roca era Cristo.
+Y todos bebieron la misma bebida espiritual, porque bebían de una roca espiritual que iba con ellos; y esa roca era Cristo.
 
 ## 1 Corintios 10:5
 
@@ -50,7 +50,7 @@ Por lo tanto, el que piensa que está firme, tenga cuidado de no caer.
 
 ## 1 Corintios 10:13
 
-No os ha sobrevenido ninguna tentación que no sea común al hombre; y Dios es fiel, quien no permitirá que seáis tentados más allá de lo que podéis soportar, sino que con la tentación también proveerá una salida, para que podáis soportarla.
+Las tentaciones que os han llegado son las mismas que sufre cualquier persona; y Dios es fiel y no dejará que seáis tentados más de lo que podéis aguantar, sino que, junto con la tentación, os dará también una salida, para que podáis resistir.
 
 ## 1 Corintios 10:14
 
@@ -66,7 +66,7 @@ Os hablo como a personas sabias; considerad lo que digo.
 
 ## 1 Corintios 10:17
 
-Porque hay un solo pan, nosotros, que somos muchos, somos un solo cuerpo; pues todos participamos del mismo pan.
+Como hay un solo pan, nosotros, aunque somos muchos, formamos un solo cuerpo; porque todos comemos de ese mismo pan.
 
 ## 1 Corintios 10:18
 
@@ -74,15 +74,15 @@ Reflexionad sobre el pueblo de Israel; ¿no son los que comen de los sacrificios
 
 ## 1 Corintios 10:19
 
-¿Qué estoy implicando entonces? ¿Que la comida ofrecida a los ídolos es algo, o que un ídolo es algo?
+¿Qué quiero decir entonces? ¿Que la comida ofrecida a los ídolos es algo, o que un ídolo es algo?
 
 ## 1 Corintios 10:20
 
-No, pero digo que lo que los gentiles sacrifican, lo sacrifican a los demonios y no a Dios; y no quiero que seáis partícipes con los demonios.
+No, lo que digo es que lo que ofrecen los gentiles en sus sacrificios se lo ofrecen a los demonios y no a Dios; y no quiero que tengáis nada en común con los demonios.
 
 ## 1 Corintios 10:21
 
-No podéis compartir el cáliz del Señor y el cáliz de los demonios; no podéis participar de la mesa del Señor y de la mesa de los demonios.
+No podéis beber de la copa del Señor y también de la copa de los demonios; no podéis comer en la mesa del Señor y también en la mesa de los demonios.
 
 ## 1 Corintios 10:22
 

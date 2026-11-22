@@ -33,7 +33,7 @@ Sacó a la gente que estaba en ella,
 
 ## 1 Crónicas 20:4
 
-Ahora bien, sucedió después de esto, que estalló la guerra en Guézer con los filisteos;
+Ahora bien, sucedió después de esto, que estalló la guerra en Gezer con los filisteos;
 
 >  entonces Sibecai el husatita derribó a Sipai, uno de los descendientes de los gigantes,  
 >  y fueron subyugados.

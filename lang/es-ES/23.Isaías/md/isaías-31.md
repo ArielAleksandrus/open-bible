@@ -10,19 +10,19 @@ Sin embargo, Él es sabio y trae calamidad; no retracta Sus palabras. Se levanta
 Los egipcios son humanos y no divinos; sus caballos son carne, no espíritu. Cuando el Señor extienda Su mano, los ayudantes tropezarán, y los ayudados caerán; todos perecerán juntos.
 
 ## Isaías 31:4
-Esto es lo que el Señor me ha dicho: “Como un león o un cachorro de león ruge sobre su presa, y aunque se convoque a un grupo de pastores contra él, no se alarma por sus gritos ni se perturba por su ruido, así descenderá el Señor Todopoderoso para hacer la guerra en el Monte Sión y en su colina.”
+Esto es lo que el Señor me ha dicho: “Como un león o un cachorro de león ruge sobre su presa, y aunque se convoque a un grupo de pastores contra él, no se alarma por sus gritos ni se perturba por su ruido, así descenderá el Señor de los ejércitos para hacer la guerra en el Monte Sion y en su colina.”
 
 ## Isaías 31:5
-Como aves que planean, el Señor Todopoderoso protegerá Jerusalén; Él la escudará y la librará, pasará sobre ella y la rescatará.
+Como aves que planean, el Señor de los ejércitos protegerá Jerusalén; Él la escudará y la librará, pasará sobre ella y la rescatará.
 
 ## Isaías 31:6
-Vuelvan a Él, israelitas, a quienes han desafiado tan gravemente.
+Volveos a Él, israelitas, a quien tan gravemente habéis desafiado.
 
 ## Isaías 31:7
-Porque en ese día, cada uno de ustedes desechará sus ídolos de plata y sus ídolos de oro, que sus manos pecadoras han fabricado.
+Porque en ese día, cada uno de vosotros desechará sus ídolos de plata y sus ídolos de oro, que vuestras manos pecadoras han fabricado.
 
 ## Isaías 31:8
-Asiria caerá por una espada no empuñada por un humano; una espada no de mortales los consumirá. Huirán de la espada, y sus jóvenes se convertirán en trabajadores forzados.
+“Asiria caerá por una espada no empuñada por un humano; una espada no de mortales los consumirá. Huirán de la espada, y sus jóvenes se convertirán en trabajadores forzados.
 
 ## Isaías 31:9
-Su fortaleza colapsará por el pánico, y sus comandantes estarán aterrados al ver el estandarte de batalla,” declara el Señor, cuyo fuego está en Sión y cuyo horno está en Jerusalén.
+Su fortaleza colapsará por el pánico, y sus comandantes estarán aterrados al ver el estandarte de batalla,” declara el Señor, cuyo fuego está en Sion y cuyo horno está en Jerusalén.

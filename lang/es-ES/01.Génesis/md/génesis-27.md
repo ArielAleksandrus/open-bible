@@ -31,7 +31,7 @@ Ve al rebaño y tráeme dos cabritos buenos, para que pueda prepararlos como una
 Luego llévaselo a tu padre para que lo coma, para que te bendiga antes de su muerte.”
 
 ## Génesis 27:11
-Jacob dijo a su madre Rebeca: “Pero mi hermano Esaú es un hombre velludo, y yo tengo la piel suave.”
+Jacob dijo a su madre Rebeca: “Pero mi hermano Esaú es un hombre velludo, y yo tengo la piel suave.
 
 ## Génesis 27:12
 Quizás mi padre me toque, y pareceré un engañador ante él, y traeré sobre mí una maldición en lugar de una bendición.”
@@ -97,7 +97,7 @@ Ahora sucedió que, tan pronto como Isaac terminó de bendecir a Jacob, y Jacob 
 Su padre Isaac le preguntó: “¿Quién eres?” Y él dijo: “Soy tu hijo, tu primogénito, Esaú.”
 
 ## Génesis 27:33
-Entonces Isaac tembló violentamente y dijo: “¿Quién fue entonces el que cazó y me lo trajo? Lo comí todo antes de que vinieras y lo bendije —¡y de hecho será bendecido—!”
+Entonces Isaac tembló violentamente y dijo: “¿Quién fue entonces el que cazó y me lo trajo? Lo comí todo antes de que vinieras y lo bendije, ¡y bendito será!”
 
 ## Génesis 27:34
 Cuando Esaú escuchó las palabras de su padre, gritó con un gran y amargo clamor y dijo a su padre: “¡Bendíceme, a mí también, padre mío!”
@@ -109,7 +109,7 @@ Pero él dijo: “Tu hermano vino con engaño y ha tomado tu bendición.”
 Esaú dijo: “¿No se llama con razón Jacob? Porque me ha traicionado estas dos veces: Me quitó mi primogenitura, y ahora ha tomado mi bendición.” Luego preguntó: “¿No has reservado una bendición para mí?”
 
 ## Génesis 27:37
-Isaac respondió a Esaú: “Mira, lo he hecho tu señor, y he dado a todos sus parientes como siervos a él; y con grano y vino nuevo lo he sostenido. ¿Qué puedo hacer entonces por ti, hijo mío?”
+Isaac respondió a Esaú: “Mira, lo he hecho tu señor, y le he dado por siervos a todos sus parientes; y con grano y vino nuevo lo he sostenido. ¿Qué puedo hacer entonces por ti, hijo mío?”
 
 ## Génesis 27:38
 Esaú dijo a su padre: “¿Tienes solo una bendición, padre mío? ¡Bendíceme, a mí también, padre mío!” Entonces Esaú alzó su voz y lloró.

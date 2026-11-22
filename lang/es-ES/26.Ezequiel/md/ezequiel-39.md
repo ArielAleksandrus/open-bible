@@ -2,7 +2,7 @@
 
 ## Ezequiel 39:1
 
-“Y tú, hijo de hombre, profetiza contra Gog y di: ‘Así dice el Señor Soberano: He aquí, estoy contra ti, Gog, príncipe principal de Mesec y Tubal.
+“Y tú, hijo de hombre, profetiza contra Gog y di: ‘Así dice el Señor Dios: He aquí, estoy contra ti, Gog, gran príncipe de Mesec y Tubal.
 
 ## Ezequiel 39:2
 
@@ -18,7 +18,7 @@ Caerás en los montes de Israel, tú y todas tus tropas y las naciones que está
 
 ## Ezequiel 39:5
 
-Caerás en campo abierto, porque yo lo he declarado, dice el Señor Soberano.
+Caerás en campo abierto, porque yo lo he declarado, dice el Señor Dios.
 
 ## Ezequiel 39:6
 
@@ -30,7 +30,7 @@ Haré conocer mi santo nombre entre mi pueblo Israel y no permitiré más que mi
 
 ## Ezequiel 39:8
 
-¡Viene! Ciertamente se cumplirá, dice el Señor Soberano. Este es el día del que he hablado.
+¡Viene! Ciertamente se cumplirá, dice el Señor Dios. Este es el día del que he hablado.
 
 ## Ezequiel 39:9
 
@@ -38,7 +38,7 @@ Entonces los que habitan en las ciudades de Israel saldrán y usarán las armas 
 
 ## Ezequiel 39:10
 
-No necesitarán recoger leña del campo ni cortarla de los bosques, porque usarán las armas como combustible. Saquearán a los que los saquearon y despojarán a los que los despojaron, declara el Señor Soberano.
+No necesitarán recoger leña del campo ni cortarla de los bosques, porque usarán las armas como combustible. Saquearán a los que los saquearon y despojarán a los que los despojaron, declara el Señor Dios.
 
 ## Ezequiel 39:11
 
@@ -50,7 +50,7 @@ Durante un período de siete meses, la casa de Israel los enterrará para purifi
 
 ## Ezequiel 39:13
 
-Todo el pueblo de la tierra los enterrará, y el día que muestre mi gloria será un día memorable para ellos, dice el Señor Soberano.
+Todo el pueblo de la tierra los enterrará, y el día que muestre mi gloria será un día memorable para ellos, dice el Señor Dios.
 
 ## Ezequiel 39:14
 
@@ -66,19 +66,19 @@ cerca de una ciudad llamada Hamoná. Así purificarán la tierra.
 
 ## Ezequiel 39:17
 
-“Hijo de hombre, así dice el Señor Soberano: Llama a toda clase de aves y a todos los animales salvajes: ‘Reúnanse y vengan de todas partes al sacrificio que estoy preparando para ustedes, el gran sacrificio sobre los montes de Israel. Allí comerán carne y beberán sangre.
+“Hijo de hombre, así dice el Señor Dios: Llama a toda clase de aves y a todos los animales salvajes: ‘Reuníos y venid de todas partes al sacrificio que estoy preparando para vosotros, el gran sacrificio sobre los montes de Israel. Allí comeréis carne y beberéis sangre.
 
 ## Ezequiel 39:18
 
-Comerán la carne de hombres poderosos y beberán la sangre de los príncipes de la tierra como si fueran carneros y corderos, cabras y toros, todo ganado cebado de Basán.
+Comeréis la carne de hombres poderosos y beberéis la sangre de los príncipes de la tierra como si fueran carneros y corderos, cabras y toros, todo ganado cebado de Basán.
 
 ## Ezequiel 39:19
 
-En el sacrificio que estoy preparando para ustedes, comerán grasa hasta saciarse y beberán sangre hasta embriagarse.
+En el sacrificio que estoy preparando para vosotros, comeréis grasa hasta saciaros y beberéis sangre hasta embriagaros.
 
 ## Ezequiel 39:20
 
-En mi mesa se saciarán de caballos y jinetes, hombres poderosos y soldados de toda clase,’ dice el Señor Soberano.
+En mi mesa os saciaréis de caballos y jinetes, hombres poderosos y soldados de toda clase,’ dice el Señor Dios.
 
 ## Ezequiel 39:21
 
@@ -98,7 +98,7 @@ Los traté conforme a su impureza y sus ofensas, y aparté mi rostro de ellos.
 
 ## Ezequiel 39:25
 
-Por tanto, así dice el Señor Soberano: Ahora restauraré la fortuna de Jacob y tendré compasión de toda la casa de Israel, y seré celoso de mi santo nombre.
+Por tanto, así dice el Señor Dios: Ahora restauraré la fortuna de Jacob y tendré compasión de toda la casa de Israel, y seré celoso de mi santo nombre.
 
 ## Ezequiel 39:26
 
@@ -114,4 +114,4 @@ Entonces se darán cuenta de que yo soy el Señor su Dios, porque aunque los env
 
 ## Ezequiel 39:29
 
-No volveré a esconder mi rostro de ellos, porque derramaré mi Espíritu sobre la casa de Israel, declara el Señor Soberano.”
+No volveré a esconder mi rostro de ellos, porque derramaré mi Espíritu sobre la casa de Israel, declara el Señor Dios.”

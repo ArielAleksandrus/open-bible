@@ -4,49 +4,49 @@
 
 ## Salmo 142:1
 
-> Clamo con mi voz al Señor;  
->  Con mi voz suplico al Señor misericordia.
+> Grito al Señor con todas mis fuerzas;  
+>  con mi voz le ruego al Señor que tenga compasión.
 
 ## Salmo 142:2
 
-> Derramo mi angustia delante de Él;  
->  Le revelo mis problemas.
+> Delante de Él desahogo mi angustia;  
+>  a Él le cuento mis problemas.
 
 ---
 
 ## Salmo 142:3
 
-> Cuando mi espíritu se desmayaba dentro de mí,  
->  Tú conocías mi camino.  
->  En la senda por donde ando Han tendido una trampa para mí.
+> Cuando ya no me quedaban ánimos,  
+>  Tú sabías por dónde iba yo.  
+>  En el camino por donde ando me han escondido una trampa.
 
 ## Salmo 142:4
 
-> Mira a la derecha y observa;  
->  Pues no hay quien me note.  
->  No hay escape para mí;  
->  Nadie se preocupa por mi alma.
+> Mira a mi derecha y fíjate:  
+>  no hay nadie que se preocupe por mí.  
+>  No tengo a dónde escapar;  
+>  a nadie le importa mi vida.
 
 ---
 
 ## Salmo 142:5
 
-> Clamé a Ti, Señor;  
->  Declaré, “Tú eres mi refugio,  
->  Mi porción en la tierra de los vivientes.
+> Señor, a Ti te llamé y te dije:  
+>  “Tú eres mi refugio,  
+>  lo único que tengo en el mundo de los vivos.
 
 ---
 
 ## Salmo 142:6
 
-> Escucha mi clamor,  
->  Porque he sido llevado muy bajo;  
->  Líbrame de mis perseguidores,  
->  Porque son demasiado poderosos para mí.
+> Escucha mi grito,  
+>  porque estoy hundido del todo;  
+>  sálvame de los que me persiguen,  
+>  porque son más fuertes que yo.
 
 ## Salmo 142:7
 
-> Levanta mi alma de la tristeza,  
->  Para que pueda dar gracias a Tu nombre;  
->  Los justos se reunirán alrededor de mí,  
->  Porque Tú cuidarás de mí.”
+> Saca mi alma de la tristeza,  
+>  para que pueda dar gracias a Tu nombre;  
+>  los justos se reunirán a mi alrededor,  
+>  porque Tú cuidarás de mí.”

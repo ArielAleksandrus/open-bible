@@ -54,7 +54,7 @@ Así que, cada uno de nosotros dará cuenta personal a Dios.
 
 ## Romanos 14:13
 
-Por lo tanto, dejemos de juzgarnos unos a otros. En su lugar, decidid no poner tropiezo u obstáculo en el camino de un hermano o hermana.
+Por lo tanto, dejemos de juzgarnos unos a otros. Más bien, decidid no poner tropiezo u obstáculo en el camino de un hermano o hermana.
 
 ## Romanos 14:14
 

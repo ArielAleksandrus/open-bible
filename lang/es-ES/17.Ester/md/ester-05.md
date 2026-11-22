@@ -12,7 +12,7 @@ Cuando el rey vio a la reina Ester de pie en el patio, ella halló gracia ante s
 
 ## Ester 5:3
 
-El rey entonces preguntó: “¿Qué te preocupa, reina Ester? ¿Cuál es tu petición? Hasta la mitad del reino, te será concedido.”
+El rey entonces preguntó: “¿Qué te preocupa, reina Ester? ¿Cuál es tu petición? Aunque sea la mitad del reino, se te concederá.”
 
 ## Ester 5:4
 

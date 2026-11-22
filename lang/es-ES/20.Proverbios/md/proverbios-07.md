@@ -2,19 +2,19 @@
 
 ## Proverbios 7:1
 
-Hijo mío, guarda mis palabras y atesora mis mandamientos dentro de ti.
+Hijo mío, no olvides mis palabras y guarda mis mandamientos como un tesoro.
 
 ## Proverbios 7:2
 
-Guarda mis mandamientos y vivirás; cuida mis enseñanzas como la niña de tus ojos.
+Cumple mis mandamientos y vivirás; cuida lo que te enseño como a las niñas de tus ojos.
 
 ## Proverbios 7:3
 
-Átalos a tus dedos; inscríbelos en la tabla de tu corazón.
+Llévalos atados a los dedos; grábalos en tu corazón como en una tabla.
 
 ## Proverbios 7:4
 
-Di a la sabiduría: “Tú eres mi hermana,” y llama a la inteligencia tu amiga íntima,
+Dile a la sabiduría: “Tú eres mi hermana,” y trata a la inteligencia como a una amiga íntima,
 
 ## Proverbios 7:5
 
@@ -28,11 +28,11 @@ Porque en la ventana de mi casa miré a través de la celosía,
 
 ## Proverbios 7:7
 
-y vi entre los simples, observé entre los jóvenes, a un joven falto de juicio,
+y entre los ingenuos, entre los muchachos, me fijé en un joven sin sentido común,
 
 ## Proverbios 7:8
 
-que pasaba por la calle cerca de su esquina, tomando el camino hacia su casa
+que iba por la calle, cerca de la esquina de ella, y tomaba el camino de su casa
 
 ## Proverbios 7:9
 
@@ -42,7 +42,7 @@ al anochecer, al caer la tarde, en la oscuridad de la noche.
 
 ## Proverbios 7:10
 
-Y he aquí, una mujer le sale al encuentro, vestida como una prostituta y astuta de corazón.
+Y de pronto, una mujer sale a su encuentro, vestida como una prostituta y con malas intenciones.
 
 ## Proverbios 7:11
 
@@ -50,11 +50,11 @@ Es bulliciosa y rebelde; sus pies no permanecen en casa;
 
 ## Proverbios 7:12
 
-unas veces en las calles, otras en las plazas, acecha en cada esquina.
+A veces en la calle, a veces en las plazas, siempre al acecho en cualquier esquina.
 
 ## Proverbios 7:13
 
-Lo agarra y lo besa, y con semblante descarado le dice:
+Lo agarra, lo besa y, sin ninguna vergüenza, le dice:
 
 ---
 
@@ -64,15 +64,15 @@ Lo agarra y lo besa, y con semblante descarado le dice:
 
 ## Proverbios 7:15
 
-Así que salí a encontrarte, a buscarte con diligencia, ¡y te he encontrado!
+Por eso salí a buscarte, tenía muchas ganas de verte, ¡y te encontré!
 
 ## Proverbios 7:16
 
-He adornado mi cama con coberturas, con linos de colores de Egipto.
+He cubierto mi cama con colchas, con sábanas de colores traídas de Egipto.
 
 ## Proverbios 7:17
 
-He perfumado mi cama con mirra, áloes y canela.
+He perfumado mi cama con mirra, áloe y canela.
 
 ## Proverbios 7:18
 
@@ -80,7 +80,7 @@ Ven, bebamos profundamente de amor hasta la mañana; deleitémonos con caricias.
 
 ## Proverbios 7:19
 
-Porque mi marido no está en casa; se ha ido en un largo viaje.
+Porque mi marido no está; se fue de viaje muy lejos.
 
 ## Proverbios 7:20
 
@@ -109,11 +109,11 @@ hasta que una flecha le atraviesa el hígado;
 
 ## Proverbios 7:24
 
-Ahora pues, hijos míos, escúchenme, y presten atención a lo que digo.
+Así que ahora, hijos míos, escuchadme y prestad atención a lo que os digo.
 
 ## Proverbios 7:25
 
-No dejes que tu corazón se desvíe hacia sus caminos, no te extravíes en sus sendas.
+No dejes que tu corazón se vaya tras ella; no te pierdas por sus caminos.
 
 ## Proverbios 7:26
 
@@ -121,4 +121,4 @@ Porque ha derribado a muchos; sus víctimas son una multitud inmensa.
 
 ## Proverbios 7:27
 
-Su casa es una autopista al sepulcro, que desciende a las cámaras de la muerte.
+Su casa es una carretera que lleva a la tumba, que baja hasta las habitaciones de la muerte.

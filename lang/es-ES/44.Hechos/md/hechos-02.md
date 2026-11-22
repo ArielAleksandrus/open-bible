@@ -58,11 +58,11 @@ Pero otros se burlaban de ellos y decían: “Han bebido demasiado vino nuevo.�
 
 ## Hechos 2:14
 
-Entonces Pedro se puso de pie con los Once, alzó la voz y se dirigió a la multitud: “Hombres de Judea y todos los que viven en Jerusalén, que esto les sea conocido, y escuchen atentamente mis palabras.
+Entonces Pedro se puso de pie con los Once, alzó la voz y se dirigió a la multitud: “Hombres de Judea y todos los que vivís en Jerusalén, sabed esto, y escuchad atentamente mis palabras.
 
 ## Hechos 2:15
 
-Estas personas no están borrachas, como suponen, pues apenas son las nueve de la mañana.
+Estas personas no están borrachas, como suponéis, pues apenas son las nueve de la mañana.
 
 ## Hechos 2:16
 
@@ -72,9 +72,9 @@ En cambio, esto es lo que fue predicho por el profeta Joel:
 
 > ‘En los últimos días,’ dice Dios,
 >  ‘derramaré mi Espíritu sobre toda la gente;
->  sus hijos e hijas profetizarán,
->  sus jóvenes verán visiones,
->  y sus ancianos soñarán sueños.
+>  vuestros hijos e hijas profetizarán,
+>  vuestros jóvenes verán visiones,
+>  y vuestros ancianos soñarán sueños.
 
 ## Hechos 2:18
 
@@ -100,11 +100,11 @@ En cambio, esto es lo que fue predicho por el profeta Joel:
 
 ## Hechos 2:22
 
-“Hombres de Israel, escuchen esto: Jesús de Nazaret fue un hombre acreditado por Dios ante ustedes mediante milagros, maravillas y señales, que Dios realizó entre ustedes por medio de él, como ustedes mismos saben.
+“Hombres de Israel, escuchad esto: Jesús de Nazaret fue un hombre acreditado por Dios ante vosotros mediante milagros, maravillas y señales, que Dios realizó entre vosotros por medio de él, como vosotros mismos sabéis.
 
 ## Hechos 2:23
 
-Este hombre fue entregado a ustedes por el plan deliberado y el conocimiento previo de Dios; y ustedes, con la ayuda de hombres sin ley, lo mataron clavándolo en la cruz.
+Este hombre os fue entregado por el plan deliberado y el conocimiento previo de Dios; y vosotros, con la ayuda de hombres sin ley, lo matasteis clavándolo en la cruz.
 
 ## Hechos 2:24
 
@@ -119,7 +119,7 @@ David habló acerca de él:
 
 ## Hechos 2:26
 
-> Por eso mi corazón se alegra y mi lengua se exalta;
+> Por eso mi corazón se alegra y mi lengua se regocija;
 >  y mi cuerpo descansará en esperanza,
 
 ## Hechos 2:27
@@ -136,7 +136,7 @@ David habló acerca de él:
 
 ## Hechos 2:29
 
-“Hermanos, puedo decirles con confianza que el patriarca David murió y fue sepultado, y su tumba está aquí hasta el día de hoy.
+“Hermanos, puedo deciros con confianza que el patriarca David murió y fue sepultado, y su tumba está aquí hasta el día de hoy.
 
 ## Hechos 2:30
 
@@ -152,7 +152,7 @@ Dios ha resucitado a este Jesús, y todos nosotros somos testigos de este hecho.
 
 ## Hechos 2:33
 
-Exaltado a la derecha de Dios, ha recibido del Padre el Espíritu Santo prometido y ha derramado lo que ahora observan y oyen.
+Exaltado a la derecha de Dios, ha recibido del Padre el Espíritu Santo prometido y ha derramado lo que ahora veis y oís.
 
 ## Hechos 2:34
 
@@ -168,7 +168,7 @@ Porque David no ascendió al cielo, y sin embargo dijo,
 
 ## Hechos 2:36
 
-“Por tanto, que toda la casa de Israel tenga la seguridad de esto: Dios ha hecho a este Jesús, a quien ustedes crucificaron, Señor y Mesías.”
+“Por tanto, que toda la casa de Israel tenga la seguridad de esto: Dios ha hecho a este Jesús, a quien vosotros crucificasteis, Señor y Mesías.”
 
 ---
 
@@ -178,15 +178,15 @@ Cuando la gente oyó esto, se sintieron profundamente conmovidos y dijeron a Ped
 
 ## Hechos 2:38
 
-Pedro respondió: “Arrepiéntanse y sean bautizados, cada uno de ustedes, en el nombre de Jesucristo para el perdón de sus pecados. Y recibirán el don del Espíritu Santo.
+Pedro respondió: “Arrepentíos y sed bautizados, cada uno de vosotros, en el nombre de Jesucristo para el perdón de vuestros pecados. Y recibiréis el don del Espíritu Santo.
 
 ## Hechos 2:39
 
-Esta promesa es para ustedes y sus hijos y para todos los que están lejos, para todos los que el Señor nuestro Dios llame.”
+Esta promesa es para vosotros y vuestros hijos y para todos los que están lejos, para todos los que el Señor nuestro Dios llame.”
 
 ## Hechos 2:40
 
-Con muchas otras palabras les advirtió; y les instó: “Sálvense de esta generación corrupta.”
+Con muchas otras palabras les advirtió; y les instó: “Salvaos de esta generación corrupta.”
 
 ## Hechos 2:41
 

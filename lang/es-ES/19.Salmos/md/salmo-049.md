@@ -4,18 +4,18 @@
 
 ## Salmo 49:1
 
-> Oíd esto, pueblos todos;  
->  Escuchad, todos los habitantes del mundo,
+> Escuchad esto, pueblos todos;  
+>  Prestad atención, todos los que vivís en el mundo,
 
 ## Salmo 49:2
 
 > Tanto de humilde como de noble nacimiento,  
->  Los ricos y los pobres juntos.
+>  los ricos y los pobres juntos.
 
 ## Salmo 49:3
 
 > Mi boca hablará con sabiduría,  
->  Y los pensamientos de mi corazón serán perspicaces.
+>  y los pensamientos de mi corazón serán perspicaces.
 
 ## Salmo 49:4
 
@@ -26,32 +26,32 @@
 
 ## Salmo 49:5
 
-> ¿Por qué he de temer en días de adversidad,  
->  Cuando la culpa de mis enemigos me rodea,
+> ¿Por qué voy a tener miedo en los tiempos malos,  
+>  cuando me rodea la maldad de mis enemigos,
 
 ## Salmo 49:6
 
-> Aquellos que confían en su riqueza Y se enorgullecen de sus abundantes riquezas?
+> De los que ponen su confianza en su dinero Y presumen de sus muchas riquezas?
 
 ## Salmo 49:7
 
 > Nadie puede redimir jamás a otro,  
->  Ni ofrecer a Dios un rescate por él—
+>  ni ofrecer a Dios un rescate por él—
 
 ## Salmo 49:8
 
 > Porque la redención de su alma no tiene precio,  
->  Y deberían dejar de imaginarlo para siempre—
+>  y deberían dejar de imaginarlo para siempre—
 
 ## Salmo 49:9
 
 > Para que puedan vivir eternamente,  
->  Que no sufran corrupción.
+>  que no sufran corrupción.
 
 ## Salmo 49:10
 
 > Porque observa que incluso los sabios llegan a su fin;  
->  Los necios y los insensatos perecen por igual Y dejan su riqueza a otros.
+>  los necios y los insensatos perecen por igual Y dejan su riqueza a otros.
 
 ## Salmo 49:11
 
@@ -63,35 +63,35 @@
 ## Salmo 49:12
 
 > Pero el hombre en su esplendor no perdurará;  
->  Es como los animales que perecen.
+>  es como los animales que perecen.
 
 ---
 
 ## Salmo 49:13
 
 > Tal es el camino de los insensatos,  
->  Y de aquellos que los siguen y aprueban sus dichos.
+>  y de aquellos que los siguen y aprueban sus dichos.
 
 >  Selah
 
 ## Salmo 49:14
 
 > Como ovejas están destinados al Seol;  
->  La muerte los pastoreará;  
->  Y los rectos tendrán dominio sobre ellos por la mañana,  
->  Y su forma será consumida por el Seol Para que no tengan hogar exaltado.
+>  la muerte los pastoreará;  
+>  y los rectos tendrán dominio sobre ellos por la mañana,  
+>  y su forma será consumida por el Seol Para que no tengan hogar exaltado.
 
 ## Salmo 49:15
 
-> Pero Dios redimirá mi alma del poder del Seol,  
->  Porque Él me tomará para sí.
+> Pero Dios rescatará mi alma de las garras del Seol,  
+>  porque Él me llevará consigo.
 
 >  Selah
 
 ## Salmo 49:16
 
-> No temas cuando alguien se enriquece,  
->  Cuando el esplendor de su casa aumenta;
+> No te asustes cuando alguien se hace rico,  
+>  cuando su casa se llena de lujo;
 
 ## Salmo 49:17
 
@@ -105,11 +105,11 @@
 ## Salmo 49:19
 
 > Se unirán a la compañía de sus antepasados;  
->  Nunca más verán la luz.
+>  nunca más verán la luz.
 
 ---
 
 ## Salmo 49:20
 
 > La humanidad, en su esplendor, pero sin entendimiento,  
->  Es como los animales que perecen.
+>  es como los animales que perecen.

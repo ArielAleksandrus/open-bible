@@ -1,7 +1,7 @@
 # Deuteronomio Capítulo 10
 
 ## Deuteronomio 10:1
-En aquel tiempo, el Señor me dijo: “Labrad dos tablas de piedra como las primeras y sube a Mí al monte, y hazte un arca de madera.
+En aquel tiempo, el Señor me dijo: “Labra dos tablas de piedra como las primeras y sube a Mí al monte, y hazte un arca de madera.
 
 ## Deuteronomio 10:2
 Yo escribiré en las tablas las palabras que estaban en las primeras tablas, que rompiste. Luego las colocarás en el arca.”
@@ -46,7 +46,7 @@ Los cielos, incluso los cielos más altos, la tierra y todo lo que hay en ella, 
 Sin embargo, el Señor puso Su afecto en tus antepasados y los amó, y te eligió a ti, sus descendientes, sobre todas las demás naciones, como es hoy.
 
 ## Deuteronomio 10:16
-Circuncidad, pues, vuestros corazones, y no seáis obstinados más.
+Circuncidad, pues, vuestros corazones, y no seáis más obstinados.
 
 ## Deuteronomio 10:17
 Porque el Señor vuestro Dios es el Dios de dioses y el Señor de señores, el Dios grande, poderoso y temible, que no muestra parcialidad ni acepta sobornos.

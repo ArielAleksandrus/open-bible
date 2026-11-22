@@ -25,7 +25,7 @@ Por lo tanto, esto es lo que dice el Señor Dios: He jurado que las naciones que
 Pero vosotros, oh montes de Israel, produciréis ramas y daréis fruto para Mi pueblo Israel, porque pronto volverán.
 
 ## Ezequiel 36:9
-Porque en verdad, estoy por vosotros, y me volveré hacia vosotros, y seréis labrados y sembrados.
+Porque en verdad, estoy a vuestro favor, y me volveré hacia vosotros, y seréis labrados y sembrados.
 
 ## Ezequiel 36:10
 Multiplicaré el número de personas sobre vosotros, toda la casa de Israel, toda ella; las ciudades serán habitadas y las ruinas reconstruidas.
@@ -49,7 +49,7 @@ No permitiré que escuchéis más los insultos de las naciones, ni sufriréis el
 La palabra del Señor vino a mí de nuevo, diciendo,
 
 ## Ezequiel 36:17
-“Hijo de hombre, cuando la casa de Israel habitaba en su propia tierra, la contaminaron con su conducta y acciones; su camino era como la impureza de una mujer en su impureza ante Mí.
+“Hijo de hombre, cuando la casa de Israel habitaba en su propia tierra, la contaminaron con su conducta y acciones; su camino era como la impureza de una mujer durante su menstruación ante Mí.
 
 ## Ezequiel 36:18
 Así que derramé Mi ira sobre ellos por la sangre que habían derramado en la tierra y porque la habían contaminado con sus ídolos.
@@ -61,7 +61,7 @@ Los dispersé entre las naciones, y fueron dispersados por los países; los juzg
 Y dondequiera que iban entre las naciones, profanaban Mi santo nombre, porque se decía de ellos: ‘Estos son el pueblo del Señor, sin embargo, tuvieron que dejar Su tierra.’
 
 ## Ezequiel 36:21
-Pero tuve preocupación por Mi santo nombre, que la casa de Israel había profanado entre las naciones adonde habían ido.
+Pero me preocupé por Mi santo nombre, que la casa de Israel había profanado entre las naciones adonde habían ido.
 
 ## Ezequiel 36:22
 Por lo tanto, di a la casa de Israel: ‘Esto es lo que dice el Señor Dios: No es por vosotros, oh casa de Israel, que estoy a punto de actuar, sino por Mi santo nombre, que habéis profanado entre las naciones adonde habéis ido.
@@ -76,7 +76,7 @@ Porque os tomaré de entre las naciones, os reuniré de todas las tierras, y os 
 Rociaré agua limpia sobre vosotros, y seréis limpios; os limpiaré de todas vuestras impurezas y de todos vuestros ídolos.
 
 ## Ezequiel 36:26
-Os concederé un corazón renovado e infundiré un espíritu nuevo dentro de vosotros; quitaré vuestro corazón inflexible y os proporcionaré un corazón receptivo.
+Os daré un corazón nuevo y pondré un espíritu nuevo dentro de vosotros; quitaré vuestro corazón de piedra y os daré un corazón de carne.
 
 ## Ezequiel 36:27
 Y pondré Mi Espíritu dentro de vosotros y haré que sigáis Mis decretos y tengáis cuidado de observar Mis leyes.
@@ -94,7 +94,7 @@ Aumentaré el fruto de los árboles y la producción de los campos, para que ya 
 Entonces recordaréis vuestros malos caminos y vuestras acciones que no fueron buenas, y os aborreceréis a vosotros mismos por vuestros pecados y prácticas detestables.
 
 ## Ezequiel 36:32
-Quiero que sepáis que no estoy haciendo esto por vosotros, declara el Señor Dios. Avergonzáos y deshonráos por vuestra conducta, oh casa de Israel!
+Quiero que sepáis que no estoy haciendo esto por vosotros, declara el Señor Dios. ¡Avergonzaos y confundíos por vuestra conducta, oh casa de Israel!
 
 ## Ezequiel 36:33
 Esto es lo que dice el Señor Dios: El día que os limpie de todos vuestros pecados, repoblaré vuestras ciudades, y las ruinas serán reconstruidas.
@@ -103,10 +103,10 @@ Esto es lo que dice el Señor Dios: El día que os limpie de todos vuestros peca
 La tierra desolada será cultivada en lugar de permanecer desolada a la vista de todos los que pasan.
 
 ## Ezequiel 36:35
-Dirán: ‘Esta tierra que estaba desolada se ha convertido como el Jardín del Edén; las ciudades que estaban arruinadas, desoladas y destruidas ahora están fortificadas y habitadas.’
+Dirán: ‘Esta tierra que estaba desolada se ha vuelto como el jardín del Edén; las ciudades que estaban arruinadas, desoladas y destruidas ahora están fortificadas y habitadas.’
 
 ## Ezequiel 36:36
-Entonces las naciones que os rodean y que permanecen sabrán que Yo, el Señor, he reconstruido lo que estaba destruido y he replantado lo que estaba desolado. Yo, el Señor, he hablado, y lo haré.’
+Entonces las naciones que queden a vuestro alrededor sabrán que Yo, el Señor, he reconstruido lo que estaba destruido y he replantado lo que estaba desolado. Yo, el Señor, he hablado, y lo haré.’
 
 ## Ezequiel 36:37
 Esto es lo que dice el Señor Dios: Una vez más responderé a la súplica de la casa de Israel y haré esto por ellos: Aumentaré su pueblo como un rebaño.

@@ -2,7 +2,7 @@
 
 ## 1 Reyes 11:1
 
-El rey Salomón amó, además de a la hija de Faraón,  
+El rey Salomón amó, además de a la hija del faraón,  
  a muchas mujeres extranjeras: moabitas, amonitas, edomitas, sidonias y heteas,
 
 ## 1 Reyes 11:2
@@ -37,7 +37,7 @@ Salomón hizo lo malo ante los ojos del Señor,
 
 ## 1 Reyes 11:7
 
-Entonces Salomón construyó un lugar alto para Quemós, el ídolo de Moab,  
+Entonces Salomón construyó un lugar alto para Quemos, el ídolo de Moab,  
  en el monte que está al este de Jerusalén,  
  y para Moloc, el ídolo de los hijos de Amón.
 
@@ -63,7 +63,7 @@ y le había mandado acerca de este asunto,
 ## 1 Reyes 11:11
 
 Entonces el Señor dijo a Salomón:  
- “Puesto que esto ha sido hecho por ti,  
+ “Puesto que has hecho esto,  
  y no has guardado Mi pacto y Mis estatutos, que te he mandado,  
  ciertamente arrancaré el reino de ti y lo daré a tu siervo.
 
@@ -155,7 +155,7 @@ Así que fue un adversario para Israel todos los días de Salomón,
 
 ## 1 Reyes 11:26
 
-Ahora Jeroboam hijo de Nabat, un efrateo de Zeredá,  
+Ahora Jeroboam hijo de Nabat, un efraimita de Zeredá,  
  siervo de Salomón —cuya madre se llamaba Zerúa,  
  una viuda— también levantó su mano contra el rey.
 
@@ -166,7 +166,7 @@ Ahora esta fue la razón por la que levantó su mano contra el rey:
 
 ## 1 Reyes 11:28
 
-Ahora el hombre Jeroboam era un guerrero valiente,  
+Jeroboam era un guerrero valiente,  
  y cuando Salomón vio que el joven era industrioso,  
  lo puso sobre todo el trabajo forzado de la casa de José.
 
@@ -177,7 +177,7 @@ Ahora el hombre Jeroboam era un guerrero valiente,
 Ahora sucedió en ese tiempo,  
  cuando Jeroboam salió de Jerusalén,  
  que el profeta Ahías el silonita lo encontró en el camino.  
- Ahora él se había cubierto con un manto nuevo,  
+ Ahías se había cubierto con un manto nuevo,  
  y los dos estaban solos en el campo.
 
 ## 1 Reyes 11:30
@@ -200,7 +200,7 @@ Pero él retendrá una tribu, por amor a Mi siervo David y por amor a Jerusalén
 
 porque me han abandonado,  
  y se han inclinado ante Astarté la diosa de los sidonios,  
- ante Quemós el dios de Moab,  
+ ante Quemos el dios de Moab,  
  y ante Milcom el dios de los hijos de Amón,  
  y no han caminado en Mis caminos,  
  ni han hecho lo que es correcto ante Mis ojos, ni han guardado Mis estatutos y Mis ordenanzas,  
@@ -222,7 +222,7 @@ Pero tomaré el reino de la mano de su hijo y te lo daré a ti —es decir,
 
 Pero a su hijo le daré una tribu,  
  para que Mi siervo David siempre tenga una lámpara delante de Mí en Jerusalén,  
- la ciudad que he elegido para Mí para poner Mi nombre.
+ la ciudad que he elegido para poner allí Mi nombre.
 
 ## 1 Reyes 11:37
 
@@ -231,7 +231,7 @@ Sin embargo, te tomaré a ti, y gobernarás sobre todo lo que tu corazón desee,
 
 ## 1 Reyes 11:38
 
-Entonces será, si escuchas todo lo que te mando y caminas en Mis caminos,  
+Y si escuchas todo lo que te mando y caminas en Mis caminos,  
  y haces lo que es correcto ante Mis ojos guardando Mis estatutos y Mis mandamientos,  
  como lo hizo Mi siervo David,  
  entonces estaré contigo y te edificaré una casa duradera como edifiqué para David,  

@@ -14,7 +14,7 @@ Porque este es el deseo de Dios para vosotros, vuestra santificación: que os ab
 
 ## 1 Tesalonicenses 4:4
 
-que cada uno de vosotros sepa poseer su propio vaso en santificación y honor,
+que cada uno de vosotros sepa dominar su propio cuerpo de una manera santa y digna,
 
 ## 1 Tesalonicenses 4:5
 
@@ -34,7 +34,7 @@ Por lo tanto, el que rechaza esto no está rechazando al hombre, sino a Dios, qu
 
 ## 1 Tesalonicenses 4:9
 
-Ahora, en cuanto al amor fraternal, no tenéis necesidad de que nadie os escriba, porque vosotros mismos habéis sido enseñados por Dios a amaros unos a otros;
+En cuanto al amor entre vosotros, no hace falta que nadie os escriba, porque Dios mismo os ha enseñado a amaros unos a otros;
 
 ## 1 Tesalonicenses 4:10
 
@@ -54,19 +54,19 @@ Pero no queremos que ignoréis, hermanos y hermanas, acerca de los que han falle
 
 ## 1 Tesalonicenses 4:14
 
-Porque si creemos que Jesús murió y resucitó, así también Dios traerá con Él a los que se han dormido en Jesús.
+Porque si creemos que Jesús murió y resucitó, también creemos que Dios traerá con Jesús a los que murieron unidos a Él.
 
 ## 1 Tesalonicenses 4:15
 
-Porque os declaramos por la palabra del Señor, que nosotros, los que vivimos y permanecemos hasta la venida del Señor, no precederemos a los que se han dormido.
+Conforme a lo que el Señor nos ha enseñado, os decimos que nosotros, los que estemos vivos y quedemos hasta que venga el Señor, no nos adelantaremos a los que ya murieron.
 
 ## 1 Tesalonicenses 4:16
 
-Porque el Señor mismo descenderá del cielo con un grito de mando, con la voz del arcángel y con la trompeta de Dios, y los muertos en Cristo resucitarán primero.
+Porque el Señor mismo bajará del cielo con una voz de mando, con la voz del arcángel y con el toque de la trompeta de Dios, y los que murieron unidos a Cristo resucitarán primero.
 
 ## 1 Tesalonicenses 4:17
 
-Después de eso, nosotros, los que vivimos y permanecemos, seremos arrebatados juntamente con ellos en las nubes para recibir al Señor en el aire, y así estaremos siempre con el Señor.
+Después, los que estemos vivos y hayamos quedado seremos llevados junto con ellos en las nubes para encontrarnos con el Señor en el aire, y así estaremos con el Señor para siempre.
 
 ## 1 Tesalonicenses 4:18
 

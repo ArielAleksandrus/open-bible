@@ -35,7 +35,7 @@ La palabra del Señor que vino a Sofonías hijo de Cusí, hijo de Gedalías, hij
 
 ## Sofonías 1:7
 
-> Guarda silencio ante el Señor Soberano,
+> Guarda silencio ante el Señor Dios,
 >  porque el día del Señor está cerca.
 >  El Señor ha preparado un sacrificio;
 >  ha consagrado a sus invitados.
@@ -66,7 +66,7 @@ La palabra del Señor que vino a Sofonías hijo de Cusí, hijo de Gedalías, hij
 
 ## Sofonías 1:12
 
-> En ese tiempo buscaré a Jerusalén con lámparas y castigaré a los que están complacidos,
+> En ese tiempo buscaré a Jerusalén con lámparas y castigaré a los que viven despreocupados,
 >  que son como vino dejado en sus heces,
 >  que dicen en su corazón,
 >  ‘El Señor no hará nada,
@@ -81,9 +81,9 @@ La palabra del Señor que vino a Sofonías hijo de Cusí, hijo de Gedalías, hij
 
 ## Sofonías 1:14
 
-> El gran día del Señor está cerca —cerca y viene rápidamente.
+> El gran día del Señor está cerca, cerca y viene rápidamente.
 >  El clamor en el día del Señor es amargo;
->  el guerrero grita su grito de batalla—.
+>  el guerrero lanza su grito de batalla.
 
 ## Sofonías 1:15
 
@@ -110,5 +110,5 @@ La palabra del Señor que vino a Sofonías hijo de Cusí, hijo de Gedalías, hij
 >  En el fuego de su celo,
 >  toda la tierra será consumida,
 >  porque hará un fin completo,
->  de hecho uno aterrador,
->  de todos los habitantes de la tierra.
+>  sí, un fin aterrador,
+>  de todos los habitantes de la tierra.”

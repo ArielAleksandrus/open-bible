@@ -1,40 +1,40 @@
 # Daniel Capítulo 12
 
 ## Daniel 12:1
-“En aquel tiempo se levantará Miguel, el gran príncipe que está de parte de los hijos de tu pueblo. Será un tiempo de angustia, cual nunca fue desde que hubo nación hasta entonces. Pero en aquel tiempo será liberado tu pueblo, todos los que se hallen inscritos en el libro.
+“En ese tiempo se levantará Miguel, el gran príncipe que protege a tu pueblo. Habrá un tiempo de angustia como no ha habido otro desde que existen las naciones hasta entonces. Pero en ese tiempo será librado tu pueblo: todos los que tengan su nombre escrito en el libro.
 
 ## Daniel 12:2
-Y muchos de los que duermen en el polvo de la tierra se despertarán, unos para vida eterna, y otros para vergüenza y confusión perpetua.
+Muchos de los que duermen en el polvo de la tierra despertarán: unos para la vida eterna, y otros para la deshonra y el desprecio eterno.
 
 ## Daniel 12:3
-Los entendidos resplandecerán como el resplandor del firmamento, y los que enseñan la justicia a la multitud, como las estrellas a perpetua eternidad.
+Los que tienen entendimiento brillarán como el resplandor del cielo, y los que llevan a muchos a la justicia brillarán como las estrellas, por siempre jamás.
 
 ## Daniel 12:4
-Pero tú, Daniel, cierra las palabras y sella el libro hasta el tiempo del fin. Muchos correrán de aquí para allá, y la ciencia se aumentará.”
+Pero tú, Daniel, guarda en secreto estas palabras y sella el libro hasta el tiempo del fin. Muchos andarán de un lado a otro, y el conocimiento aumentará.”
 
 ## Daniel 12:5
-Y yo, Daniel, miré, y he aquí otros dos que estaban en pie, uno a este lado del río y el otro al otro lado del río.
+Entonces yo, Daniel, miré y vi a otros dos que estaban de pie, uno en esta orilla del río y el otro en la orilla de enfrente.
 
 ## Daniel 12:6
-Y uno dijo al hombre vestido de lino, que estaba sobre las aguas del río: “¿Cuánto tiempo pasará hasta que se cumplan estas maravillas?”
+Uno de ellos le preguntó al hombre vestido de lino, que estaba sobre las aguas del río: “¿Cuánto falta para que se cumplan estas cosas asombrosas?”
 
 ## Daniel 12:7
-Y oí al hombre vestido de lino, que estaba sobre las aguas del río, el cual alzó su mano derecha y su mano izquierda al cielo, y juró por el que vive por los siglos, diciendo: “Será por tiempo, tiempos y la mitad de un tiempo. Cuando se acabe la dispersión del poder del pueblo santo, todas estas cosas serán cumplidas.”
+Y oí al hombre vestido de lino, que estaba sobre las aguas del río: levantó la mano derecha y la izquierda hacia el cielo y juró por Aquel que vive para siempre: “Será un tiempo, tiempos y medio tiempo. Cuando por fin quede quebrantado el poder del pueblo santo, se cumplirán todas estas cosas.”
 
 ## Daniel 12:8
-Y yo oí, pero no entendí. Entonces dije: “Señor mío, ¿cuál será el fin de estas cosas?”
+Yo lo oí, pero no lo entendí. Así que pregunté: “Mi señor, ¿cómo terminará todo esto?”
 
 ## Daniel 12:9
-Y él respondió: “Anda, Daniel, pues estas palabras están cerradas y selladas hasta el tiempo del fin.
+Él me respondió: “Sigue tu camino, Daniel, porque estas palabras quedan guardadas en secreto y selladas hasta el tiempo del fin.
 
 ## Daniel 12:10
-Muchos serán purificados, emblanquecidos y refinados; pero los impíos procederán impíamente, y ninguno de los impíos entenderá, pero los entendidos comprenderán.
+Muchos serán purificados, limpiados y refinados, pero los malvados seguirán actuando con maldad. Ninguno de los malvados entenderá, pero los que tienen entendimiento sí entenderán.
 
 ## Daniel 12:11
-Desde el tiempo en que sea quitado el sacrificio continuo y sea establecida la abominación desoladora, habrá mil doscientos noventa días.
+Desde el momento en que se suprima el sacrificio diario y se instale la abominación que causa desolación, pasarán mil doscientos noventa días.
 
 ## Daniel 12:12
-Bienaventurado el que espere, y llegue a mil trescientos treinta y cinco días.
+Dichoso el que persevere y llegue al final de los mil trescientos treinta y cinco días.
 
 ## Daniel 12:13
-Y tú, sigue hasta el fin; descansarás, y te levantarás para recibir tu heredad al fin de los días.”
+En cuanto a ti, sigue tu camino hasta el fin. Descansarás, y al final de los días te levantarás para recibir la parte que te corresponde.”

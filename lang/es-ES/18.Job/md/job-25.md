@@ -2,11 +2,11 @@
 
 ## Job 25:1
 
-Bildad el suhita respondió, diciendo,
+Bildad el suhita respondió diciendo:
 
 ## Job 25:2
 
-> “El dominio y el asombro pertenecen a Él que trae orden a las alturas.
+> “El dominio y el asombro pertenecen a Aquel que pone orden a las alturas.
 
 ## Job 25:3
 
@@ -24,5 +24,5 @@ Bildad el suhita respondió, diciendo,
 
 ## Job 25:6
 
-> ¡cuánto menos un humano, que es un gusano,
+> ¡cuánto menos un humano, que es una larva,
 >  y un hijo de hombre, que es un gusano!”

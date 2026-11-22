@@ -14,7 +14,7 @@ O si toca inmundicia humana, cualquiera que sea su forma, y le está oculto, per
 
 ## Levítico 5:4
 
-O si alguien hace un juramento imprudente de hacer cualquier cosa, ya sea buena o mala, en cualquier asunto sobre el que la gente pueda jurar descuidadamente, y le está oculto, pero luego se da cuenta de ello y se da cuenta de su culpa—
+O si alguien hace un juramento imprudente de hacer cualquier cosa, ya sea buena o mala, en cualquier asunto sobre el que la gente pueda jurar descuidadamente, y le está oculto, pero luego se da cuenta de ello y reconoce su culpa—
 
 ## Levítico 5:5
 
@@ -26,11 +26,11 @@ Como penalización por el pecado que han cometido, deben traer al Señor una hem
 
 ## Levítico 5:7
 
-Si no pueden costear un cordero, deben traer dos tórtolas o dos pichones al Señor como penalización por su pecado —uno para una ofrenda por el pecado y el otro para una ofrenda quemada—.
+Si no pueden costear un cordero, deben traer dos tórtolas o dos pichones al Señor como penalización por su pecado —uno para una ofrenda por el pecado y el otro para un holocausto—.
 
 ## Levítico 5:8
 
-Deben presentarlos al sacerdote, quien primero ofrecerá uno como ofrenda por el pecado. Debe pellizcar su cabeza en la parte delantera de su cuello, pero no separarla completamente,
+Deben presentarlos al sacerdote, quien primero ofrecerá uno como ofrenda por el pecado. Le retorcerá la cabeza por la parte delantera del cuello, pero sin separarla completamente,
 
 ## Levítico 5:9
 
@@ -38,7 +38,7 @@ y rociar parte de la sangre de la ofrenda por el pecado contra el lado del altar
 
 ## Levítico 5:10
 
-El segundo pájaro lo preparará como una ofrenda quemada según la ordenanza. Así el sacerdote hará expiación en su nombre por el pecado que han cometido, y serán perdonados.
+La segunda ave la preparará como holocausto según la ordenanza. Así el sacerdote hará expiación en su nombre por el pecado que han cometido, y serán perdonados.
 
 ## Levítico 5:11
 
@@ -50,7 +50,7 @@ Deben llevarla al sacerdote, quien tomará un puñado de ella como porción memo
 
 ## Levítico 5:13
 
-De esta manera, el sacerdote hará expiación por ellos respecto a cualquiera de estos pecados que han cometido, y serán perdonados. El resto de la ofrenda pertenecerá al sacerdote, como en el caso de la ofrenda de grano.’”
+De esta manera, el sacerdote hará expiación por ellos respecto a cualquiera de estos pecados que han cometido, y serán perdonados. El resto de la ofrenda pertenecerá al sacerdote, como en el caso de la ofrenda de cereal.’”
 
 ## Levítico 5:14
 
@@ -58,11 +58,11 @@ El Señor entonces habló a Moisés, diciendo,
 
 ## Levítico 5:15
 
-“Si alguien actúa infielmente y peca sin intención respecto a cualquiera de las cosas sagradas del Señor, debe traer al Señor como ofrenda de culpa un carnero sin defecto del rebaño, valorado en siclos de plata según el siclo del santuario. Es una ofrenda de culpa.
+“Si alguien actúa infielmente y peca sin intención respecto a cualquiera de las cosas sagradas del Señor, debe traer al Señor como ofrenda por la culpa un carnero sin defecto del rebaño, valorado en siclos de plata según el siclo del santuario. Es una ofrenda por la culpa.
 
 ## Levítico 5:16
 
-Deben hacer restitución por lo que han dejado de hacer respecto a las cosas sagradas, añadiendo una quinta parte de su valor y dándoselo al sacerdote. El sacerdote hará expiación por ellos con el carnero como ofrenda de culpa, y serán perdonados.
+Deben hacer restitución por lo que han dejado de hacer respecto a las cosas sagradas, añadiendo una quinta parte de su valor y dándoselo al sacerdote. El sacerdote hará expiación por ellos con el carnero como ofrenda por la culpa, y serán perdonados.
 
 ## Levítico 5:17
 
@@ -70,8 +70,8 @@ Si alguien peca y hace lo que está prohibido en cualquiera de los mandamientos 
 
 ## Levítico 5:18
 
-Deben llevar al sacerdote un carnero sin defecto del rebaño, valorado según tu estimación, como ofrenda de culpa. De esta manera, el sacerdote hará expiación por ellos por el mal que han cometido sin intención, y serán perdonados.
+Deben llevar al sacerdote un carnero sin defecto del rebaño, valorado según tu estimación, como ofrenda por la culpa. De esta manera, el sacerdote hará expiación por ellos por el mal que han cometido sin intención, y serán perdonados.
 
 ## Levítico 5:19
 
-Es una ofrenda de culpa; ciertamente han sido culpables ante el Señor.”
+Es una ofrenda por la culpa; ciertamente han sido culpables ante el Señor.”

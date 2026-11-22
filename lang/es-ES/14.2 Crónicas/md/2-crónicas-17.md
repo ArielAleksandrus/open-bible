@@ -32,7 +32,7 @@ Así, el Señor estableció firmemente el reino bajo su gobierno, y todo Judá t
 
 ## 2 Crónicas 17:6
 
-Y se enorgulleció en los caminos del Señor, y nuevamente quitó los lugares altos y las Aseras de Judá.
+Y su corazón se animó en los caminos del Señor, y nuevamente quitó los lugares altos y las Aseras de Judá.
 
 ---
 
@@ -44,7 +44,7 @@ En el tercer año de su reinado, envió a sus oficiales —Ben-hail, Abdías, Za
 
 ## 2 Crónicas 17:8
 
-y con ellos a los levitas, Semaías, Netanías, Zebadías, Asael, Semiramot, Jonatán, Adonías, Tobías y Tob-adonías —levitas; y con ellos a Elisama y Joram, sacerdotes—.
+y con ellos a los levitas, Semaías, Netanías, Zebadías, Asael, Semiramot, Jonatán, Adonías, Tobías y Tob-adonías, levitas; y con ellos a Elisama y Joram, sacerdotes.
 
 ---
 
@@ -75,7 +75,7 @@ Josafat continuó creciendo en poder, y construyó fortalezas y ciudades de alma
 
 ## 2 Crónicas 17:13
 
-Tenía abundantes provisiones en las ciudades de Judá, y guerreros, hombres valientes de fuerza, en Jerusalén.
+Tenía abundantes provisiones en las ciudades de Judá, y guerreros, hombres valientes y fuertes, en Jerusalén.
 
 ---
 
@@ -83,31 +83,31 @@ Tenía abundantes provisiones en las ciudades de Judá, y guerreros, hombres val
 
 Este fue su censo según las casas de sus padres:
 
->  de Judá, comandantes de miles: Adna el comandante, y con él 300,000 valientes guerreros;
+>  de Judá, comandantes de miles: Adna el comandante, y con él 300 000 valientes guerreros;
 
 ---
 
 ## 2 Crónicas 17:15
 
-> y junto a él, Johanán el comandante, y con él 280,000;
+> y junto a él, Johanán el comandante, y con él 280 000;
 
 ---
 
 ## 2 Crónicas 17:16
 
-> y junto a él, Amasías hijo de Zicri, quien se ofreció voluntariamente para el Señor, y con él 200,000 valientes guerreros;
+> y junto a él, Amasías hijo de Zicri, quien se ofreció voluntariamente para el Señor, y con él 200 000 valientes guerreros;
 
 ---
 
 ## 2 Crónicas 17:17
 
-> y de Benjamín: Eliada, un valiente guerrero, y con él 200,000 equipados con arco y escudo;
+> y de Benjamín: Eliada, un valiente guerrero, y con él 200 000 equipados con arco y escudo;
 
 ---
 
 ## 2 Crónicas 17:18
 
-> y junto a él, Jozabad, y con él 180,000 preparados para la guerra.
+> y junto a él, Jozabad, y con él 180 000 preparados para la guerra.
 
 ---
 

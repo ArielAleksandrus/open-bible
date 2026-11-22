@@ -3,77 +3,77 @@
 ## 2 Samuel 16:1
 
 Cuando David había pasado un poco más allá de la cumbre,  
- Ziba, el siervo de Mefiboset, lo encontró con un par de asnos ensillados,  
+ Siba, el siervo de Mefiboset, lo encontró con un par de asnos ensillados,  
  y sobre ellos había doscientos panes, cien racimos de pasas,  
  cien frutas de verano y un recipiente de vino.
 
 ## 2 Samuel 16:2
 
-El rey dijo a Ziba:  
+El rey dijo a Siba:  
  “¿Qué piensas hacer con esto?”  
- Ziba dijo: “Los asnos son para que monte la casa del rey,  
+ Siba dijo: “Los asnos son para que monte la casa del rey,  
  el pan y las frutas de verano son para que coman los jóvenes,  
  y el vino es para que beba el que se canse en el desierto.”
 
 ## 2 Samuel 16:3
 
-Entonces el rey dijo:  
- “¿Y dónde está el hijo de tu señor?”  
- Ziba dijo al rey:  
- “He aquí, él se queda en Jerusalén, porque ha dicho:  
- ‘Hoy la casa de Israel me devolverá el reino de mi padre.’”
+El rey le preguntó:  
+ “¿Y dónde está el hijo de tu amo?”  
+ Siba le respondió:  
+ “Se ha quedado en Jerusalén, porque piensa:  
+ ‘Hoy los israelitas me devolverán el reino de mi padre.’”
 
 ## 2 Samuel 16:4
 
-Así que el rey dijo a Ziba:  
+Así que el rey dijo a Siba:  
  “He aquí, todo lo que pertenecía a Mefiboset es ahora tuyo.”  
- Y Ziba dijo: “Me inclino ante ti; que halle gracia ante tus ojos, mi señor el rey.”
+ Y Siba dijo: “Me inclino ante ti; que halle gracia ante tus ojos, mi señor el rey.”
 
 ---
 
 ## 2 Samuel 16:5
 
 Cuando el rey David llegó a Bahurim,  
- he aquí que salió de allí un hombre de la familia de la casa de Saúl,  
- cuyo nombre era Simei, hijo de Gera;  
- salía maldiciendo continuamente mientras venía.
+ salió de allí un hombre de la familia de Saúl llamado Simei,  
+ hijo de Gera,  
+ y venía lanzando maldiciones sin parar.
 
 ## 2 Samuel 16:6
 
-Arrojó piedras a David y a todos los siervos del rey David,  
- aunque todo el pueblo y todos los hombres valientes estaban a su derecha e izquierda.
+Le tiraba piedras a David y a todos los siervos del rey David,  
+ aunque toda la gente y todos los guerreros lo rodeaban por ambos lados.
 
 ## 2 Samuel 16:7
 
-Así decía Simei cuando maldecía:  
- “¡Fuera, fuera, hombre sanguinario, hombre inútil!
+Y mientras maldecía, Simei gritaba:  
+ “¡Largo de aquí, largo, asesino, canalla!
 
 ## 2 Samuel 16:8
 
-El Señor ha hecho recaer sobre ti toda la sangre de la casa de Saúl,  
- en cuyo lugar has reinado.  
- El Señor ha entregado el reino en mano de tu hijo Absalón.  
- ¡He aquí, estás atrapado en tu propia maldad, porque eres un hombre sanguinario!”
+El Señor te ha hecho pagar toda la sangre de la familia de Saúl,  
+ a quien reemplazaste como rey.  
+ Ahora el Señor le ha dado el reino a tu hijo Absalón.  
+ ¡Mírate, atrapado en tu propia maldad, porque eres un asesino!”
 
 ## 2 Samuel 16:9
 
-Entonces Abisai, hijo de Sarvia, dijo al rey:  
- “¿Por qué ha de maldecir este perro muerto a mi señor el rey?  
- Déjame pasar ahora y le quitaré la cabeza.”
+Abisai, hijo de Sarvia, le dijo al rey:  
+ “¿Por qué este perro muerto ha de maldecir a mi señor el rey?  
+ Déjame ir allá y le corto la cabeza.”
 
 ## 2 Samuel 16:10
 
-Pero el rey dijo:  
- “¿Qué tengo yo que ver con vosotros, hijos de Sarvia?  
- Si él maldice, y si el Señor le ha dicho: ‘Maldice a David,’  
- entonces, ¿quién dirá: ‘¿Por qué has hecho esto?’”
+Pero el rey contestó:  
+ “Esto no es asunto vuestro, hijos de Sarvia.  
+ Si maldice porque el Señor le ha dicho: ‘Maldice a David’  
+, ¿quién puede pedirle cuentas de lo que hace?”
 
 ## 2 Samuel 16:11
 
-Entonces David dijo a Abisai y a todos sus siervos:  
- “He aquí, mi propio hijo, que salió de mis entrañas, busca mi vida;  
- ¿cuánto más ahora este benjaminita?  
- Déjalo solo y que maldiga, porque el Señor se lo ha dicho.
+Luego David dijo a Abisai y a todos sus siervos:  
+ “Si mi propio hijo, mi propia sangre, quiere quitarme la vida,  
+ ¡cuánto más este benjaminita!  
+ Dejadlo que maldiga, porque el Señor se lo ha dicho.
 
 ## 2 Samuel 16:12
 
@@ -130,17 +130,17 @@ Entonces Absalón dijo a Ahitofel:
 ## 2 Samuel 16:21
 
 Y Ahitofel dijo a Absalón:  
- “Entra a las concubinas de tu padre que dejó para guardar la casa;  
+ “Acuéstate con las concubinas de tu padre que dejó para guardar la casa;  
  entonces todo Israel oirá que te has hecho odioso a tu padre.  
  Entonces las manos de todos los que están contigo se fortalecerán.”
 
 ## 2 Samuel 16:22
 
 Así que levantaron una tienda para Absalón en el techo,  
- y Absalón entró a las concubinas de su padre a la vista de todo Israel.
+ y Absalón se acostó con las concubinas de su padre a la vista de todo Israel.
 
 ## 2 Samuel 16:23
 
-Ahora el consejo de Ahitofel, que daba en aquellos días,  
- era como si se consultara la palabra de Dios.  
- Así era todo el consejo de Ahitofel, tanto con David como con Absalón.
+En aquellos tiempos,  
+ un consejo de Ahitofel se tenía como si fuera una respuesta de Dios mismo.  
+ Así valoraban sus consejos tanto David como Absalón.

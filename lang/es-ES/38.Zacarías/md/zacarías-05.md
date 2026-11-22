@@ -10,7 +10,7 @@ Y él me dijo: “¿Qué ves?” Yo respondí: “Veo un rollo volando; su longi
 Entonces él me dijo: “Esta es la maldición que sale sobre toda la tierra; porque todo aquel que roba será eliminado según lo escrito en un lado, y todo aquel que jura falsamente será eliminado según lo escrito en el otro lado.
 
 ## Zacarías 5:4
-‘Yo la enviaré,’ declara el Señor de los Ejércitos, ‘y entrará en la casa del ladrón y en la casa del que jura falsamente por mi nombre. Permanecerá en esa casa y la destruirá con sus maderas y piedras.’”
+‘Yo la enviaré,’ declara el Señor de los ejércitos, ‘y entrará en la casa del ladrón y en la casa del que jura falsamente por mi nombre. Permanecerá en esa casa y la destruirá con sus maderas y piedras.’”
 
 ## Zacarías 5:5
 Entonces el ángel que hablaba conmigo se adelantó y dijo: “Levanta ahora tus ojos y ve qué es esto que sale.”

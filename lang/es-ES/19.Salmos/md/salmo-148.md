@@ -4,79 +4,79 @@
 
 > ¡Alabad al Señor!
 
->  Glorificad al Señor desde los cielos;  
->  ¡Alabadle en las alturas!
+>  Dad gloria al Señor desde el cielo;  
+>  ¡alabadlo allá en lo alto!
 
 ## Salmo 148:2
 
-> Alabadle, todos sus ángeles;  
->  Glorificadle, todos sus ejércitos celestiales!
+> ¡Alabadlo, todos sus ángeles!  
+>  ¡Dadle gloria, todos los ejércitos del cielo!
 
 ## Salmo 148:3
 
-> Alabadle, sol y luna;  
->  Glorificadle, todas las estrellas resplandecientes!
+> ¡Alabadlo, sol y luna!  
+>  ¡Dadle gloria, estrellas brillantes!
 
 ## Salmo 148:4
 
-> Alabadle, cielos de los cielos,  
->  Y las aguas que están sobre los cielos!
+> ¡Alabadlo, cielos más altos,  
+>  y vosotras, aguas que estáis sobre el cielo!
 
 ---
 
 ## Salmo 148:5
 
-> Alaben el nombre del Señor,  
->  Porque Él mandó, y fueron creados.
+> Que todos alaben el nombre del Señor,  
+>  porque Él dio la orden, y todo empezó a existir.
 
 ## Salmo 148:6
 
-> Él los estableció para siempre jamás;  
->  Ha dado una ley que no pasará.
+> Los puso en su lugar para siempre;  
+>  dio una ley que nunca dejará de cumplirse.
 
 ---
 
 ## Salmo 148:7
 
-> Glorificad al Señor desde la tierra,  
->  Criaturas del mar y todos los abismos oceánicos;
+> Dad gloria al Señor desde la tierra,  
+>  criaturas del mar y profundidades del océano;
 
 ## Salmo 148:8
 
-> Fuego y granizo, nieve y niebla;  
->  Viento tempestuoso que cumple su palabra;
+> relámpagos y granizo, nieve y neblina,  
+>  viento de tormenta que cumple sus órdenes;
 
 ## Salmo 148:9
 
-> Las altas montañas y las suaves colinas;  
->  Árboles frutales y majestuosos cedros;
+> montañas altísimas y colinas suaves,  
+>  árboles frutales y cedros majestuosos;
 
 ## Salmo 148:10
 
-> Animales y todo el ganado;  
->  Reptiles y aves voladoras;
+> animales salvajes y todo el ganado,  
+>  animales que se arrastran y aves que vuelan;
 
 ## Salmo 148:11
 
-> Los reyes de la tierra y todos los pueblos;  
->  Todos los gobernantes y todos los jueces de la tierra;
+> reyes de la tierra y todas las naciones,  
+>  gobernantes y jueces de todo el mundo;
 
 ## Salmo 148:12
 
-> Tanto jóvenes como doncellas;  
->  Los ancianos y los niños.
+> muchachos y muchachas,  
+>  ancianos y niños.
 
 ---
 
 ## Salmo 148:13
 
-> Alaben el nombre del Señor,  
->  Porque sólo su nombre es exaltado;  
->  Su esplendor está sobre la tierra y el cielo.
+> Que alaben el nombre del Señor,  
+>  porque solo su nombre está por encima de todo;  
+>  su esplendor está sobre la tierra y el cielo.
 
 ## Salmo 148:14
 
-> Y Él ha levantado un cuerno para su pueblo,  
->  Alabanza para todos sus fieles,  
->  Para los hijos de Israel, un pueblo cercano a Él.  
+> Él ha dado fuerza y poder a su pueblo;  
+>  motivo de alabanza para todos sus fieles,  
+>  los israelitas, el pueblo que está cerca de Él.  
 >  ¡Alabad al Señor!

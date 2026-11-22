@@ -70,11 +70,11 @@ Cada hombre debe tomar su incensario y poner incienso en él —250 incensarios 
 
 ## Números 16:18
 
-Así que cada uno de ellos tomó su incensario, puso fuego en él, y colocó incienso sobre él, y se pararon con Moisés y Aarón a la entrada del tabernáculo de reunión.
+Así que cada uno de ellos tomó su incensario, puso fuego en él, y colocó incienso sobre él, y se pararon con Moisés y Aarón a la entrada del tienda de reunión.
 
 ## Números 16:19
 
-Cuando Coré reunió a todos sus seguidores en oposición a la entrada del tabernáculo de reunión, la gloria del Señor apareció a toda la asamblea.
+Cuando Coré reunió a todos sus seguidores en oposición a la entrada del tienda de reunión, la gloria del Señor apareció a toda la asamblea.
 
 ## Números 16:20
 
@@ -82,7 +82,7 @@ Entonces el Señor se dirigió a Moisés y Aarón, diciendo,
 
 ## Números 16:21
 
-“Separáos de esta asamblea para que pueda consumirlos instantáneamente.”
+“Separaos de esta asamblea para que pueda consumirlos instantáneamente.”
 
 ## Números 16:22
 
@@ -90,7 +90,7 @@ Pero ellos se postraron y dijeron: “Oh Dios, el Dios que da aliento a todos lo
 
 ## Números 16:23
 
-Y así el Señor habló a Moisés, diciendo
+Y así el Señor habló a Moisés, diciendo:
 
 ## Números 16:24
 
@@ -142,7 +142,7 @@ Y fuego salió del Señor y consumió a los 250 hombres que ofrecían el inciens
 
 ## Números 16:36
 
-Y así el Señor habló a Moisés, diciendo
+Y así el Señor habló a Moisés, diciendo:
 
 ## Números 16:37
 
@@ -158,7 +158,7 @@ Así que Eleazar el sacerdote tomó los incensarios de bronce traídos por aquel
 
 ## Números 16:40
 
-como un recordatorio para los israelitas de que nadie excepto un descendiente de Aarón debe venir a quemar incienso delante del Señor, o se volvería como Coré y sus seguidores —tal como el Señor había hablado a él por medio de Moisés—.
+como un recordatorio para los israelitas de que nadie excepto un descendiente de Aarón debe venir a quemar incienso delante del Señor, o se volvería como Coré y sus seguidores —tal como el Señor le había dicho por medio de Moisés—.
 
 ## Números 16:41
 
@@ -166,19 +166,19 @@ Pero al día siguiente toda la comunidad israelita murmuró contra Moisés y Aar
 
 ## Números 16:42
 
-Cuando la asamblea se reunió en oposición a Moisés y Aarón y se volvió hacia el tabernáculo de reunión, la nube lo cubrió y la gloria del Señor apareció.
+Cuando la asamblea se reunió en oposición a Moisés y Aarón y se volvió hacia el tienda de reunión, la nube lo cubrió y la gloria del Señor apareció.
 
 ## Números 16:43
 
-Moisés y Aarón se acercaron al frente del tabernáculo de reunión,
+Moisés y Aarón se acercaron al frente de la tienda de reunión.
 
 ## Números 16:44
 
-Y así el Señor habló a Moisés, diciendo
+Y así el Señor habló a Moisés, diciendo:
 
 ## Números 16:45
 
-“Apártaos de esta asamblea para que pueda consumirlos instantáneamente.” Y ellos se postraron.
+“Apartaos de esta asamblea para que pueda consumirlos instantáneamente.” Y ellos se postraron.
 
 ## Números 16:46
 
@@ -194,8 +194,8 @@ Se paró entre los vivos y los muertos, y la plaga se detuvo.
 
 ## Números 16:49
 
-Pero 14,700 personas perecieron por la plaga, además de aquellos que habían muerto por causa de Coré.
+Pero 14 700 personas perecieron por la plaga, además de aquellos que habían muerto por causa de Coré.
 
 ## Números 16:50
 
-Entonces Aarón regresó a Moisés a la entrada del tabernáculo de reunión, porque la plaga había sido detenida.
+Entonces Aarón regresó a Moisés a la entrada del tienda de reunión, porque la plaga había sido detenida.

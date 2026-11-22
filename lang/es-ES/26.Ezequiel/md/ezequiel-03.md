@@ -31,7 +31,7 @@ Como la piedra más dura, más dura que el pedernal, he hecho tu frente. No les 
 Además, Él me dijo: “Hijo de hombre, toma en tu corazón todas las palabras que te hablaré y escucha atentamente.
 
 ## Ezequiel 3:11
-Ve ahora a tu pueblo en el exilio y háblales. Diles, ‘Esto es lo que dice el Señor Soberano,’ ya sea que escuchen o no.”
+Ve ahora a tu pueblo en el exilio y háblales. Diles, ‘Esto es lo que dice el Señor Dios,’ ya sea que escuchen o no.”
 
 ## Ezequiel 3:12
 Entonces el Espíritu me levantó, y oí un gran sonido retumbante detrás de mí: “¡Sea alabada la gloria del Señor desde Su lugar!”
@@ -52,16 +52,16 @@ Después de siete días, la palabra del Señor vino a mí, diciendo,
 “Hijo de hombre, te he designado como centinela para la casa de Israel; así que escucha la palabra que hablo y adviérteles de Mi parte.
 
 ## Ezequiel 3:18
-Cuando declare a una persona malvada, ‘Estás destinado a morir,’ y no les adviertas ni hables para apartarlos de sus malos caminos para salvar su vida, esa persona malvada morirá por su pecado, y te haré responsable de su sangre.
+Cuando declare a una persona malvada, ‘Estás destinado a morir,’ y no le adviertes ni le hablas para apartarlo de sus malos caminos para salvar su vida, esa persona malvada morirá por su pecado, y te haré responsable de su sangre.
 
 ## Ezequiel 3:19
-Pero si adviertes a la persona malvada y no se aparta de su maldad o de sus malos caminos, morirán por su pecado; sin embargo, habrás rescatado a ti mismo.
+Pero si adviertes a la persona malvada y no se aparta de su maldad o de sus malos caminos, morirá por su pecado; sin embargo, tú habrás salvado tu vida.
 
 ## Ezequiel 3:20
-De nuevo, cuando una persona justa se aparta de su justicia y hace el mal, y pongo un obstáculo delante de ellos, morirán. Ya que no les advertiste, morirán por su pecado, y sus obras justas no serán recordadas, pero te haré responsable de su sangre.
+De nuevo, cuando una persona justa se aparta de su justicia y hace el mal, y pongo un obstáculo delante de él, morirá. Ya que no le advertiste, morirá por su pecado, y sus obras justas no serán recordadas, pero te haré responsable de su sangre.
 
 ## Ezequiel 3:21
-Sin embargo, si adviertes a la persona justa que no peque y no peca, ciertamente vivirá porque tomó la advertencia, y habrás salvado a ti mismo.”
+Sin embargo, si adviertes a la persona justa que no peque y no peca, ciertamente vivirá porque tomó la advertencia, y tú habrás salvado tu vida.”
 
 ## Ezequiel 3:22
 Ahora la mano del Señor estaba sobre mí allí, y Él me dijo: “Levántate, sal a la llanura, y allí te hablaré.”
@@ -79,4 +79,4 @@ Y en cuanto a ti, hijo de hombre, te atarán con cuerdas para que no puedas sali
 Además, haré que tu lengua se pegue al paladar para que estés en silencio y no puedas reprenderlos, porque son una casa rebelde.
 
 ## Ezequiel 3:27
-Pero cuando te hable, abriré tu boca y les dirás, ‘Esto es lo que dice el Señor Soberano.’ Quien quiera escuchar, que escuche, y quien quiera rechazar, que rechace; porque son una casa rebelde.
+Pero cuando te hable, abriré tu boca y les dirás, ‘Esto es lo que dice el Señor Dios.’ Quien quiera escuchar, que escuche, y quien quiera rechazar, que rechace; porque son una casa rebelde.

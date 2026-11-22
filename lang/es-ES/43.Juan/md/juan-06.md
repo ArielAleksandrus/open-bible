@@ -38,7 +38,7 @@ Uno de sus discípulos, Andrés, que era hermano de Simón Pedro, le dijo,
 
 ## Juan 6:10
 
-Jesús dijo: “Hagan que la gente se siente.” Había mucha hierba en ese lugar, así que se sentaron, unos cinco mil hombres en número.
+Jesús dijo: “Haced que la gente se siente.” Había mucha hierba en ese lugar, así que se sentaron, unos cinco mil hombres.
 
 ## Juan 6:11
 
@@ -46,7 +46,7 @@ Entonces Jesús tomó los panes, dio gracias, y los distribuyó a los que estaba
 
 ## Juan 6:12
 
-Cuando se saciaron, dijo a sus discípulos: “Recojan los pedazos sobrantes, para que no se pierda nada.”
+Cuando se saciaron, dijo a sus discípulos: “Recoged los pedazos sobrantes, para que no se pierda nada.”
 
 ## Juan 6:13
 
@@ -76,11 +76,11 @@ El mar se agitó debido a un fuerte viento.
 
 ## Juan 6:19
 
-Cuando habían remado unos tres o cuatro kilómetros, vieron a Jesús caminando sobre el mar y acercándose a la barca, y se asustaron.
+Cuando habían remado unos cinco o seis kilómetros, vieron a Jesús caminando sobre el mar y acercándose a la barca, y se asustaron.
 
 ## Juan 6:20
 
-Pero Él les tranquilizó, “Soy yo; no tengan miedo.”
+Pero Él les tranquilizó, “Soy yo; no tengáis miedo.”
 
 ## Juan 6:21
 
@@ -156,15 +156,15 @@ Pero como os dije, me habéis visto, y aun así no creéis.
 
 ## Juan 6:37
 
-Todo lo que el Padre me da vendrá a mí, y al que viene a mí no lo echaré fuera.
+Todo lo que el Padre me da vendrá a mí, y al que venga a mí nunca lo apartaré.
 
 ## Juan 6:38
 
-Porque he descendido del cielo, no para hacer mi voluntad, sino para cumplir la voluntad del que me envió.
+Porque he bajado del cielo, no para hacer lo que yo quiero, sino para cumplir la voluntad del que me envió.
 
 ## Juan 6:39
 
-Y esta es la voluntad del que me envió, que no pierda nada de lo que Él me ha dado, sino que lo resucite en el último día.
+Y el propósito del que me envió es que yo no pierda a ninguno de los que Él me ha dado, sino que los resucite en el último día.
 
 ## Juan 6:40
 
@@ -194,7 +194,7 @@ Está escrito en los Profetas: ‘Todos serán instruidos por Dios.’ Todo aque
 
 ## Juan 6:46
 
-Nadie ha visto al Padre excepto aquel que es de Dios; Él solo ha visto al Padre.
+Nadie ha visto al Padre excepto aquel que es de Dios; solo Él ha visto al Padre.
 
 ## Juan 6:47
 
@@ -248,7 +248,7 @@ Este es el pan que ha descendido del cielo. Vuestros antepasados comieron maná 
 
 ## Juan 6:59
 
-Él expresó estas enseñanzas mientras instruía en la sinagoga en Capernaúm.
+Jesús dijo estas cosas mientras enseñaba en la sinagoga de Capernaúm.
 
 ---
 
@@ -288,7 +288,7 @@ Desde ese momento, muchos de sus discípulos se volvieron atrás y ya no lo sigu
 
 ## Juan 6:68
 
-Simón Pedro le respondió: “Señor, ¿a quién iremos? Tú tienes palabras de vida eterna.
+Simón Pedro le respondió: “Señor, ¿a quién vamos a acudir? Tú tienes las palabras de vida eterna.
 
 ## Juan 6:69
 

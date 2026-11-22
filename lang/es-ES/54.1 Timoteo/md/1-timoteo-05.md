@@ -2,11 +2,11 @@
 
 ## 1 Timoteo 5:1
 
-No reprendas con dureza a un anciano, sino exhórtalo como a un padre, a los jóvenes como a hermanos,
+No corrijas con dureza a un hombre mayor; más bien, anímalo como si fuera tu padre, y a los jóvenes, como a hermanos,
 
 ## 1 Timoteo 5:2
 
-a las ancianas como a madres, a las jóvenes como a hermanas, con toda pureza.
+a las mujeres mayores, como a madres, y a las jóvenes, como a hermanas, con toda pureza.
 
 ## 1 Timoteo 5:3
 
@@ -18,19 +18,19 @@ pero si alguna viuda tiene hijos o nietos, ellos deben aprender a mostrar el deb
 
 ## 1 Timoteo 5:5
 
-Ahora bien, la que es verdaderamente viuda y ha quedado sola, ha puesto su esperanza en Dios, y continúa en súplicas y oraciones noche y día.
+La que de verdad es viuda y se ha quedado sola ha puesto su esperanza en Dios y sigue pidiendo y orando día y noche.
 
 ## 1 Timoteo 5:6
 
-Pero la que vive entregada al placer, aunque viva, está muerta.
+Pero la que vive solo para darse gusto, aunque esté viva, es como si estuviera muerta.
 
 ## 1 Timoteo 5:7
 
-Proporciona estas instrucciones también, para que sean irreprochables.
+Da también estas instrucciones, para que sean irreprochables.
 
 ## 1 Timoteo 5:8
 
-Sin embargo, si alguien no cuida de los suyos, y especialmente de los de su casa, ha negado la fe y es peor que un incrédulo.
+Pero si alguien no se ocupa de los suyos, y sobre todo de los de su propia casa, ha negado la fe y es peor que alguien que no cree.
 
 ## 1 Timoteo 5:9
 
@@ -62,7 +62,7 @@ porque algunas ya se han desviado y ahora siguen a Satanás.
 
 ## 1 Timoteo 5:16
 
-Si alguna mujer creyente tiene viudas a su cargo, debe ayudarlas y la iglesia no debe ser cargada, para que pueda ayudar a las que realmente son viudas.
+Si alguna mujer creyente tiene viudas a su cargo, debe ayudarlas y que no sea una carga para la iglesia, para que pueda ayudar a las que realmente son viudas.
 
 ## 1 Timoteo 5:17
 
@@ -78,23 +78,23 @@ No aceptes una acusación contra un anciano a menos que esté confirmada por dos
 
 ## 1 Timoteo 5:20
 
-A los que continúan en pecado, repréndelos en presencia de todos, para que los demás también tengan temor.
+A los que siguen pecando, llámales la atención delante de todos, para que los demás también tengan miedo.
 
 ## 1 Timoteo 5:21
 
-Te insto encarecidamente en la presencia de Dios y de Cristo Jesús y de Sus ángeles escogidos, a mantener estos principios sin prejuicios, haciendo nada con parcialidad.
+Te insto encarecidamente en la presencia de Dios y de Cristo Jesús y de Sus ángeles escogidos, a mantener estos principios sin prejuicios, sin hacer nada con parcialidad.
 
 ## 1 Timoteo 5:22
 
-No impongas las manos precipitadamente a nadie y así participes en los pecados de otros; mantente libre de pecado.
+No te apresures a imponer las manos a nadie, para no hacerte cómplice de los pecados de otros; mantente lejos del pecado.
 
 ## 1 Timoteo 5:23
 
-No te limites a beber solo agua, sino usa un poco de vino por causa de tu estómago y tus frecuentes enfermedades.
+No bebas solamente agua; toma también un poco de vino por tu estómago y porque te enfermas a menudo.
 
 ## 1 Timoteo 5:24
 
-Los pecados de algunas personas son bastante evidentes, precediéndolos al juicio; para otros, sus pecados los siguen después.
+Los pecados de algunas personas son bastante evidentes, y van delante de ellos al juicio; a otros, sus pecados los siguen después.
 
 ## 1 Timoteo 5:25
 

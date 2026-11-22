@@ -34,7 +34,7 @@ Habitarás en la tierra de Gosén y estarás cerca de mí —tú, tus hijos y tu
 Yo te proveeré allí, porque aún quedan cinco años de hambre, para que no caigas en la miseria tú, tu casa y todo lo que tienes.’
 
 ## Génesis 45:12
-He aquí, vuestros ojos y los ojos de mi hermano Benjamín ven que soy yo quien os habla.
+Vosotros mismos estáis viendo con vuestros ojos, y también mi hermano Benjamín lo ve con los suyos, que soy yo quien os habla.
 
 ## Génesis 45:13
 Contad a mi padre toda mi gloria en Egipto y todo lo que habéis visto. Y traed a mi padre aquí rápidamente.”
@@ -64,7 +64,7 @@ No os preocupéis por vuestras pertenencias, porque lo mejor de toda la tierra d
 Los hijos de Israel lo hicieron así. José les dio carros, como Faraón había mandado, y también les proporcionó provisiones para el viaje.
 
 ## Génesis 45:22
-A cada uno de ellos les dio mudas de ropa, pero a Benjamín le dio trescientas piezas de plata y cinco mudas de ropa.
+A cada uno de ellos le dio mudas de ropa, pero a Benjamín le dio trescientas piezas de plata y cinco mudas de ropa.
 
 ## Génesis 45:23
 A su padre le envió lo siguiente: diez asnos cargados con lo mejor de Egipto, y diez asnas cargadas con grano, pan y provisiones para el viaje.

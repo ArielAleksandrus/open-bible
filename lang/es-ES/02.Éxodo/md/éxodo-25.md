@@ -73,7 +73,7 @@ En ese lugar, sobre la cubierta y entre los dos querubines que están posicionad
 Recúbrela con oro puro y crea un borde de oro alrededor de ella.
 
 ## Éxodo 25:25
-Haz también un borde de un palmo de ancho alrededor de ella y pon un molde de oro en el borde.
+Haz también un borde de un palmo de ancho alrededor de ella y pon una moldura de oro en el borde.
 
 ## Éxodo 25:26
 Crea cuatro anillos de oro para la mesa y asegúralos a las cuatro esquinas, donde están las cuatro patas.

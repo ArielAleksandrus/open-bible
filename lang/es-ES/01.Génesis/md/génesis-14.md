@@ -58,16 +58,16 @@ Entonces Melquisedec, rey de Salem, sacó pan y vino; él era sacerdote del Dios
 Bendijo a Abram, diciendo: “Bendito sea Abram por el Dios Altísimo, Creador del cielo y de la tierra.
 
 ## Génesis 14:20
-Y alabado sea el Dios Altísimo, que ha entregado a tus enemigos en tus manos.” Entonces Abram le dio un décimo de todo.
+Y alabado sea el Dios Altísimo, que ha entregado a tus enemigos en tus manos.” Entonces Abram le dio la décima parte de todo.
 
 ## Génesis 14:21
 El rey de Sodoma dijo a Abram: “Devuélveme las personas y quédate con los bienes para ti.”
 
 ## Génesis 14:22
-Pero Abram dijo al rey de Sodoma: “He jurado un juramento al Señor, Dios Altísimo, Creador del cielo y de la tierra,
+Pero Abram dijo al rey de Sodoma: “He hecho un juramento al Señor, Dios Altísimo, Creador del cielo y de la tierra,
 
 ## Génesis 14:23
 que no tomaré nada que te pertenezca, ni siquiera un hilo o una correa de sandalia, para que nunca puedas decir: ‘Yo hice rico a Abram.’
 
 ## Génesis 14:24
-No aceptaré nada excepto lo que mis hombres han comido y la parte que corresponde a los hombres que fueron conmigo —Aner, Escol y Mamre. Que ellos tomen su parte—.”
+No aceptaré nada excepto lo que mis hombres han comido y la parte que corresponde a los hombres que fueron conmigo —Aner, Escol y Mamre—. Que ellos tomen su parte.”

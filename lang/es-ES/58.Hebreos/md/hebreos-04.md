@@ -41,7 +41,7 @@ Porque si Josué les hubiera proporcionado reposo, Dios no habría mencionado ot
 
 ## Hebreos 4:9
 
-Como resultado, un reposo sabático todavía está disponible para el pueblo de Dios.
+Por tanto, todavía queda un reposo sabático para el pueblo de Dios.
 
 ## Hebreos 4:10
 
@@ -53,7 +53,7 @@ Esforcémonos, por lo tanto, por entrar en ese reposo, para que nadie caiga sigu
 
 ## Hebreos 4:12
 
-Porque la palabra de Dios es viva y eficaz, más cortante que cualquier espada de dos filos, penetra hasta dividir el alma y el espíritu, las coyunturas y los tuétanos; juzga los pensamientos y las intenciones del corazón.
+Porque la palabra de Dios tiene vida y poder, y corta mejor que cualquier espada de dos filos; penetra tan hondo que llega a separar el alma del espíritu y las articulaciones de los huesos; y juzga los pensamientos y las intenciones del corazón.
 
 ## Hebreos 4:13
 
@@ -65,8 +65,8 @@ Por lo tanto, puesto que tenemos un gran sumo sacerdote que ha atravesado los ci
 
 ## Hebreos 4:15
 
-Porque no tenemos un sumo sacerdote que no pueda compadecerse de nuestras debilidades, sino uno que ha sido tentado en todo, tal como nosotros, pero sin pecado.
+Porque nuestro sumo sacerdote no es alguien incapaz de comprender nuestras debilidades, sino que fue tentado en todo igual que nosotros, aunque sin pecar.
 
 ## Hebreos 4:16
 
-Acerquémonos entonces al trono de la gracia con confianza, para que podamos recibir misericordia y encontrar gracia que nos ayude en nuestro momento de necesidad.
+Así que acerquémonos con confianza al trono de la gracia, para recibir misericordia y encontrar la gracia que nos ayude cuando la necesitemos.

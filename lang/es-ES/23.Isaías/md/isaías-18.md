@@ -13,10 +13,10 @@ Todos vosotros, habitantes del mundo, que moráis en la tierra, cuando se alce u
 Porque esto es lo que el Señor me ha dicho: “Permaneceré tranquilo y observaré desde mi lugar de morada, como el calor resplandeciente al sol, como una nube de rocío en el calor de la cosecha.”
 
 ## Isaías 18:5
-Porque antes de la cosecha, cuando la flor ha desaparecido y la flor se convierte en uva madura, cortará los brotes con cuchillos de podar, y quitará y llevará las ramas extendidas.
+Porque antes de la cosecha, cuando ha pasado la floración y la flor se convierte en uva que madura, cortará los brotes con cuchillos de podar, y quitará y llevará las ramas extendidas.
 
 ## Isaías 18:6
 Serán dejados juntos para las aves de rapiña de los montes y para los animales salvajes; las aves se alimentarán de ellos todo el verano, y los animales salvajes se alimentarán de ellos todo el invierno.
 
 ## Isaías 18:7
-En ese tiempo se llevarán ofrendas al Señor Todopoderoso de un pueblo alto y de piel tersa, de un pueblo temido de cerca y de lejos, una nación poderosa y agresiva, cuya tierra está dividida por ríos —al lugar del Nombre del Señor Todopoderoso, al Monte Sión—.
+En ese tiempo se llevarán ofrendas al Señor de los ejércitos de un pueblo alto y de piel tersa, de un pueblo temido de cerca y de lejos, una nación poderosa y agresiva, cuya tierra está dividida por ríos —al lugar del Nombre del Señor de los ejércitos, al Monte Sion—.

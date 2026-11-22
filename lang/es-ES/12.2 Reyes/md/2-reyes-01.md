@@ -6,7 +6,7 @@ Después de la muerte de Acab, Moab se rebeló contra Israel.
 
 ## 2 Reyes 1:2
 
-Ahora Ocozías cayó por el enrejado de su aposento alto en Samaria y se lastimó.  
+Ocozías cayó por el enrejado de su aposento alto en Samaria y se lastimó.  
  Entonces envió mensajeros, diciéndoles: “Id y consultad a Baal-zebub, el dios de Ecrón, si me recuperaré de esta lesión.”
 
 ## 2 Reyes 1:3
@@ -29,7 +29,7 @@ Al regresar los mensajeros, el rey preguntó: “¿Por qué habéis vuelto?”
 ## 2 Reyes 1:6
 
 Ellos respondieron: “Un hombre vino a nuestro encuentro y nos dijo,  
- ‘Regresad al rey que os envió y decidle,  
+ ‘Regresad al rey que os envió y decidle:  
  Esto es lo que dice el Señor: ¿Es porque no hay Dios en Israel que envías hombres a consultar a Baal-zebub, el dios de Ecrón?  
  Por lo tanto, no saldrás de la cama en la que estás acostado. Ciertamente morirás.’”
 

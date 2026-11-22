@@ -56,7 +56,7 @@ Que Dios haga así a Abner, y aún más,
 
 trasladar el reino de la casa de Saúl,  
  y establecer el trono de David sobre Israel y sobre Judá,  
- desde Dan hasta Beerseba!”
+ desde Dan hasta Beerseba.”
 
 ## 2 Samuel 3:11
 
@@ -164,7 +164,7 @@ Cuando Joab salió de David, envió mensajeros tras Abner,
 
 Así que cuando Abner regresó a Hebrón, Joab lo llevó aparte al medio de la puerta para hablar con él en privado,  
  y allí lo hirió en el estómago,  
- y murió como resultado de la sangre de Asael su hermano.
+ y murió, en venganza por la sangre de Asael su hermano.
 
 ---
 
@@ -208,8 +208,8 @@ Y el rey cantó una canción de duelo por Abner y dijo:
 ## 2 Samuel 3:34
 
 > Tus manos no estaban atadas,  
->  Ni tus pies puestos en grilletes de bronce;  
->  Como uno cae ante los malvados, has caído.”  
+>  ni tus pies puestos en grilletes de bronce;  
+>  como uno cae ante los malvados, has caído.”  
 >  Y todo el pueblo lloró de nuevo por él.
 
 ## 2 Samuel 3:35

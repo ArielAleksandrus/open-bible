@@ -86,7 +86,7 @@ De Gersón vinieron las familias de los libnitas y los simeitas; estas eran las 
 
 ## Números 3:22
 
-Sus hombres contados, en el conteo de todo varón de un mes de edad en adelante, fueron 7,500.
+Sus hombres contados, en el conteo de todo varón de un mes de edad en adelante, fueron 7 500.
 
 ## Números 3:23
 
@@ -110,7 +110,7 @@ De Coat vinieron las familias de los amramitas, los izharitas, los hebronitas y 
 
 ## Números 3:28
 
-En el conteo de todo varón de un mes de edad en adelante, había 8,600, responsables de las tareas del santuario.
+En el conteo de todo varón de un mes de edad en adelante, había 8 600, responsables de las tareas del santuario.
 
 ## Números 3:29
 
@@ -134,7 +134,7 @@ De Merari vinieron las familias de los mahlitas y los musitas; estas eran las fa
 
 ## Números 3:34
 
-Sus hombres contados en el conteo de todo varón de un mes de edad en adelante fueron 6,200.
+Sus hombres contados en el conteo de todo varón de un mes de edad en adelante fueron 6 200.
 
 ## Números 3:35
 
@@ -154,7 +154,7 @@ Aquellos que debían acampar frente al tabernáculo al este, frente a la tienda 
 
 ## Números 3:39
 
-Todos los hombres contados de los levitas, a quienes Moisés y Aarón contaron por mandato del Señor por sus familias, todo varón de un mes de edad en adelante, fueron 22,000.
+Todos los hombres contados de los levitas, a quienes Moisés y Aarón contaron por mandato del Señor por sus familias, todo varón de un mes de edad en adelante, fueron 22 000.
 
 ## Números 3:40
 
@@ -170,7 +170,7 @@ Así que Moisés contó a todos los primogénitos entre los hijos de Israel, tal
 
 ## Números 3:43
 
-Y todos los primogénitos varones, por el número de nombres de un mes de edad en adelante, fueron 22,273.
+Y todos los primogénitos varones, por el número de nombres de un mes de edad en adelante, fueron 22 273.
 
 ## Números 3:44
 
@@ -198,7 +198,7 @@ Así que Moisés recogió el dinero de redención de aquellos que excedían el n
 
 ## Números 3:50
 
-de los primogénitos de los hijos de Israel recogió el dinero en términos del siclo del santuario, 1,365.
+de los primogénitos de los hijos de Israel recogió el dinero en términos del siclo del santuario, 1 365.
 
 ## Números 3:51
 

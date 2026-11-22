@@ -6,11 +6,11 @@ Estos son los habitantes de la provincia que regresaron del cautiverio de los ex
 
 ## Esdras 2:2
 
-Vinieron con Zorobabel, Jesúa, Nehemías, Seraías, Reelaías, Mardoqueo, Bilshan, Mispar, Bigvai, Rehum y Baaná. Aquí está la lista de los hombres del pueblo de Israel:
+Vinieron con Zorobabel, Jesúa, Nehemías, Seraías, Reelaías, Mardoqueo, Bilsán, Mispar, Bigvai, Rehum y Baaná. Aquí está la lista de los hombres del pueblo de Israel:
 
 ## Esdras 2:3
 
-> la línea de Paros, numerada 2,172;
+> la línea de Paros, numerada 2 172;
 
 ## Esdras 2:4
 
@@ -22,11 +22,11 @@ Vinieron con Zorobabel, Jesúa, Nehemías, Seraías, Reelaías, Mardoqueo, Bilsh
 
 ## Esdras 2:6
 
-> la línea de Pahat-Moab, a través de la línea de Jesúa y Joab, numerada 2,812;
+> la línea de Pahat-Moab, a través de la línea de Jesúa y Joab, numerada 2 812;
 
 ## Esdras 2:7
 
-> la línea de Elam, numerada 1,254;
+> la línea de Elam, numerada 1 254;
 
 ## Esdras 2:8
 
@@ -46,7 +46,7 @@ Vinieron con Zorobabel, Jesúa, Nehemías, Seraías, Reelaías, Mardoqueo, Bilsh
 
 ## Esdras 2:12
 
-> la línea de Azgad, numerada 1,222;
+> la línea de Azgad, numerada 1 222;
 
 ## Esdras 2:13
 
@@ -54,7 +54,7 @@ Vinieron con Zorobabel, Jesúa, Nehemías, Seraías, Reelaías, Mardoqueo, Bilsh
 
 ## Esdras 2:14
 
-> la línea de Bigvai, numerada 2,056;
+> la línea de Bigvai, numerada 2 056;
 
 ## Esdras 2:15
 
@@ -124,7 +124,7 @@ Vinieron con Zorobabel, Jesúa, Nehemías, Seraías, Reelaías, Mardoqueo, Bilsh
 
 ## Esdras 2:31
 
-> la línea del otro Elam, numerada 1,254;
+> la línea del otro Elam, numerada 1 254;
 
 ## Esdras 2:32
 
@@ -140,7 +140,7 @@ Vinieron con Zorobabel, Jesúa, Nehemías, Seraías, Reelaías, Mardoqueo, Bilsh
 
 ## Esdras 2:35
 
-> la línea de Senaá, numerada 3,630.
+> la línea de Senaá, numerada 3 630.
 
 ## Esdras 2:36
 
@@ -148,15 +148,15 @@ Vinieron con Zorobabel, Jesúa, Nehemías, Seraías, Reelaías, Mardoqueo, Bilsh
 
 ## Esdras 2:37
 
-> la línea de Imer, numerada 1,052;
+> la línea de Imer, numerada 1 052;
 
 ## Esdras 2:38
 
-> la línea de Pasur, numerada 1,247;
+> la línea de Pasur, numerada 1 247;
 
 ## Esdras 2:39
 
-> la línea de Harim, numerada 1,017.
+> la línea de Harim, numerada 1 017.
 
 ---
 
@@ -260,7 +260,7 @@ Las familias de Delaía, Tobías y Necoda, 652.
 Y de entre los sacerdotes:
 
 >  los descendientes de Hobaias, Hacoz y Barzilai,
->  que se había casado con una hija de Barzilai el Galaadita y fue llamado por su nombre.
+>  que se había casado con una hija de Barzilai el galaadita y fue llamado por su nombre.
 
 ## Esdras 2:62
 
@@ -274,11 +274,11 @@ Y de entre los sacerdotes:
 
 ## Esdras 2:64
 
-Así que, toda la asamblea sumaba 42,360,
+Así que, toda la asamblea sumaba 42 360,
 
 ## Esdras 2:65
 
-además de sus esclavos y esclavas, que sumaban 7,337; y tenían 200 cantores y cantoras.
+además de sus esclavos y esclavas, que sumaban 7 337; y tenían 200 cantores y cantoras.
 
 ## Esdras 2:66
 
@@ -286,7 +286,7 @@ Poseían 736 caballos, y 245 mulas,
 
 ## Esdras 2:67
 
-tenían 435 camellos, y 6,720 burros.
+tenían 435 camellos, y 6 720 burros.
 
 ---
 
@@ -296,10 +296,10 @@ Al llegar a la casa del Señor en Jerusalén, algunos de los jefes de familia hi
 
 ## Esdras 2:69
 
-De acuerdo con sus posibilidades, contribuyeron al tesoro para esta obra 61,000 dracmas de oro, 5,000 minas de plata, y 100 vestiduras sacerdotales.
+De acuerdo con sus posibilidades, contribuyeron al tesoro para esta obra 61 000 dracmas de oro, 5 000 minas de plata, y 100 vestiduras sacerdotales.
 
 ---
 
 ## Esdras 2:70
 
-Los sacerdotes, los levitas, los músicos, los porteros y los sirvientes del templo se establecieron en sus propias ciudades, junto con algunos de los otros pueblos, mientras que el resto de los israelitas se establecieron en sus ciudades.
+Los sacerdotes, los levitas, los músicos, los porteros y los sirvientes del templo se establecieron en sus propias ciudades, junto con parte del pueblo, mientras que el resto de los israelitas se establecieron en sus ciudades.

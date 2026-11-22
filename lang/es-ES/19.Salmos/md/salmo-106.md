@@ -7,178 +7,172 @@
 ---
 
 >  Dad gracias al Señor, porque Él es bueno;  
->  Porque Su misericordia es eterna.
+>  porque Su misericordia es eterna.
 
 ---
 
 ## Salmo 106:2
 
 > ¿Quién puede hablar de los poderosos hechos del Señor,  
->  O proclamar toda Su alabanza?
+>  o proclamar toda Su alabanza?
 
 ## Salmo 106:3
 
-> ¡Bienaventurados los que guardan la justicia,  
->  Los que practican la rectitud en todo tiempo!
+> ¡Felices los que respetan la justicia y hacen siempre lo que es recto!
 
 ---
 
 ## Salmo 106:4
 
-> Acuérdate de mí, Señor, en Tu favor hacia Tu pueblo;  
->  Visítame con Tu salvación,
+> Señor, acuérdate de mí cuando muestres Tu favor a Tu pueblo;  
+>  ven a mí con Tu salvación,
 
 ## Salmo 106:5
 
-> Para que yo pueda ver la prosperidad de Tus escogidos,  
->  Para que yo pueda compartir la alegría de Tu nación,  
->  Para que yo pueda gloriarme en Tu herencia.
+> para que yo vea prosperar a Tus elegidos,  
+>  para que comparta la alegría de Tu nación y me sienta orgulloso junto con los que son Tu herencia.
 
 ---
 
 ## Salmo 106:6
 
 > Hemos pecado como nuestros antepasados,  
->  Nos hemos desviado, hemos actuado impíamente.
+>  nos hemos desviado, hemos actuado impíamente.
 
 ## Salmo 106:7
 
-> Nuestros antepasados en Egipto no comprendieron Tus maravillas;  
->  No recordaron Tus abundantes bondades,  
->  Sino que se rebelaron junto al mar, en el Mar Rojo.
+> Nuestros antepasados en Egipto no entendieron Tus maravillas;  
+>  se olvidaron de Tus muchas bondades y se rebelaron junto al mar,  
+>  en el Mar Rojo.
 
 ## Salmo 106:8
 
-> Sin embargo, Él los salvó por amor de Su nombre,  
->  Para dar a conocer Su poder.
+> Pero Él los salvó por causa de Su nombre,  
+>  para que se conociera Su poder.
 
 ## Salmo 106:9
 
-> Reprendió al Mar Rojo y se secó,  
->  Y los condujo por las aguas poderosas, como por el desierto.
+> Dio una orden al Mar Rojo, y el mar se secó,  
+>  y los hizo pasar por las aguas profundas como si fuera por el desierto.
 
 ## Salmo 106:10
 
-> Así los salvó de la mano de los que los odiaban,  
->  Y los redimió de la mano del enemigo.
+> Así los salvó del poder de los que los odiaban y los rescató de las manos del enemigo.
 
 ## Salmo 106:11
 
-> Las aguas cubrieron a sus adversarios;  
->  No quedó ni uno de ellos.
+> El agua tapó a sus enemigos;  
+>  no se salvó ni uno solo.
 
 ## Salmo 106:12
 
-> Entonces confiaron en Sus palabras;  
->  Cantaron Su alabanza.
+> Entonces creyeron en lo que Él decía y le cantaron alabanzas.
 
 ---
 
 ## Salmo 106:13
 
-> Pronto olvidaron Sus obras;  
->  No esperaron Su consejo,
+> Pero muy pronto se olvidaron de lo que había hecho;  
+>  no tuvieron paciencia para esperar Su guía,
 
 ## Salmo 106:14
 
-> Sino que se volvieron codiciosos en el desierto,  
->  Y tentaron a Dios en la soledad.
+> sino que en el desierto se dejaron llevar por la glotonería y en aquellas tierras secas pusieron a Dios a prueba.
 
 ## Salmo 106:15
 
 > Y Él les concedió lo que pedían,  
->  Pero envió una enfermedad devastadora entre ellos.
+>  pero envió una enfermedad devastadora entre ellos.
 
 ---
 
 ## Salmo 106:16
 
 > Cuando envidiaron a Moisés en el campamento,  
->  Y a Aarón, el santo del Señor,
+>  y a Aarón, el santo del Señor,
 
 ## Salmo 106:17
 
 > La tierra se abrió y se tragó a Datán,  
->  Y cubrió la asamblea de Abiram.
+>  y sepultó a toda la gente de Abiram.
 
 ## Salmo 106:18
 
 > Y un fuego se encendió en su compañía;  
->  La llama consumió a los malvados.
+>  la llama consumió a los malvados.
 
 ## Salmo 106:19
 
 > Hicieron un becerro en Horeb,  
->  Y adoraron una imagen de metal fundido.
+>  y adoraron una imagen de metal fundido.
 
 ## Salmo 106:20
 
-> Así cambiaron su gloria Por la imagen de un buey que come hierba.
+> Así cambiaron a su Dios glorioso por la figura de un buey que come pasto.
 
 ## Salmo 106:21
 
-> Olvidaron a Dios su Salvador,  
->  Que había hecho grandes cosas en Egipto,
+> Se olvidaron de Dios,  
+>  que los había salvado y había hecho cosas grandiosas en Egipto,
 
 ## Salmo 106:22
 
 > Milagros en la tierra de Cam,  
->  Y obras asombrosas junto al Mar Rojo.
+>  y obras asombrosas junto al Mar Rojo.
 
 ## Salmo 106:23
 
-> Por tanto, Él dijo que los destruiría,  
->  Si no se hubiera interpuesto Moisés, Su escogido, en la brecha delante de Él,  
->  Para apartar Su ira de destruirlos.
+> Por eso dijo que los destruiría,  
+>  y lo habría hecho si Moisés, Su elegido,  
+>  no se hubiera puesto en la brecha delante de Él para impedir que Su enojo los destruyera.
 
 ---
 
 ## Salmo 106:24
 
-> Entonces despreciaron la tierra deseable;  
->  No creyeron en Su promesa,
+> Después despreciaron la tierra hermosa;  
+>  no creyeron en Su promesa,
 
 ## Salmo 106:25
 
-> Sino que murmuraron en sus tiendas;  
->  No escucharon la voz del Señor.
+> y se quejaban dentro de sus tiendas;  
+>  no hicieron caso a la voz del Señor.
 
 ## Salmo 106:26
 
-> Por tanto,  
->  Él juró a ellos Que los haría caer en el desierto,
+> Entonces les juró que los haría caer muertos en el desierto,
 
 ## Salmo 106:27
 
 > Y que dispersaría a sus descendientes entre las naciones,  
->  Y los esparciría por las tierras.
+>  y los esparciría por las tierras.
 
 ---
 
 ## Salmo 106:28
 
 > También siguieron a Baal de Peor,  
->  Y comieron sacrificios ofrecidos a los muertos.
+>  y comieron sacrificios ofrecidos a los muertos.
 
 ## Salmo 106:29
 
 > Así provocaron Su ira con sus acciones,  
->  Y una plaga se desató entre ellos.
+>  y una plaga se desató entre ellos.
 
 ## Salmo 106:30
 
-> Entonces Finees se levantó e intervino,  
->  Y la plaga se detuvo.
+> Pero Finees se puso en pie e intervino,  
+>  y la plaga se detuvo.
 
 ## Salmo 106:31
 
-> Y le fue contado por justicia,  
->  Para todas las generaciones venideras.
+> Y eso se le tuvo en cuenta como justicia,  
+>  por todas las generaciones que vendrían.
 
 ## Salmo 106:32
 
-> También le provocaron a ira en las aguas de Meriba,  
->  De modo que le fue mal a Moisés por causa de ellos;
+> En las aguas de Meribá volvieron a enfurecerlo,  
+>  y por culpa de ellos a Moisés le fue mal;
 
 ## Salmo 106:33
 
@@ -190,55 +184,54 @@
 ## Salmo 106:34
 
 > No eliminaron a los pueblos,  
->  Como el Señor les había mandado,
+>  como el Señor les había mandado,
 
 ## Salmo 106:35
 
-> Sino que se mezclaron con las naciones Y aprendieron sus costumbres,
+> sino que se mezclaron con aquellas naciones y copiaron sus costumbres,
 
 ## Salmo 106:36
 
 > Y adoraron sus ídolos,  
->  Que se convirtieron en una trampa para ellos.
+>  que se convirtieron en una trampa para ellos.
 
 ## Salmo 106:37
 
-> Pues sacrificaron a sus hijos y a sus hijas a los demonios,
+> Hasta llegaron a sacrificar a sus hijos y a sus hijas a los demonios,
 
 ## Salmo 106:38
 
-> Y derramaron sangre inocente,  
->  La sangre de sus hijos e hijas,  
->  Que sacrificaron a los ídolos de Canaán;  
->  Y la tierra fue contaminada con la sangre.
+> y derramaron sangre inocente,  
+>  la sangre de sus propios hijos e hijas,  
+>  que ofrecieron a los ídolos de Canaán;  
+>  y la tierra quedó manchada con esa sangre.
 
 ## Salmo 106:39
 
-> Así se contaminaron con sus obras,  
->  Y se prostituyeron con sus acciones.
+> Así se hicieron impuros con su manera de vivir y fueron infieles con lo que hacían.
 
 ---
 
 ## Salmo 106:40
 
-> Por tanto, se encendió la ira del Señor contra Su pueblo,  
->  Y aborreció Su heredad.
+> Por eso el enojo del Señor se encendió contra Su pueblo,  
+>  y sintió repugnancia por los que eran Su herencia.
 
 ## Salmo 106:41
 
-> Y los entregó en manos de las naciones,  
->  Y los que los odiaban se enseñorearon de ellos.
+> Los dejó en manos de las naciones,  
+>  y los que los odiaban llegaron a dominarlos.
 
 ## Salmo 106:42
 
 > Sus enemigos también los oprimieron,  
->  Y fueron sometidos bajo su poder.
+>  y fueron sometidos bajo su poder.
 
 ## Salmo 106:43
 
-> Muchas veces los libró;  
->  Pero ellos fueron rebeldes en sus intenciones,  
->  Y se hundieron en su culpa.
+> Muchas veces los rescató,  
+>  pero ellos seguían empeñados en rebelarse,  
+>  y se hundían cada vez más en su culpa.
 
 ## Salmo 106:44
 
@@ -247,8 +240,8 @@
 
 ## Salmo 106:45
 
-> Y se acordó de Su pacto por amor a ellos,  
->  Y se arrepintió conforme a la grandeza de Su misericordia.
+> y por amor a ellos se acordó de Su pacto y,  
+>  por Su gran misericordia, cambió de parecer.
 
 ## Salmo 106:46
 
@@ -258,17 +251,17 @@
 
 ## Salmo 106:47
 
-> Sálvanos, Señor nuestro Dios,  
->  Y reúnenos de entre las naciones,  
->  Para dar gracias a Tu santo nombre Y gloriarnos en Tu alabanza.
+> Señor, Dios nuestro,  
+>  sálvanos y reúnenos de entre las naciones,  
+>  para que demos gracias a Tu santo nombre y nos sintamos orgullosos de alabarte.
 
 ---
 
 ## Salmo 106:48
 
-> Bendito sea el Señor, el Dios de Israel,  
->  Desde la eternidad hasta la eternidad.
+> Alabado sea el Señor, el Dios de Israel,  
+>  desde siempre y para siempre.
 
->  Y todo el pueblo dirá: “Amén.”
+>  Y que todo el pueblo diga: “Amén.”
 
 >  ¡Alabad al Señor!

@@ -4,46 +4,46 @@
 
 ## Salmo 130:1
 
-> Desde lo profundo clamo a ti, Señor.
+> Señor, desde lo más hondo te llamo a gritos.
 
 ## Salmo 130:2
 
-> Señor, escucha mi voz;  
->  estén atentos tus oídos a la voz de mis súplicas.
+> ¡Señor, oye mi voz!  
+>  Presta atención a mis súplicas.
 
 ---
 
 ## Salmo 130:3
 
-> Si tú, Señor, tomaras en cuenta las iniquidades,  
->  Señor, ¿quién podría mantenerse en pie?
+> Señor, si tú llevaras la cuenta de nuestras culpas,  
+>  ¿quién podría seguir en pie, Señor?
 
 ## Salmo 130:4
 
-> Pero en ti hay perdón,  
->  para que seas reverenciado.
+> Pero tú nos perdonas,  
+>  y por eso se te honra.
 
 ---
 
 ## Salmo 130:5
 
-> Espero en el Señor, mi alma espera,  
->  y en su palabra pongo mi esperanza.
+> Espero en el Señor, mi alma aguarda con paciencia,  
+>  y confío en su palabra.
 
 ## Salmo 130:6
 
-> Mi alma espera al Señor más que los centinelas a la mañana;  
+> Mi alma anhela al Señor más que los guardias de noche la llegada del día;  
 >  sí,  
->  más que los centinelas a la mañana.
+>  más que los guardias la llegada del día.
 
 ---
 
 ## Salmo 130:7
 
 > Israel, pon tu esperanza en el Señor,  
->  porque en el Señor hay misericordia,  
->  y con él hay abundante redención.
+>  porque en el Señor está la misericordia,  
+>  y en Él hay redención en abundancia.
 
 ## Salmo 130:8
 
-> Y él redimirá a Israel de todas sus iniquidades.
+> Él mismo librará a Israel de todas sus culpas.

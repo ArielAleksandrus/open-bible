@@ -36,7 +36,7 @@ Cuando dijo esto, surgió una disensión entre los fariseos y los saduceos, y la
 
 ## Hechos 23:9
 
-Se produjo un gran alboroto, y algunos de los escribas del partido fariseo se levantaron y argumentaron ferozmente, diciendo, “No encontramos nada malo en este hombre. ¿Qué tal si un espíritu o un ángel le ha hablado?”
+Se produjo un gran alboroto, y algunos de los escribas del partido fariseo se levantaron y argumentaron ferozmente, diciendo, “No encontramos nada malo en este hombre. ¿Y si un espíritu o un ángel le ha hablado?”
 
 ## Hechos 23:10
 
@@ -100,11 +100,11 @@ El comandante despidió al joven con esta instrucción: “No le digas a nadie q
 
 ## Hechos 23:23
 
-Luego convocó a dos de sus centuriones y les instruyó, “Preparen doscientos soldados, setenta jinetes y doscientos lanceros para ir a Cesarea a la tercera hora de la noche.
+Luego convocó a dos de sus centuriones y les ordenó, “Preparad doscientos soldados, setenta jinetes y doscientos lanceros para ir a Cesarea a la tercera hora de la noche.
 
 ## Hechos 23:24
 
-Provean monturas para Pablo para que pueda ser llevado con seguridad al gobernador Félix.”
+Proveed monturas para Pablo para que pueda ser llevado con seguridad al gobernador Félix.”
 
 ---
 
@@ -144,7 +144,7 @@ Al día siguiente, permitieron que los jinetes continuaran con él, mientras ell
 
 ## Hechos 23:33
 
-Cuando los jinetes llegaron a Cesarea, entregaron la carta al gobernador y entregaron a Pablo.
+Cuando los jinetes llegaron a Cesarea, entregaron la carta al gobernador y le presentaron a Pablo.
 
 ## Hechos 23:34
 

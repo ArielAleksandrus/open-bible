@@ -46,7 +46,7 @@ Efrón respondió a Abraham, diciéndole,
 “Señor mío, escúchame: la tierra vale cuatrocientos siclos de plata. ¿Qué es eso entre tú y yo? Entierra a tu muerta.”
 
 ## Génesis 23:16
-Abraham acordó con Efrón y pesó para él la plata que había mencionado en presencia de los hititas: cuatrocientos siclos de plata, según el peso corriente entre los mercaderes.
+Abraham se puso de acuerdo con Efrón y pesó para él la plata que había mencionado en presencia de los hititas: cuatrocientos siclos de plata, según el peso corriente entre los mercaderes.
 
 ## Génesis 23:17
 Así, el campo de Efrón en Macpela cerca de Mamré —el campo con la cueva en él, y todos los árboles dentro de los límites del campo— fue transferido

@@ -38,7 +38,7 @@ De la tierra, el Señor Dios hizo crecer todo árbol agradable a la vista y buen
 
 ## Génesis 2:10
 
-Un río salía de Edén para regar el jardín, y desde allí se dividía y se convertía en cuatro cabeceras.
+Un río salía de Edén para regar el jardín, y desde allí se dividía y formaba cuatro brazos.
 
 ## Génesis 2:11
 

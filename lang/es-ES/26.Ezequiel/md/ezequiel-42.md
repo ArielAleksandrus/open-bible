@@ -37,7 +37,7 @@ El pasillo frente a ellas era similar a las cámaras del norte, con la misma lon
 Las puertas de las cámaras del sur correspondían a las del norte, con una entrada al comienzo del pasillo paralelo al muro que se extendía hacia el este.
 
 ## Ezequiel 42:13
-Luego me dijo: “Las cámaras del norte y del sur frente al área separada son cámaras sagradas donde los sacerdotes que se acercan al Señor comerán las ofrendas más sagradas. Allí colocarán las ofrendas más sagradas: las ofrendas de grano, las ofrendas por el pecado y las ofrendas por la culpa, porque el lugar es sagrado.
+Luego me dijo: “Las cámaras del norte y del sur frente al área separada son cámaras sagradas donde los sacerdotes que se acercan al Señor comerán las ofrendas más sagradas. Allí colocarán las ofrendas más sagradas: las ofrendas de cereal, las ofrendas por el pecado y las ofrendas por la culpa, porque el lugar es sagrado.
 
 ## Ezequiel 42:14
 Cuando los sacerdotes entren en los recintos sagrados, no deben ir al atrio exterior sin dejar atrás las vestiduras en las que ministran, porque son sagradas. Deben ponerse otras vestiduras antes de acercarse a los lugares para el pueblo.”

@@ -172,7 +172,7 @@ Así Josué conquistó toda la región, incluyendo la región montañosa, el Né
 
 ## Josué 10:41
 
-Josué sometió el área desde Cades Barnea hasta Gaza y desde toda la región de Gosén hasta Gabaón.
+Josué sometió el área desde Cades-barnea hasta Gaza y desde toda la región de Gosén hasta Gabaón.
 
 ## Josué 10:42
 

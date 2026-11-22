@@ -146,15 +146,15 @@ El rey actuará según sus propios deseos. Se exaltará y magnificará sobre tod
 
 ## Daniel 11:37
 
-No mostrará respeto por las deidades de sus antepasados ni por la que es querida por las mujeres, ni respetará a ningún dios, sino que se exaltará sobre todos ellos.
+No mostrará respeto por las deidades de sus antepasados ni por el que es amado por las mujeres, ni respetará a ningún dios, sino que se exaltará sobre todos ellos.
 
 ## Daniel 11:38
 
-En lugar de ellos, honrará a un dios de fortalezas; un dios desconocido para sus antepasados lo honrará con oro y plata, con piedras preciosas y costosos regalos.
+En lugar de ellos, honrará a un dios de fortalezas; a un dios desconocido para sus antepasados lo honrará con oro y plata, con piedras preciosas y costosos regalos.
 
 ## Daniel 11:39
 
-Atacará las fortalezas más poderosas con la ayuda de un dios extranjero y honrará grandemente a aquellos que lo reconozcan. Los hará gobernantes sobre muchas personas y distribuirá la tierra a un costo.
+Atacará las fortalezas más poderosas con la ayuda de un dios extranjero y honrará grandemente a aquellos que lo reconozcan. Los hará gobernantes sobre muchas personas y distribuirá la tierra por precio.
 
 ## Daniel 11:40
 

@@ -10,11 +10,11 @@ La palabra que Jeremías el profeta habló a todo el pueblo de Judá y a todos l
 
 ## Jeremías 25:3
 
-“Desde el año trece de Josías hijo de Amón, rey de Judá, hasta este día, estos veintitrés años la palabra del Señor ha venido a mí, y os he hablado persistentemente, pero no habéis escuchado.
+“Desde el año trece de Josías hijo de Amón, rey de Judá, hasta este día, estos veintitrés años la palabra del Señor ha venido a mí, y os he hablado una y otra vez, pero no habéis escuchado.
 
 ## Jeremías 25:4
 
-Y el Señor os ha enviado a todos sus siervos los profetas persistentemente, pero no habéis escuchado ni inclinado vuestro oído para oír,
+Y el Señor os ha enviado a todos sus siervos los profetas una y otra vez, pero no habéis escuchado ni inclinado vuestro oído para oír,
 
 ## Jeremías 25:5
 
@@ -30,7 +30,7 @@ Sin embargo, no me habéis hecho caso,” declara el Señor, “y me habéis pro
 
 ## Jeremías 25:8
 
-Por lo tanto, esto es lo que dice el Señor Todopoderoso: ‘Porque no habéis obedecido mis palabras,
+Por lo tanto, esto es lo que dice el Señor de los ejércitos: ‘Porque no habéis obedecido mis palabras,
 
 ## Jeremías 25:9
 
@@ -54,7 +54,7 @@ Traeré sobre esa tierra todas las palabras que he pronunciado contra ella, todo
 
 ## Jeremías 25:14
 
-Serán subyugados por muchas naciones y grandes reyes; los recompensaré según sus obras y el trabajo de sus manos.’”
+Serán subyugados por muchas naciones y grandes reyes; les pagaré según sus obras y el trabajo de sus manos.’”
 
 ## Jeremías 25:15
 
@@ -102,19 +102,19 @@ todos los reyes de Zimri, todos los reyes de Elam, y todos los reyes de Media;
 
 ## Jeremías 25:26
 
-y todos los reyes del norte, cercanos y lejanos, uno tras otro —todos los reinos sobre la faz de la tierra. Y después de todos ellos, el rey de Sesac también la beberá—.
+y todos los reyes del norte, cercanos y lejanos, uno tras otro, todos los reinos sobre la faz de la tierra. Y después de todos ellos, el rey de Sesac también la beberá.
 
 ## Jeremías 25:27
 
-“Entonces les dirás: ‘Esto es lo que dice el Señor Todopoderoso, el Dios de Israel: Bebed, embriagaos, vomitad, y caed para no levantaros más a causa de la espada que estoy enviando entre vosotros.’
+“Entonces les dirás: ‘Esto es lo que dice el Señor de los ejércitos, el Dios de Israel: Bebed, embriagaos, vomitad, y caed para no levantaros más a causa de la espada que estoy enviando entre vosotros.’
 
 ## Jeremías 25:28
 
-Pero si se niegan a tomar la copa de tu mano y beber, diles: ‘Esto es lo que dice el Señor Todopoderoso: ¡Ciertamente la beberéis!
+Pero si se niegan a tomar la copa de tu mano y beber, diles: ‘Esto es lo que dice el Señor de los ejércitos: ¡Ciertamente la beberéis!
 
 ## Jeremías 25:29
 
-Ved, estoy comenzando a traer desastre sobre la ciudad que lleva mi Nombre, ¿y vosotros quedaréis impunes? No quedaréis impunes, porque estoy convocando una espada contra todos los que viven en la tierra,’ declara el Señor Todopoderoso.
+Ved, estoy comenzando a traer desastre sobre la ciudad que lleva mi Nombre, ¿y vosotros quedaréis impunes? No quedaréis impunes, porque estoy convocando una espada contra todos los que viven en la tierra,’ declara el Señor de los ejércitos.
 
 ## Jeremías 25:30
 
@@ -122,15 +122,15 @@ Ved, estoy comenzando a traer desastre sobre la ciudad que lleva mi Nombre, ¿y 
 
 ## Jeremías 25:31
 
-El ruido resonará hasta los confines de la tierra, porque el Señor tiene una controversia con las naciones; traerá juicio sobre toda la humanidad y pondrá a los malvados a la espada,’ declara el Señor.
+El ruido resonará hasta los confines de la tierra, porque el Señor tiene un pleito con las naciones; traerá juicio sobre toda la humanidad y pondrá a los malvados a la espada,’ declara el Señor.
 
 ## Jeremías 25:32
 
-Esto es lo que dice el Señor Todopoderoso: ‘¡Mirad! El desastre se está extendiendo de nación en nación; una poderosa tormenta se levanta desde los confines más lejanos de la tierra.’
+Esto es lo que dice el Señor de los ejércitos: ‘¡Mirad! El desastre se está extendiendo de nación en nación; una poderosa tormenta se levanta desde los confines más lejanos de la tierra.’
 
 ## Jeremías 25:33
 
-En ese momento los muertos por el Señor estarán por todas partes —de un extremo de la tierra al otro. No serán llorados, recogidos ni enterrados, sino que serán como estiércol sobre el suelo—.
+En ese momento los muertos por el Señor estarán por todas partes, de un extremo de la tierra al otro. No serán llorados, recogidos ni enterrados, sino que serán como estiércol sobre el suelo.
 
 ## Jeremías 25:34
 

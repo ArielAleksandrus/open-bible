@@ -2,7 +2,7 @@
 
 ## 1 Timoteo 2:1
 
-Para empezar, exhorto a que se hagan súplicas, oraciones, intercesiones y acciones de gracias por todos,
+Ante todo, pido que se hagan peticiones, oraciones, ruegos y acciones de gracias por todos,
 
 ## 1 Timoteo 2:2
 
@@ -10,27 +10,27 @@ incluidos los reyes y todos los que están en posiciones de autoridad, para que 
 
 ## 1 Timoteo 2:3
 
-Esto es bueno y aceptable ante Dios nuestro Salvador,
+Esto es bueno y le agrada a Dios nuestro Salvador,
 
 ## 1 Timoteo 2:4
 
-quien desea que todos los hombres sean salvos y lleguen al conocimiento de la verdad.
+que quiere que todos se salven y lleguen a entender la verdad.
 
 ## 1 Timoteo 2:5
 
-Porque hay un solo Dios, y un solo mediador entre Dios y los hombres, Jesucristo hombre,
+Porque hay un único Dios, y también un único mediador entre Dios y la humanidad: Jesucristo, que es hombre,
 
 ## 1 Timoteo 2:6
 
-quien se dio a sí mismo como rescate por todos, el testimonio dado a su debido tiempo.
+y que se entregó para pagar el rescate por todos; de esto se dio testimonio en el momento oportuno.
 
 ## 1 Timoteo 2:7
 
-Para este propósito, fui designado predicador y apóstol (digo la verdad, no miento), como maestro de los gentiles en fe y verdad.
+Para eso me nombraron a mí predicador y apóstol (os digo la verdad, no miento), para enseñar a los gentiles la fe y la verdad.
 
 ## 1 Timoteo 2:8
 
-Por lo tanto, deseo que los hombres en todo lugar oren, levantando manos santas, sin ira ni discusión.
+Por eso quiero que los hombres oren en todas partes, alzando unas manos santas, sin enojos ni peleas.
 
 ## 1 Timoteo 2:9
 
@@ -42,20 +42,20 @@ sino más bien con buenas obras, como corresponde a mujeres que profesan piedad.
 
 ## 1 Timoteo 2:11
 
-La mujer debe aprender en silencio y con plena sumisión.
+La mujer debe aprender con tranquilidad y con todo respeto.
 
 ## 1 Timoteo 2:12
 
-Pero no permito que la mujer enseñe ni que tenga autoridad sobre el hombre; debe estar en silencio.
+Pero no permito que la mujer enseñe ni que tenga autoridad sobre el hombre; debe mantenerse tranquila.
 
 ## 1 Timoteo 2:13
 
-Porque Adán fue formado primero, y después Eva.
+Porque Dios formó primero a Adán, y luego a Eva.
 
 ## 1 Timoteo 2:14
 
-Y no fue Adán el engañado, sino que la mujer fue engañada y se convirtió en transgresora.
+Y no fue Adán quien cayó en el engaño, sino la mujer, que al ser engañada cayó en la desobediencia.
 
 ## 1 Timoteo 2:15
 
-Sin embargo, las mujeres se salvarán engendrando hijos, si permanecen en fe, amor y santidad, con dominio propio.
+Pero las mujeres serán protegidas al tener hijos, si siguen viviendo con fe, amor y santidad, y con dominio propio.

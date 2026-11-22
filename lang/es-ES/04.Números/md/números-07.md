@@ -10,7 +10,7 @@ Entonces los líderes de Israel, los jefes de las casas de sus padres, que eran 
 
 ## Números 7:3
 
-Trajeron sus ofrendas ante el Señor: seis carros cubiertos y doce bueyes —un buey de cada líder y un carro de cada dos líderes. Los presentaron ante el tabernáculo—.
+Trajeron sus ofrendas ante el Señor: seis carros cubiertos y doce bueyes —un buey de cada líder y un carro de cada dos líderes—. Los presentaron ante el tabernáculo.
 
 ## Números 7:4
 
@@ -46,7 +46,7 @@ El Señor instruyó a Moisés: “Cada día un líder traerá su ofrenda para la
 
 ## Números 7:12
 
-El primer día, Nahsón hijo de Aminadab, de la tribu de Judá, presentó su ofrenda.
+El primer día, Naasón hijo de Aminadab, de la tribu de Judá, presentó su ofrenda.
 
 ## Números 7:13
 
@@ -66,7 +66,7 @@ un macho cabrío para la ofrenda por el pecado;
 
 ## Números 7:17
 
-y para las ofrendas de paz, dos bueyes, cinco carneros, cinco machos cabríos y cinco corderos machos de un año. Esta fue la ofrenda de Nahsón hijo de Aminadab.
+y para las ofrendas de paz, dos bueyes, cinco carneros, cinco machos cabríos y cinco corderos machos de un año. Esta fue la ofrenda de Naasón hijo de Aminadab.
 
 ## Números 7:18
 
@@ -338,7 +338,7 @@ Estas fueron las ofrendas de los líderes israelitas para la dedicación del alt
 
 ## Números 7:85
 
-Cada plato de plata pesaba 130 siclos, y cada tazón setenta siclos. En total, la plata de estos utensilios pesaba 2,400 siclos, según el siclo del santuario.
+Cada plato de plata pesaba 130 siclos, y cada tazón setenta siclos. En total, la plata de estos utensilios pesaba 2 400 siclos, según el siclo del santuario.
 
 ## Números 7:86
 

@@ -6,7 +6,7 @@ Los dos ángeles llegaron a Sodoma al atardecer, y Lot estaba sentado a la puert
 
 ## Génesis 19:2
 
-Dijo: “Mis señores, por favor, desvíense a la casa de su siervo para pasar la noche y lavar sus pies. Luego podrán levantarse temprano y seguir su camino.” Ellos dijeron: “No, pasaremos la noche en la plaza.”
+Dijo: “Mis señores, por favor, venid a la casa de vuestro siervo para pasar la noche y lavaros los pies. Luego podréis levantaros temprano y seguir su camino.” Ellos dijeron: “No, pasaremos la noche en la plaza.”
 
 ## Génesis 19:3
 
@@ -30,7 +30,7 @@ y dijo: “Os ruego, hermanos míos, no actuéis tan perversamente.
 
 ## Génesis 19:8
 
-Miren, tengo dos hijas que no han conocido varón. Por favor, déjenme sacarlas para que hagan con ellas lo que les parezca. Solo no hagan nada a estos hombres, porque han venido bajo la protección de mi techo.”
+Mirad, tengo dos hijas que no han conocido varón. Por favor, dejadme sacarlas para que hagáis con ellas lo que os parezca. Solo no hagáis nada a estos hombres, porque han venido bajo la protección de mi techo.”
 
 ## Génesis 19:9
 
@@ -46,7 +46,7 @@ Entonces hirieron con ceguera a los hombres que estaban en la entrada de la casa
 
 ## Génesis 19:12
 
-Los dos hombres dijeron a Lot, “¿Tienes aquí a alguien más —yernos, hijos, hijas, o a cualquiera más en la ciudad que te pertenezca? Sácalos de este lugar,—
+Los dos hombres dijeron a Lot, “¿Tienes aquí a alguien más —yernos, hijos, hijas— o a cualquiera más en la ciudad que te pertenezca? Sácalos de este lugar,
 
 ## Génesis 19:13
 
@@ -54,7 +54,7 @@ porque estamos a punto de destruir este lugar, porque el clamor contra su gente 
 
 ## Génesis 19:14
 
-Así que Lot salió y habló a sus yernos, que iban a casarse con sus hijas, y dijo, “Levántense, salgan de este lugar, porque el Señor está a punto de destruir la ciudad.” Pero a sus yernos les pareció que bromeaba.
+Así que Lot salió y habló a sus yernos, que iban a casarse con sus hijas, y dijo, “Levantaos, salid de este lugar, porque el Señor está a punto de destruir la ciudad.” Pero a sus yernos les pareció que bromeaba.
 
 ## Génesis 19:15
 

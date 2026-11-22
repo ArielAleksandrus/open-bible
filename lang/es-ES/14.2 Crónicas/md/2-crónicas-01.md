@@ -115,7 +115,7 @@ Salomón partió del lugar alto en Gabaón,
 
 Salomón acumuló carros y jinetes.
 
->  Tenía 1,400 carros y 12,000 jinetes,  
+>  Tenía 1 400 carros y 12 000 jinetes,  
 >  y los estacionó en las ciudades de los carros y con el rey en Jerusalén.
 
 ---

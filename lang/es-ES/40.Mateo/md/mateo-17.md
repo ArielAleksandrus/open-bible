@@ -70,7 +70,7 @@ Lo traje a tus discípulos, pero no pudieron sanarlo.”
 
 ## Mateo 17:17
 
-Jesús respondió: “¡Generación incrédula y perversa! ¿Hasta cuándo estaré con vosotros? ¿Hasta cuándo os soportaré? Traedme aquí al muchacho.”
+Jesús respondió: “¡Gente incrédula y perversa! ¿Cuánto tiempo más tendré que estar con vosotros? ¿Cuánto tiempo más tendré que soportaros? Traedme aquí al muchacho.”
 
 ## Mateo 17:18
 

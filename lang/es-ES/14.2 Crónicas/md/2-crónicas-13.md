@@ -57,7 +57,7 @@ Así que ahora pretendéis imponeros contra el reino del Señor a través de los
 
 ¿No habéis expulsado a los sacerdotes del Señor, los hijos de Aarón y los levitas,  
  y os habéis hecho sacerdotes como los pueblos de las tierras?  
- Cualquiera que venga a consagrarse con un becerro y siete carneros,  
+ Cualquiera que venga a consagrarse con un toro y siete carneros,  
  incluso él puede convertirse en sacerdote de lo que no son dioses.
 
 ---
@@ -114,7 +114,7 @@ Así que los hijos de Israel huyeron ante Judá, y Dios los entregó a ellos.
 
 ## 2 Crónicas 13:17
 
-Abías y su pueblo los golpearon con un gran golpe,  
+Abías y su pueblo les infligieron una gran derrota,  
  de modo que quinientos mil hombres escogidos de Israel cayeron.
 
 ---

@@ -58,7 +58,7 @@ O si pide un huevo, ¿le ofrecerá un escorpión?
 
 ## Lucas 11:13
 
-Si vosotros, siendo malos, sabéis dar buenas dádivas a vuestros hijos, ¿cuánto más vuestro Padre celestial dará el Espíritu Santo a los que se lo pidan?”
+Pues si vosotros, aunque sois malos, sabéis dar buenos regalos a vuestros hijos, ¡con mayor razón vuestro Padre del cielo dará el Espíritu Santo a los que se lo pidan!”
 
 ---
 
@@ -76,7 +76,7 @@ Otros, para probarle, buscaban de Él una señal del cielo.
 
 ## Lucas 11:17
 
-Pero Él, conociendo sus pensamientos, les dijo: “Todo reino dividido contra sí mismo es asolado, y una casa dividida contra sí misma cae.
+Pero Él, que sabía lo que pensaban, les dijo: “Todo reino dividido contra sí mismo queda en ruinas, y una casa dividida contra sí misma se derrumba.
 
 ## Lucas 11:18
 

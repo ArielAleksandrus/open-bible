@@ -2,19 +2,19 @@
 
 ## Colosenses 3:1
 
-Si, pues, habéis resucitado con Cristo, buscad las cosas de arriba, donde está Cristo, sentado a la diestra de Dios.
+Ya que habéis sido levantados con Cristo, buscad las cosas del cielo, donde está Cristo, sentado a la derecha de Dios.
 
 ## Colosenses 3:2
 
-Poned la mira en las cosas de arriba, no en las de la tierra.
+Pensad en las cosas del cielo, y no en las de la tierra.
 
 ## Colosenses 3:3
 
-Porque habéis muerto, y vuestra vida está escondida con Cristo en Dios.
+Porque vosotros habéis muerto, y ahora vuestra vida está escondida con Cristo en Dios.
 
 ## Colosenses 3:4
 
-Cuando Cristo, vuestra vida, se manifieste, entonces vosotros también seréis manifestados con él en gloria.
+Cuando aparezca Cristo, que es vuestra vida, también vosotros apareceréis con Él, llenos de gloria.
 
 ## Colosenses 3:5
 
@@ -22,27 +22,27 @@ Por tanto, haced morir los miembros de vuestra naturaleza terrenal: la inmoralid
 
 ## Colosenses 3:6
 
-Por estas cosas viene la ira de Dios sobre los desobedientes.
+Por estas cosas, la ira de Dios viene sobre los que desobedecen.
 
 ## Colosenses 3:7
 
-En estas cosas anduvisteis en otro tiempo, cuando vivíais en ellas.
+Vosotros también vivíais así antes, en vuestra vida pasada.
 
 ## Colosenses 3:8
 
-Pero ahora dejad también vosotros todas estas cosas: ira, enojo, malicia, blasfemia y lenguaje obsceno de vuestra boca.
+Pero ahora tenéis que dejar todo eso: el enfado, la ira, la maldad, las calumnias y las palabras groseras.
 
 ## Colosenses 3:9
 
-No mintáis los unos a los otros, habiéndoos despojado del viejo hombre con sus prácticas
+No os mintáis unos a otros, ya que os habéis quitado de encima lo que antes erais y lo que hacíais,
 
 ## Colosenses 3:10
 
-y revestido del nuevo, el cual se va renovando en conocimiento a imagen de su Creador.
+y os habéis revestido de la nueva manera de ser, que se va renovando para conocer a Dios cada vez mejor y parecerse a su Creador.
 
 ## Colosenses 3:11
 
-Aquí no hay distinción entre griego y judío, circunciso e incircunciso, bárbaro, escita, esclavo o libre, sino que Cristo es todo y en todos.
+En esta nueva vida ya no importa si uno es griego o judío, si está circuncidado o no, si es extranjero, escita, esclavo o libre, sino que Cristo lo es todo y está en todos.
 
 ## Colosenses 3:12
 
@@ -50,7 +50,7 @@ Como pueblo escogido de Dios, santo y amado, revestíos de compasión, bondad, h
 
 ## Colosenses 3:13
 
-Soportaos unos a otros y perdonaos si alguno tiene queja contra otro. Perdonad como el Señor os perdonó.
+Tened paciencia unos con otros, y perdonaos si alguno tiene una queja contra otro. Así como el Señor os perdonó, perdonad también vosotros.
 
 ## Colosenses 3:14
 
@@ -62,40 +62,40 @@ Que la paz de Cristo gobierne en vuestros corazones, ya que como miembros de un 
 
 ## Colosenses 3:16
 
-Que la palabra de Cristo habite en vosotros abundantemente, enseñándoos y amonestándoos unos a otros con toda sabiduría, con salmos, himnos y cánticos espirituales, cantando a Dios con gratitud en vuestros corazones.
+Que el mensaje de Cristo esté presente con toda su riqueza en medio de vosotros; enseñaos y aconsejaos unos a otros con toda sabiduría, con salmos, himnos y cantos espirituales, y cantad a Dios de corazón, con gratitud.
 
 ## Colosenses 3:17
 
-Y todo lo que hagáis, sea de palabra o de hecho, hacedlo todo en el nombre del Señor Jesús, dando gracias a Dios Padre por medio de él.
+Todo lo que digáis o hagáis, hacedlo en el nombre del Señor Jesús, dando gracias por medio de Él a Dios Padre.
 
 ## Colosenses 3:18
 
-Mujeres, someteos a vuestros maridos, como conviene en el Señor.
+Esposas, someteos a vuestros esposos, como es propio de quienes están en el Señor.
 
 ## Colosenses 3:19
 
-Maridos, amad a vuestras mujeres y no seáis ásperos con ellas.
+Esposos, amad a vuestras esposas y no las tratéis con dureza.
 
 ## Colosenses 3:20
 
-Hijos, obedeced a vuestros padres en todo, porque esto agrada al Señor.
+Hijos, obedeced a vuestros padres en todo, porque eso le agrada al Señor.
 
 ## Colosenses 3:21
 
-Padres, no exasperéis a vuestros hijos, para que no se desanimen.
+Padres, no irritéis a vuestros hijos, para que no se desanimen.
 
 ## Colosenses 3:22
 
-Esclavos, obedeced en todo a vuestros amos terrenales, no solo cuando os ven para agradarles, sino con sinceridad de corazón, temiendo al Señor.
+Esclavos, obedeced en todo a vuestros amos de este mundo, no solo cuando os están mirando, como quien busca quedar bien, sino con un corazón sincero, por respeto al Señor.
 
 ## Colosenses 3:23
 
-Y todo lo que hagáis, hacedlo de corazón, como para el Señor y no para los hombres,
+Hagáis lo que hagáis, trabajad de buena gana, como si lo hicierais para el Señor y no solo para los que os supervisan,
 
 ## Colosenses 3:24
 
-sabiendo que del Señor recibiréis la herencia como recompensa. Es al Señor Cristo a quien servís.
+sabiendo que el Señor os dará como premio una herencia. Vosotros servís a Cristo, el Señor.
 
 ## Colosenses 3:25
 
-El que hace injusticia recibirá la injusticia que hizo, y no hay acepción de personas.
+El que hace el mal recibirá el pago por el mal que haya hecho, porque Dios no tiene favoritos.

@@ -2,7 +2,7 @@
 
 ## Esdras 9:1
 
-Después de que se completaron estos asuntos, los oficiales se acercaron a mí y dijeron: “El pueblo de Israel, incluidos los sacerdotes y los levitas, no se han mantenido distintos de los pueblos vecinos y sus abominaciones, como las de los cananeos, hititas, ferezeos, jebuseos, amonitas, moabitas, egipcios y amorreos.
+Después de que se completaron estos asuntos, los oficiales se acercaron a mí y dijeron: “El pueblo de Israel, incluidos los sacerdotes y los levitas, no se ha mantenido apartado de los pueblos vecinos y sus abominaciones, como las de los cananeos, hititas, ferezeos, jebuseos, amonitas, moabitas, egipcios y amorreos.
 
 ## Esdras 9:2
 
@@ -12,11 +12,11 @@ Han tomado algunas de sus hijas como esposas para ellos y para sus hijos, mezcla
 
 ## Esdras 9:3
 
-Al escuchar esto, rasgué mi vestido y mi manto, me arranqué cabello de mi cabeza y barba, y me senté completamente consternado.
+Al escuchar esto, rasgué mi vestido y mi manto, me arranqué pelos de la cabeza y de la barba, y me senté completamente consternado.
 
 ## Esdras 9:4
 
-Entonces todos los que temían las palabras del Dios de Israel, a causa de la infidelidad de los exiliados, se reunieron alrededor de mí, y permanecí consternado hasta el sacrificio de la tarde.
+Entonces todos los que temblaban ante las palabras del Dios de Israel, a causa de la infidelidad de los exiliados, se reunieron alrededor de mí, y permanecí consternado hasta el sacrificio de la tarde.
 
 ## Esdras 9:5
 
@@ -44,7 +44,7 @@ Porque aunque somos esclavos, nuestro Dios no nos ha abandonado en nuestra escla
 
 ## Esdras 9:11
 
-que diste a través de Tus siervos los profetas, diciendo: ‘La tierra que estáis entrando a poseer es una tierra contaminada por la impureza de los pueblos de las tierras, con sus abominaciones llenándola de un extremo al otro.
+que diste a través de Tus siervos los profetas, diciendo: ‘La tierra en la que vais a entrar para poseerla es una tierra contaminada por la impureza de los pueblos de las tierras, con sus abominaciones llenándola de un extremo al otro.
 
 ## Esdras 9:12
 

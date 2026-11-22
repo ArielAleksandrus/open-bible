@@ -46,7 +46,7 @@ Ahora sé que el Señor es más grande que todos los demás dioses, porque lo ha
 
 ## Éxodo 18:12
 
-Entonces Jetró, suegro de Moisés, ofreció un holocausto y sacrificios a Dios, y Aarón vino con todos los ancianos de Israel a comer una comida con el suegro de Moisés en presencia de Dios.
+Entonces Jetró, suegro de Moisés, ofreció un holocausto y sacrificios a Dios, y Aarón vino con todos los ancianos de Israel a comer con el suegro de Moisés en presencia de Dios.
 
 ## Éxodo 18:13
 

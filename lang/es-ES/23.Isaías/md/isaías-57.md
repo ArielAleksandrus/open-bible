@@ -1,10 +1,10 @@
 # Isaías Capítulo 57
 
 ## Isaías 57:1
-El justo perece, y nadie lo toma a pecho; los piadosos son llevados, sin que nadie entienda que los justos son quitados para ser librados del mal.
+Muere el justo y a nadie le importa; se llevan a los que son fieles a Dios, y nadie entiende que al justo se lo llevan para librarlo del mal.
 
 ## Isaías 57:2
-Entran en la paz; descansan en sus lechos, cada uno que caminó rectamente.
+Entran en la paz; descansan en sus lechos, todos los que caminaron rectamente.
 
 ## Isaías 57:3
 “Pero venid acá, hijos de hechicera, descendencia de adúltero y de prostituta.
@@ -16,7 +16,7 @@ Entran en la paz; descansan en sus lechos, cada uno que caminó rectamente.
 Os encendéis con lujuria entre los robles y debajo de todo árbol frondoso; sacrificáis a vuestros hijos en los barrancos, bajo las hendiduras de las rocas.
 
 ## Isaías 57:6
-Entre las piedras lisas de los barrancos está tu porción; ellas son tu suerte. Sí, a ellas has derramado libaciones y ofrecido ofrendas de grano. ¿Debo yo ser indulgente respecto a estas cosas?
+Entre las piedras lisas de los barrancos está tu porción; ellas son tu suerte. Sí, a ellas has derramado libaciones y ofrecido ofrendas de cereal. ¿Debo yo ser indulgente respecto a estas cosas?
 
 ## Isaías 57:7
 Has colocado tu lugar de descanso en un monte alto y elevado; allí subiste para presentar tus sacrificios.
@@ -43,7 +43,7 @@ Cuando clames pidiendo ayuda, ¡que te salve tu colección de ídolos! El viento
 Y se dirá: “¡Construid, construid, preparad el camino! Quitad los obstáculos del camino de mi pueblo.”
 
 ## Isaías 57:15
-Porque así dice el Alto y Sublime —el que vive para siempre, cuyo nombre es santo: “Yo habito en un lugar alto y santo, pero también con el contrito y humilde de espíritu, para reavivar el espíritu de los humildes y para reavivar el corazón de los contritos—.
+Porque esto dice el Altísimo, el que está por encima de todo, el que vive para siempre y cuyo nombre es santo: “Yo vivo en un lugar alto y santo, pero también estoy con el que tiene el corazón arrepentido y el espíritu humilde, para dar nuevo ánimo a los humildes y nueva vida a los arrepentidos.
 
 ## Isaías 57:16
 Porque no acusaré para siempre, ni estaré siempre enojado, pues entonces el espíritu desfallecería ante mí —el mismo aliento de aquellos que he hecho—.
@@ -58,7 +58,7 @@ He visto sus caminos, pero lo sanaré; lo guiaré y restauraré consuelo a él y
 haciendo brotar alabanza en sus labios. Paz, paz, para los lejanos y cercanos,” dice el Señor. “Y los sanaré.”
 
 ## Isaías 57:20
-Pero los impíos son como el mar agitado, que no puede descansar, cuyas aguas arrojan cieno y lodo.
+Pero los malvados son como el mar revuelto, que no puede quedarse en calma y cuyas olas arrastran barro y suciedad.
 
 ## Isaías 57:21
 “Mi Dios declara, ‘No hay paz para los impíos.’”

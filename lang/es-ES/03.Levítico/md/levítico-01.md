@@ -4,7 +4,7 @@
 El Señor llamó a Moisés y le habló desde la tienda de reunión:
 
 ## Levítico 1:2
-“Habla a los israelitas y diles: ‘Cuando alguno de vosotros traiga una ofrenda al Señor, traeréis vuestra ofrenda del ganado, ya sea del rebaño o del rebaño.
+“Habla a los israelitas y diles: ‘Cuando alguno de vosotros traiga una ofrenda al Señor, traeréis vuestra ofrenda del ganado, ya sea de la vacada o del rebaño.
 
 ## Levítico 1:3
 Si su ofrenda es un holocausto del ganado, ofrecerá un macho sin defecto. Lo presentará a la entrada de la tienda de reunión, para que sea aceptable al Señor.

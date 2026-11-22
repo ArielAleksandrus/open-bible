@@ -5,7 +5,7 @@
 ## Salmo 73:1
 
 > ¡Ciertamente Dios es bueno con Israel,  
->  Con los de puro corazón!
+>  con los de puro corazón!
 
 ---
 
@@ -16,91 +16,91 @@
 
 ## Salmo 73:3
 
-> Porque tuve envidia de los arrogantes Al ver la prosperidad de los impíos.
+> Porque sentí envidia de los arrogantes cuando vi lo bien que les iba a los malvados.
 
 ---
 
 ## Salmo 73:4
 
 > Porque no tienen aprietos en su muerte,  
->  Y sus cuerpos están bien alimentados.
+>  y sus cuerpos están bien alimentados.
 
 ## Salmo 73:5
 
-> No sufren las penalidades de los demás,  
->  Ni son azotados como los demás hombres.
+> No pasan por los problemas de los demás,  
+>  ni sufren golpes como el resto de la gente.
 
 ## Salmo 73:6
 
 > Por tanto, la soberbia los ciñe como un collar;  
->  La violencia los cubre como un vestido.
+>  la violencia los cubre como un vestido.
 
 ## Salmo 73:7
 
-> Sus ojos se les saltan de gordura;  
->  Los pensamientos de su corazón se desbordan.
+> Los ojos se les hinchan de tanta abundancia;  
+>  los caprichos de su corazón se desbordan.
 
 ## Salmo 73:8
 
-> Se mofan y hablan con maldad;  
->  Hablan con altanería.
+> Se burlan y hablan con malicia;  
+>  hablan con aires de soberbia.
 
 ## Salmo 73:9
 
-> Ponen su boca contra el cielo,  
->  Y su lengua pasea por la tierra.
+> Abren la boca contra el cielo,  
+>  y su lengua se pavonea por toda la tierra.
 
 ## Salmo 73:10
 
 > Por eso su pueblo vuelve a ellos,  
->  Y beben aguas en abundancia.
+>  y beben aguas en abundancia.
 
 ## Salmo 73:11
 
-> Dicen: “¿Cómo puede saber Dios?  
->  ¿Hay conocimiento en el Altísimo?”
+> Y dicen: “¿Cómo va a enterarse Dios?  
+>  ¿Acaso sabe algo el Altísimo?”
 
 ---
 
 ## Salmo 73:12
 
-> He aquí, estos son los impíos;  
->  Siempre tranquilos, aumentan sus riquezas.
+> Mirad, así son los malvados:  
+>  siempre tranquilos, y sus riquezas no dejan de crecer.
 
 ---
 
 ## Salmo 73:13
 
-> En vano he guardado puro mi corazón Y lavado mis manos en inocencia;
+> De verdad, de nada me ha servido mantener limpio mi corazón y lavarme las manos en señal de inocencia;
 
 ## Salmo 73:14
 
-> Pues he sido azotado todo el día,  
->  Y castigado cada mañana.
+> porque todo el día recibo golpes,  
+>  y cada mañana me llega el castigo.
 
 ---
 
 ## Salmo 73:15
 
-> Si hubiera dicho: “Hablaré como ellos”,  
->  He aquí, habría sido infiel a tus hijos.
+> Si me hubiera propuesto: “Voy a hablar como ellos”  
+> , entonces sí habría traicionado a tus hijos.
 
 ## Salmo 73:16
 
-> Cuando pensé para entender esto,  
->  Fue duro trabajo para mí
+> Cuando intenté comprender todo esto,  
+>  se me hizo una carga pesada
 
 ## Salmo 73:17
 
-> Hasta que entré en el santuario de Dios;  
->  Entonces comprendí el fin de ellos.
+> hasta que entré en el santuario de Dios;  
+>  allí entendí cómo terminarán ellos.
 
 ---
 
 ## Salmo 73:18
 
 > Ciertamente los pones en caminos resbaladizos;  
->  Los arrojas a la destrucción.
+>  los arrojas a la destrucción.
 
 ## Salmo 73:19
 
@@ -110,7 +110,7 @@
 ## Salmo 73:20
 
 > Como un sueño al despertar, Señor,  
->  Cuando te levantes, despreciarás su apariencia.
+>  cuando te levantes, despreciarás su apariencia.
 
 ---
 
@@ -120,8 +120,8 @@
 
 ## Salmo 73:22
 
-> Era yo torpe y sin entendimiento;  
->  Era como una bestia delante de ti.
+> Yo era necio e ignorante;  
+>  delante de ti era como un animal sin razón.
 
 ---
 
@@ -132,28 +132,28 @@
 
 ## Salmo 73:24
 
-> Me guías con tu consejo,  
->  Y después me recibirás en gloria.
+> Me guías con tu sabiduría,  
+>  y después me recibirás con honor.
 
 ## Salmo 73:25
 
-> ¿A quién tengo yo en los cielos sino a ti?  
->  Y fuera de ti nada deseo en la tierra.
+> ¿Qué otro tengo en el cielo, sino a ti?  
+>  Y en la tierra no deseo nada si no es a ti.
 
 ## Salmo 73:26
 
-> Mi carne y mi corazón desfallecen,  
->  Pero Dios es la fortaleza de mi corazón y mi porción para siempre.
+> Puede que mi cuerpo y mi corazón fallen,  
+>  pero Dios sigue siendo la fuerza de mi corazón y mi parte para siempre.
 
 ---
 
 ## Salmo 73:27
 
-> Porque he aquí, los que se alejan de ti perecerán;  
->  Tú destruyes a todos los que te son infieles.
+> Es cierto: los que se alejan de ti se perderán;  
+>  tú acabas con todos los que te traicionan.
 
 ## Salmo 73:28
 
-> Pero en cuanto a mí, el acercarme a Dios es el bien;  
->  He puesto en el Señor Soberano mi refugio,  
->  Para contar todas tus obras.
+> En cuanto a mí, lo bueno es estar cerca de Dios;  
+>  he hecho del Señor Dios mi refugio,  
+>  para contar todo lo que has hecho.

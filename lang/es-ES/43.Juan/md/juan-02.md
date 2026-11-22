@@ -14,7 +14,7 @@ Cuando se acabó el vino, la madre de Jesús le dijo: “No tienen vino.”
 
 ## Juan 2:4
 
-Jesús respondió: "Mujer, ¿qué tiene esto que ver conmigo? Mi hora aún no ha llegado."
+Jesús respondió: “Mujer, ¿qué tiene esto que ver conmigo? Mi hora aún no ha llegado.”
 
 ## Juan 2:5
 
@@ -26,11 +26,11 @@ Cerca había seis tinajas de piedra, usadas para los ritos de purificación de l
 
 ## Juan 2:7
 
-Jesús instruyó a los sirvientes: "Llenad las tinajas de agua," y las llenaron hasta el borde.
+Jesús dijo a los sirvientes: “Llenad las tinajas de agua,” y las llenaron hasta el borde.
 
 ## Juan 2:8
 
-Luego les instruyó: "Ahora sacad un poco y llevadlo al maestro de ceremonias." Y así lo hicieron.
+Luego les dijo: “Ahora sacad un poco y llevadlo al maestro de ceremonias.” Y así lo hicieron.
 
 ## Juan 2:9
 
@@ -38,11 +38,11 @@ El maestro de ceremonias probó el agua que se había convertido en vino, sin sa
 
 ## Juan 2:10
 
-y comentó: "Todos sirven primero el mejor vino, y cuando los invitados han bebido mucho, entonces el inferior; pero tú has guardado el mejor vino hasta ahora."
+y comentó: “Todos sirven primero el mejor vino, y cuando los invitados han bebido mucho, entonces el inferior; pero tú has guardado el mejor vino hasta ahora.”
 
 ## Juan 2:11
 
-Este fue el primero de los signos que Jesús realizó en Caná de Galilea, revelando su gloria; y sus discípulos creyeron en él.
+Esta fue la primera de las señales que Jesús realizó en Caná de Galilea, revelando su gloria; y sus discípulos creyeron en él.
 
 ---
 
@@ -66,25 +66,25 @@ Hizo un látigo de cuerdas y los echó a todos del templo, junto con las ovejas 
 
 ## Juan 2:16
 
-A los que vendían palomas, les dijo: "¡Quitad esto de aquí! ¡No hagáis de la casa de mi Padre un lugar de comercio!"
+A los que vendían palomas, les dijo: “¡Quitad esto de aquí! ¡No hagáis de la casa de mi Padre un lugar de comercio!”
 
 ## Juan 2:17
 
-Sus discípulos recordaron la escritura: "El celo por tu casa me consumirá."
+Sus discípulos recordaron la escritura: “El celo por tu casa me consumirá.”
 
 ---
 
 ## Juan 2:18
 
-Entonces los judíos le preguntaron: "¿Qué señal puedes mostrarnos para probar tu autoridad para hacer estas cosas?"
+Entonces los judíos le preguntaron: “¿Qué señal puedes mostrarnos para probar tu autoridad para hacer estas cosas?”
 
 ## Juan 2:19
 
-Jesús respondió: "Destruid este templo, y en tres días lo levantaré."
+Jesús respondió: “Destruid este templo, y en tres días lo levantaré.”
 
 ## Juan 2:20
 
-Ellos respondieron: "Este templo ha tardado cuarenta y seis años en ser construido, ¿y tú lo levantarás en tres días?"
+Ellos respondieron: “Este templo ha tardado cuarenta y seis años en ser construido, ¿y tú lo levantarás en tres días?”
 
 ## Juan 2:21
 
@@ -98,7 +98,7 @@ Después de que fue resucitado de entre los muertos, sus discípulos recordaron 
 
 ## Juan 2:23
 
-Mientras estaba en Jerusalén en el Festival de la Pascua, muchas personas vieron las señales que estaba realizando y creyeron en su nombre.
+Mientras estaba en Jerusalén en la fiesta de la Pascua, muchas personas vieron las señales que estaba realizando y creyeron en su nombre.
 
 ## Juan 2:24
 

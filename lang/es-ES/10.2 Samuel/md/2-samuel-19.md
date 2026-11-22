@@ -91,7 +91,7 @@ Así que inclinó el corazón de todos los hombres de Judá como un solo hombre,
 ## 2 Samuel 19:15
 
 Entonces el rey regresó y llegó hasta el Jordán.  
- Y los hombres de Judá vinieron a Guilgal para encontrarse con el rey,  
+ Y los hombres de Judá vinieron a Gilgal para encontrarse con el rey,  
  para escoltar al rey sobre el Jordán.
 
 ## 2 Samuel 19:16
@@ -116,7 +116,7 @@ Cruzaron el vado para llevar al otro lado la casa del rey y hacer lo que le agra
 Dijo al rey:  
  “No me tenga mi señor por culpable,  
  ni recuerde lo que tu siervo hizo mal el día que mi señor el rey salió de Jerusalén,  
- que el rey lo tome a pecho.
+ ni lo tome el rey a pecho.
 
 ## 2 Samuel 19:20
 
@@ -250,14 +250,14 @@ Así que todo el pueblo cruzó el Jordán,
 
 ## 2 Samuel 19:40
 
-Ahora el rey continuó hacia Guilgal,  
+Ahora el rey continuó hacia Gilgal,  
  y Quimham continuó con él.  
  Todo el pueblo de Judá y también la mitad del pueblo de Israel escoltaron al rey.
 
 ## 2 Samuel 19:41
 
 Y he aquí, todos los hombres de Israel vinieron al rey y le dijeron:  
- “¿Por qué nuestros hermanos, los hombres de Judá, te han robado,  
+ “¿Por qué nuestros hermanos, los hombres de Judá, te han llevado a escondidas,  
  y han traído al rey y a su casa sobre el Jordán,  
  y a todos los hombres de David con él?”
 

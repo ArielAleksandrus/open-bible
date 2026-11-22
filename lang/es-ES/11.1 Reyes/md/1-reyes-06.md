@@ -142,9 +142,9 @@ Dentro del santuario interior, hizo dos querubines de madera de olivo,
 
 ## 1 Reyes 6:24
 
-Cinco codos era la longitud de una ala del querubín,  
+Cinco codos era la longitud de un ala del querubín,  
  y cinco codos la longitud de la otra ala del querubín;  
- de la punta de una ala a la punta de la otra había diez codos.
+ de la punta de un ala a la punta de la otra había diez codos.
 
 ## 1 Reyes 6:25
 

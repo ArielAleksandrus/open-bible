@@ -54,7 +54,7 @@ A Tamar le informaron: “Tu suegro está subiendo a Timná a esquilar sus oveja
 
 ## Génesis 38:14
 
-Así que se quitó las vestiduras de viuda, se cubrió con un velo y se sentó a la entrada de Enaim, que está en el camino a Timná. Vio que Sela había crecido, pero no se le había dado como esposa.
+Así que se quitó las vestiduras de viuda, se cubrió con un velo y se sentó a la entrada de Enaim, que está en el camino a Timná. Vio que Sela había crecido, pero a ella no se la habían dado por esposa.
 
 ## Génesis 38:15
 

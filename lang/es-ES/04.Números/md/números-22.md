@@ -91,7 +91,7 @@ Balaam respondió al asna: “¡Me has avergonzado! Si tuviera una espada en mi 
 El asna le dijo a Balaam: “¿No soy yo tu propia asna, en la que has montado toda tu vida hasta hoy? ¿Acaso he tenido la costumbre de hacerte esto?” “No,” respondió él.
 
 ## Números 22:31
-Entonces el Señor permitió que Balaam viera claramente, y percibió al ángel del Señor de pie en el camino con su espada desenvainada. Así que se inclinó y cayó rostro en tierra.
+Entonces el Señor abrió los ojos de Balaam, y este vio al ángel del Señor de pie en el camino con su espada desenvainada. Así que se inclinó y cayó rostro en tierra.
 
 ## Números 22:32
 El ángel del Señor le preguntó: “¿Por qué has golpeado a tu asna estas tres veces? He venido aquí para oponerme a ti porque tu camino es imprudente ante mí.

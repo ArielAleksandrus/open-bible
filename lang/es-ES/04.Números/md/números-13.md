@@ -78,7 +78,7 @@ Ved cómo es la tierra, y si el pueblo que habita allí es fuerte o débil, si s
 
 ## Números 13:20
 
-¿Y cómo es el suelo? ¿Es fértil o pobre? ¿Hay árboles en ella o no? Sed valientes y traed algunos de los frutos de la tierra.” Ahora era la temporada de las primeras uvas maduras.
+¿Y cómo es el suelo? ¿Es fértil o pobre? ¿Hay árboles en ella o no? Sed valientes y traed algunos de los frutos de la tierra.” Era la temporada de las primeras uvas maduras.
 
 ## Números 13:21
 

@@ -31,7 +31,7 @@ Pero si adviertes al malvado para que se aparte de sus caminos y no lo hace, él
 “Ahora en cuanto a ti, hijo de hombre, di a la casa de Israel, ‘Esto es lo que estáis diciendo: “Nuestras ofensas y pecados nos abruman, y nos estamos consumiendo en ellos. ¿Cómo entonces podremos sobrevivir?”’
 
 ## Ezequiel 33:11
-Diles, ‘Vivo yo, declara el Señor Soberano, que no me complazco en la muerte del malvado, sino en que el malvado se aparte de sus caminos y viva. ¡Volved, volved de vuestros malos caminos! ¿Por qué habréis de morir, casa de Israel?’
+Diles, ‘Vivo yo, declara el Señor Dios, que no me complazco en la muerte del malvado, sino en que el malvado se aparte de sus caminos y viva. ¡Volved, volved de vuestros malos caminos! ¿Por qué habréis de morir, casa de Israel?’
 
 ## Ezequiel 33:12
 “Por lo tanto, hijo de hombre, di a tus conciudadanos, ‘La justicia de una persona justa no la salvará el día de su ofensa, y en cuanto a la maldad de una persona malvada, no caerá por ella el día que se aparte de su maldad; ni una persona justa podrá vivir por su justicia el día que cometa pecado.’
@@ -73,13 +73,13 @@ Entonces el mensaje del Señor vino a mí, diciendo:
 “Hijo de hombre, los que viven en las ruinas en la tierra de Israel están diciendo, ‘Abraham era solo un hombre, sin embargo poseía la tierra. Pero nosotros somos muchos; seguramente la tierra nos ha sido dada como posesión.’
 
 ## Ezequiel 33:25
-Por lo tanto, diles, ‘Esto es lo que dice el Señor Soberano: Ya que coméis carne con la sangre aún en ella, levantáis vuestros ojos hacia vuestros ídolos y derramáis sangre, ¿deberíais entonces poseer la tierra?
+Por lo tanto, diles, ‘Esto es lo que dice el Señor Dios: Ya que coméis carne con la sangre aún en ella, levantáis vuestros ojos hacia vuestros ídolos y derramáis sangre, ¿deberíais entonces poseer la tierra?
 
 ## Ezequiel 33:26
 Confiáis en vuestra espada, cometéis abominaciones, y cada uno de vosotros deshonra a la esposa de su vecino. ¿Deberíais entonces poseer la tierra?’
 
 ## Ezequiel 33:27
-Dirás esto a ellos: ‘Esto es lo que dice el Señor Soberano: Vivo yo, que los que están en las ruinas caerán por la espada, y a los que están en campo abierto los daré a los animales salvajes para que los devoren, y los que están en fortalezas y cuevas morirán de peste.
+Diles esto: ‘Esto es lo que dice el Señor Dios: Vivo yo, que los que están en las ruinas caerán por la espada, y a los que están en campo abierto los daré a los animales salvajes para que los devoren, y los que están en fortalezas y cuevas morirán de peste.
 
 ## Ezequiel 33:28
 Haré de la tierra un desierto desolado, y su orgullosa fuerza llegará a su fin, y las montañas de Israel estarán desoladas para que nadie pase por ellas.

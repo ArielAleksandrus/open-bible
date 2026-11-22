@@ -2,35 +2,35 @@
 
 ## Apocalipsis 21:1
 
-Vi un cielo nuevo y una tierra nueva, porque el primer cielo y la primera tierra habían pasado, y el mar ya no existía más.
+Después vi un cielo nuevo y una tierra nueva, porque el primer cielo y la primera tierra habían desaparecido, y el mar ya no existía.
 
 ## Apocalipsis 21:2
 
-Vi la ciudad santa, la nueva Jerusalén, que descendía del cielo de parte de Dios, preparada como una novia adornada para su esposo.
+Vi también la ciudad santa, la nueva Jerusalén, que bajaba del cielo, de parte de Dios, arreglada como una novia vestida para su esposo.
 
 ## Apocalipsis 21:3
 
-Y oí una gran voz desde el trono que decía: “He aquí, el lugar de morada de Dios está ahora entre el pueblo, y Él morará con ellos. Ellos serán su pueblo, y Dios mismo estará con ellos y será su Dios.
+Y oí una voz fuerte que salía del trono y decía: “¡Mirad! Ahora Dios vive entre los seres humanos, y vivirá con ellos. Ellos serán su pueblo, y Dios mismo estará con ellos y será su Dios.
 
 ## Apocalipsis 21:4
 
-Él enjugará toda lágrima de sus ojos, y ya no habrá muerte, ni luto, ni llanto, ni dolor, porque las primeras cosas han pasado.”
+Les secará todas las lágrimas de los ojos, y ya no habrá muerte, ni tristeza, ni llanto, ni dolor, porque lo que antes existía ha dejado de existir.”
 
 ## Apocalipsis 21:5
 
-El que estaba sentado en el trono dijo: “¡He aquí, yo hago nuevas todas las cosas!” Luego dijo: “Escribe esto, porque estas palabras son fieles y verdaderas.”
+El que estaba sentado en el trono dijo: “¡Mirad, yo hago nuevas todas las cosas!” Y añadió: “Escribe esto, porque estas palabras son verdaderas y dignas de confianza.”
 
 ## Apocalipsis 21:6
 
-Él me dijo: “Está hecho. Yo soy el Alfa y la Omega, el Principio y el Fin. Al que tenga sed, le daré gratuitamente de la fuente del agua de la vida.
+También me dijo: “Ya está hecho. Yo soy el Alfa y la Omega, el Principio y el Fin. Al que tenga sed le daré a beber gratuitamente del manantial del agua de la vida.
 
 ## Apocalipsis 21:7
 
-El que salga vencedor heredará estas cosas, y yo seré su Dios y él será mi hijo.
+El que venza recibirá todo esto como herencia, y yo seré su Dios y él será mi hijo.
 
 ## Apocalipsis 21:8
 
-Pero los cobardes, los incrédulos, los abominables, los asesinos, los inmorales sexuales, los hechiceros, los idólatras y todos los mentirosos, su lugar será en el lago ardiente de azufre. Esta es la segunda muerte.”
+Pero los cobardes, los que no creen, los que hacen cosas detestables, los asesinos, los que cometen inmoralidad sexual, los que practican la brujería, los que adoran ídolos y todos los mentirosos irán a parar al lago de fuego y azufre ardiente. Esa es la segunda muerte.”
 
 ## Apocalipsis 21:9
 

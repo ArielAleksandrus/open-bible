@@ -58,7 +58,7 @@ Como una maza, una espada o una flecha afilada es quien da falso testimonio cont
 Como un diente malo o un pie cojo es confiar en el infiel en tiempos de angustia.
 
 ## Proverbios 25:20
-Como quien quita una prenda en un día frío, o vinagre sobre soda, es quien canta canciones a un corazón afligido.
+Como quien quita una prenda en un día frío, o vinagre sobre salitre, es quien canta canciones a un corazón afligido.
 
 ## Proverbios 25:21
 Si tu enemigo tiene hambre, dale de comer; si tiene sed, dale agua para beber.

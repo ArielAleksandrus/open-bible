@@ -30,21 +30,21 @@ Un día, los hijos de Dios vinieron a presentarse ante el Señor, y Satanás tam
 
 ## Job 1:7
 
-El Señor le preguntó a Satanás, “¿De dónde vienes?”
+El Señor le preguntó a Satanás: “¿De dónde vienes?”
 
 ---
 
- Satanás respondió al Señor, “De recorrer la tierra y de andar por ella.”
+ Satanás respondió al Señor: “De recorrer la tierra y de andar por ella.”
 
 ## Job 1:8
 
-Entonces el Señor dijo a Satanás, “¿Te has fijado en mi siervo Job? No hay nadie como él en la tierra; es intachable y recto, un hombre que teme a Dios y se aparta del mal.”
+Entonces el Señor dijo a Satanás: “¿Te has fijado en mi siervo Job? No hay nadie como él en la tierra; es intachable y recto, un hombre que teme a Dios y se aparta del mal.”
 
 ---
 
 ## Job 1:9
 
-Satanás respondió al Señor, “¿Acaso teme Job a Dios de balde?”
+Satanás respondió al Señor: “¿Acaso teme Job a Dios de balde?”
 
 ## Job 1:10
 
@@ -58,7 +58,7 @@ Pero extiende ahora tu mano y toca todo lo que tiene, y seguramente te maldecir�
 
 ## Job 1:12
 
-El Señor dijo a Satanás, “Muy bien, todo lo que tiene está en tu poder, pero no pongas tu mano sobre él mismo.”
+El Señor dijo a Satanás: “Muy bien, todo lo que tiene está en tu poder, pero no pongas tu mano sobre él mismo.”
 
  Así que Satanás se fue de la presencia del Señor.
 
@@ -70,7 +70,7 @@ Un día, mientras los hijos e hijas de Job estaban comiendo y bebiendo vino en c
 
 ## Job 1:14
 
-un mensajero llegó y le informó a Job, “Los bueyes estaban arando y las asnas pastando cerca,
+un mensajero llegó y le informó a Job: “Los bueyes estaban arando y las asnas pastando cerca,
 
 ## Job 1:15
 
@@ -80,15 +80,15 @@ cuando los sabeos atacaron y se los llevaron. Mataron a los siervos a filo de es
 
 ## Job 1:16
 
-Mientras él aún hablaba, llegó otro mensajero y dijo, “El fuego de Dios cayó del cielo y quemó las ovejas y a los siervos, y solo yo he escapado para contártelo.”
+Mientras él aún hablaba, llegó otro mensajero y dijo: “El fuego de Dios cayó del cielo y quemó las ovejas y a los siervos, y solo yo he escapado para contártelo.”
 
 ## Job 1:17
 
-Mientras él aún hablaba, llegó otro mensajero y dijo, “Los caldeos formaron tres bandas y asaltaron los camellos y se los llevaron. Mataron a los siervos a filo de espada, y solo yo he escapado para contártelo.”
+Mientras él aún hablaba, llegó otro mensajero y dijo: “Los caldeos formaron tres bandas y asaltaron los camellos y se los llevaron. Mataron a los siervos a filo de espada, y solo yo he escapado para contártelo.”
 
 ## Job 1:18
 
-Mientras él aún hablaba, llegó otro mensajero y dijo, “Tus hijos e hijas estaban comiendo y bebiendo vino en casa de su hermano mayor,
+Mientras él aún hablaba, llegó otro mensajero y dijo: “Tus hijos e hijas estaban comiendo y bebiendo vino en casa de su hermano mayor,
 
 ## Job 1:19
 
@@ -100,10 +100,10 @@ Ante esto, Job se levantó, rasgó su manto y se rasuró la cabeza. Luego cayó 
 
 ## Job 1:21
 
-Declaró,
+Dijo:
 
->  “Desnudo salí del vientre de mi madre,
->  y desnudo volveré allá.
+>  “Desnudo vine del vientre de mi madre,
+>  y desnudo regresaré allí.
 >  El Señor dio, y el Señor ha quitado;
 >  bendito sea el nombre del Señor.”
 

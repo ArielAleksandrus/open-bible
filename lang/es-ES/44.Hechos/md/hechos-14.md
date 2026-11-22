@@ -10,7 +10,7 @@ Sin embargo, los judíos que no se dejaron persuadir incitaron a los gentiles y 
 
 ## Hechos 14:3
 
-Por consiguiente, Pablo y Bernabé pasaron allí un tiempo considerable, hablando con valentía confiando en el Señor, quien confirmaba el mensaje de su gracia permitiendo que se realizaran señales y prodigios a través de ellos.
+Por consiguiente, Pablo y Bernabé pasaron allí un tiempo considerable, hablando con valentía confiando en el Señor, quien confirmaba el mensaje de su gracia concediendo que se hicieran señales y prodigios por medio de ellos.
 
 ## Hechos 14:4
 
@@ -62,7 +62,7 @@ Al oír esto, los apóstoles Bernabé y Pablo rasgaron sus ropas y se lanzaron a
 
 ## Hechos 14:15
 
-“¡Hombres, por qué hacéis estas cosas? Nosotros también somos hombres, de la misma naturaleza que vosotros, y os traemos buenas nuevas, para que os volváis de estas cosas inútiles al Dios viviente, que hizo el cielo, la tierra, el mar y todo lo que hay en ellos.
+“Hombres, ¿por qué hacéis estas cosas? Nosotros también somos hombres, de la misma naturaleza que vosotros, y os traemos buenas nuevas, para que os volváis de estas cosas inútiles al Dios viviente, que hizo el cielo, la tierra, el mar y todo lo que hay en ellos.
 
 ## Hechos 14:16
 

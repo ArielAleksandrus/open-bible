@@ -44,7 +44,7 @@ Consciente de su discusión, Jesús dijo: “Hombres de poca fe, ¿por qué est�
 
 ## Mateo 16:11
 
-¿Cómo es que no entendéis que no os hablaba del pan? Sino que os guardéis de la levadura de los fariseos y saduceos.”
+¿Cómo es que no entendéis que no os hablaba del pan? Guardaos, más bien, de la levadura de los fariseos y saduceos.”
 
 ## Mateo 16:12
 
@@ -74,7 +74,7 @@ Jesús respondió: “Bendito eres, Simón hijo de Jonás, porque esto no te lo 
 
 ## Mateo 16:18
 
-Y yo te digo que tú eres Pedro, y sobre esta roca edificaré Mi iglesia, y las puertas del Hades no prevalecerán contra ella.
+Y yo te digo que tú eres Pedro, y sobre esta roca construiré Mi iglesia, y las puertas del Hades no podrán vencerla.
 
 ## Mateo 16:19
 

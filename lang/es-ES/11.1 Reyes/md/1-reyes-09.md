@@ -33,8 +33,8 @@ entonces estableceré el trono de tu reino sobre Israel permanentemente,
 
 ## 1 Reyes 9:6
 
-Pero si tú o tus hijos se apartan de seguirme,  
- y no guardan Mis mandamientos y Mis estatutos que he puesto delante de vosotros,  
+Pero si vosotros o vuestros hijos os apartáis de seguirme,  
+ y no guardáis Mis mandamientos y Mis estatutos que he puesto delante de vosotros,  
  y vais y servís a otros dioses y los adoráis,
 
 ## 1 Reyes 9:7

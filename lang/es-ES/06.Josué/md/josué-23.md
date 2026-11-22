@@ -24,7 +24,7 @@ El Señor vuestro Dios las expulsará de delante de vosotros y las alejará por 
 
 ## Josué 23:6
 
-Sed muy determinados en observar y hacer todo lo que está escrito en el Libro de la Ley de Moisés, sin desviaros ni a la derecha ni a la izquierda,
+Esforzaos mucho en guardar y hacer todo lo que está escrito en el Libro de la Ley de Moisés, sin desviaros ni a la derecha ni a la izquierda,
 
 ## Josué 23:7
 

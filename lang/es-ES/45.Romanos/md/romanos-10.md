@@ -34,11 +34,11 @@ Pero ¿qué dice? “La palabra está cerca de ti; está en tu boca y en tu cora
 
 ## Romanos 10:9
 
-Si reconoces con tu boca, “Jesús es el Señor,” y tienes fe en tu corazón que Dios lo resucitó de entre los muertos, serás salvo.
+Si reconoces con tu boca, “Jesús es el Señor,” y crees en tu corazón que Dios lo resucitó de entre los muertos, serás salvo.
 
 ## Romanos 10:10
 
-Porque con el corazón se cree y se justifica, y con la boca se declara y se salva.
+Porque con el corazón uno cree y es justificado, y con la boca uno declara y es salvo.
 
 ## Romanos 10:11
 
@@ -70,7 +70,7 @@ Así que la fe viene del oír, y el oír por el mensaje de Cristo.
 
 ## Romanos 10:18
 
-Pero pregunto: ¿No oyeron? En verdad lo hicieron:
+Pero pregunto: ¿No oyeron? Por supuesto que sí:
 
 >  “Su voz ha salido por toda la tierra,
 >  y sus palabras hasta los confines del mundo.”

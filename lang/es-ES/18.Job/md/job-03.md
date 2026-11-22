@@ -13,7 +13,7 @@ Y dijo:
 ## Job 3:3
 
 > “Que desaparezca el día de mi nacimiento,
->  y la noche que declaró, ‘Un niño ha sido concebido.’
+>  y la noche que declaró: ‘Un niño ha sido concebido.’
 
 ## Job 3:4
 
@@ -52,7 +52,7 @@ Y dijo:
 ## Job 3:10
 
 > porque no cerró las puertas del vientre de mi madre,
->  ni mantuvo el problema lejos de mis ojos.
+>  ni escondió de mis ojos la miseria.
 
 ---
 
@@ -130,7 +130,7 @@ Y dijo:
 ## Job 3:25
 
 > Porque lo que temía ha venido sobre mí,
->  y lo que temía me ha sobrecogido.
+>  y lo que me aterraba me ha sobrecogido.
 
 ## Job 3:26
 

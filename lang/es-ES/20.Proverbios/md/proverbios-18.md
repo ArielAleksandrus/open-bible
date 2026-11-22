@@ -43,7 +43,7 @@ Responder antes de escuchar es necedad y trae vergüenza.
 El espíritu de una persona puede sostenerla en la enfermedad, pero un espíritu quebrantado, ¿quién lo puede soportar?
 
 ## Proverbios 18:15
-El corazón discernidor adquiere conocimiento, y los oídos de los sabios lo buscan.
+El corazón entendido adquiere conocimiento, y los oídos de los sabios lo buscan.
 
 ## Proverbios 18:16
 Un regalo abre el camino para el que lo da y lo lleva ante los grandes.

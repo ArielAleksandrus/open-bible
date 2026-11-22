@@ -10,7 +10,7 @@ A los santos y fieles hermanos y hermanas en Cristo en Colosas: Gracia y paz a v
 Continuamente expresamos nuestra gratitud a Dios, el Padre de nuestro Señor Jesucristo, siempre que oramos por vosotros,
 
 ## Colosenses 1:4
-desde que oímos de vuestra fe en Cristo Jesús y del amor que tenéis por todos los santos—
+desde que oímos de vuestra fe en Cristo Jesús y del amor que tenéis por todos los santos,
 
 ## Colosenses 1:5
 a causa de la esperanza reservada para vosotros en el cielo, de la cual ya habéis oído en el verdadero mensaje del evangelio
@@ -43,16 +43,16 @@ Porque él nos ha rescatado del dominio de las tinieblas y nos ha trasladado al 
 en quien tenemos redención, el perdón de los pecados.
 
 ## Colosenses 1:15
-El Hijo refleja al Dios invisible, el primogénito de toda creación.
+El Hijo es la imagen del Dios invisible, el primogénito de toda creación.
 
 ## Colosenses 1:16
-Porque en él fueron creadas todas las cosas: las que están en los cielos y en la tierra, visibles e invisibles, ya sean tronos o dominios o gobernantes o autoridades; todas las cosas han sido creadas por medio de él y para él.
+porque por medio de Él Dios creó todo lo que existe, en el cielo y en la tierra, lo que se ve y lo que no se ve, tronos, dominios, gobernantes y autoridades; todo ha sido creado por medio de Él y para Él.
 
 ## Colosenses 1:17
 Él es antes de todas las cosas, y por él todas las cosas se mantienen unidas.
 
 ## Colosenses 1:18
-Y él es la cabeza del cuerpo, la iglesia; él es el principio y el primogénito de entre los muertos, para que tenga supremacía en todo.
+Él es la cabeza del cuerpo, que es la iglesia; Él es el principio, el primero en resucitar de entre los muertos, para tener el primer lugar en todo.
 
 ## Colosenses 1:19
 Porque fue del agrado del Padre que toda su plenitud habitara en él,
@@ -64,7 +64,7 @@ y por medio de él reconciliar todas las cosas consigo mismo, ya sean las de la 
 Antes estabais alejados de Dios y erais hostiles en vuestra mente, dedicados a malas obras,
 
 ## Colosenses 1:22
-pero ahora él os ha reconciliado mediante el cuerpo físico de Cristo por su muerte para presentaros santos ante él, sin mancha y libres de acusación—
+pero ahora él os ha reconciliado mediante el cuerpo físico de Cristo por su muerte para presentaros santos ante él, sin mancha y libres de acusación,
 
 ## Colosenses 1:23
 si continuáis en vuestra fe, firmes y estables, y no os apartáis de la esperanza ofrecida por el evangelio. Este es el evangelio que habéis oído y que ha sido proclamado a toda criatura bajo el cielo, del cual yo, Pablo, me he hecho servidor.
@@ -73,7 +73,7 @@ si continuáis en vuestra fe, firmes y estables, y no os apartáis de la esperan
 Ahora me regocijo en mis sufrimientos por vuestro bien, y en mi carne estoy completando lo que falta en cuanto a las aflicciones de Cristo, por el bien de su cuerpo, que es la iglesia.
 
 ## Colosenses 1:25
-Me he hecho servidor de ella por la tarea que Dios me asignó para presentaros la palabra de Dios en toda su plenitud—
+Me he hecho servidor de ella por la tarea que Dios me asignó para presentaros la palabra de Dios en toda su plenitud:
 
 ## Colosenses 1:26
 el misterio que ha estado oculto durante siglos y generaciones, pero que ahora se ha revelado al pueblo del Señor.

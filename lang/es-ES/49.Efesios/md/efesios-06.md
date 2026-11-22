@@ -10,7 +10,7 @@ Hijos, obedeced a vuestros padres como es debido en el Señor, porque esto es lo
 “para que te vaya bien y tengas una larga vida en la tierra.”
 
 ## Efesios 6:4
-Padres, no provoquéis a ira a vuestros hijos; más bien, criadlos con la disciplina e instrucción del Señor.
+Padres, no hagáis enfadar a vuestros hijos; al contrario, educadlos con la disciplina y la enseñanza del Señor.
 
 ## Efesios 6:5
 Esclavos, obedeced a vuestros amos terrenales con respeto y temblor, y con sinceridad de corazón, como obedeceríais a Cristo.
@@ -28,16 +28,16 @@ sabiendo que cualquier bien que alguien haga será recompensado por el Señor, y
 Y amos, tratad a vuestros esclavos de la misma manera. Absteneos de amenazar, sabiendo que tanto su Amo como el vuestro está en el cielo, y Él no muestra parcialidad.
 
 ## Efesios 6:10
-Finalmente, fortaleceos en el Señor y en el poder de su fuerza.
+Por último, buscad vuestra fuerza en el Señor y en su gran poder.
 
 ## Efesios 6:11
-Poneos toda la armadura de Dios, para que podáis estar firmes contra las artimañas del diablo.
+Poneos la armadura completa de Dios, para que podáis manteneros firmes frente a las trampas del diablo.
 
 ## Efesios 6:12
 Porque nuestra lucha no es contra carne y sangre, sino contra los gobernantes, contra las autoridades, contra los poderes de este mundo oscuro, y contra las fuerzas espirituales de maldad en las regiones celestiales.
 
 ## Efesios 6:13
-Por lo tanto, tomad toda la armadura de Dios, para que podáis resistir en el día malo, y habiendo hecho todo, estar firmes.
+Por eso, tomad la armadura completa de Dios, para que podáis resistir cuando llegue el día malo y, después de haberlo hecho todo, sigáis en pie.
 
 ## Efesios 6:14
 Estad firmes, pues, con el cinturón de la verdad ceñido a vuestra cintura, y la coraza de justicia en su lugar,
@@ -49,7 +49,7 @@ y con los pies preparados con la disposición que proviene del evangelio de la p
 Además de todo esto, levantad el escudo de la fe, que os permite apagar todos los dardos de fuego del maligno.
 
 ## Efesios 6:17
-Recibid el casco de la salvación y la espada del Espíritu, que es la palabra de Dios.
+Recibid la salvación como casco y la espada del Espíritu, que es la palabra de Dios.
 
 ## Efesios 6:18
 Orad en el Espíritu en toda ocasión con toda clase de oraciones y peticiones. Con esto en mente, estad alerta y perseverad en oración por todos los santos.

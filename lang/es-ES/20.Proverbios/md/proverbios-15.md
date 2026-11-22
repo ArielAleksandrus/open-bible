@@ -7,10 +7,10 @@ La respuesta amable desvía el enojo, pero la palabra áspera incita la furia.
 La lengua de los sabios mejora el conocimiento, pero la boca de los necios derrama necedad.
 
 ## Proverbios 15:3
-Los ojos del Señor están en todo lugar, observando a los malos y a los buenos.
+El Señor tiene los ojos puestos en todas partes; vigila a los malos y a los buenos.
 
 ## Proverbios 15:4
-La lengua apacible es árbol de vida, pero la lengua perversa quebranta el espíritu.
+Las palabras que calman son un árbol de vida, pero la lengua retorcida destroza el ánimo.
 
 ## Proverbios 15:5
 El necio rechaza la disciplina de un padre, pero quien acepta la corrección es sabio.
@@ -31,7 +31,7 @@ El Señor encuentra el camino de los malvados detestable, pero ama a los que sig
 Severa disciplina espera a quien se desvía del camino; quien odia la corrección morirá.
 
 ## Proverbios 15:11
-El Seol y el Abadón están abiertos ante el Señor; ¡cuánto más los corazones de los hombres!
+Si el Seol y el Abadón están a la vista del Señor, ¡cuánto más el corazón de los seres humanos!
 
 ## Proverbios 15:12
 El burlador resiente la corrección y no buscará a los sabios.
@@ -40,13 +40,13 @@ El burlador resiente la corrección y no buscará a los sabios.
 El corazón alegre hace un rostro risueño, pero el corazón quebrantado aplasta el espíritu.
 
 ## Proverbios 15:14
-El corazón discernidor busca conocimiento, pero la boca de los necios se complace en la necedad.
+El corazón entendido busca conocimiento, pero la boca de los necios se complace en la necedad.
 
 ## Proverbios 15:15
 Todos los días del oprimido son difíciles, pero el corazón alegre disfruta de un banquete continuo.
 
 ## Proverbios 15:16
-Mejor es poco con el temor del Señor que gran riqueza con turbación.
+Más vale tener poco y respetar al Señor que tener muchas riquezas y vivir con angustia.
 
 ## Proverbios 15:17
 Mejor es una porción pequeña de verduras con amor que un buey engordado con odio.
@@ -61,7 +61,7 @@ El camino del perezoso es como un cerco de espinas, pero la senda de los rectos 
 El hijo sabio trae alegría a su padre, pero el necio desprecia a su madre.
 
 ## Proverbios 15:21
-La necedad trae alegría al que carece de sentido, pero la persona de entendimiento camina por un camino recto.
+La necedad trae alegría al falto de juicio, pero la persona de entendimiento camina por un camino recto.
 
 ## Proverbios 15:22
 Los planes fracasan sin consejo, pero con muchos consejeros tienen éxito.
@@ -70,10 +70,10 @@ Los planes fracasan sin consejo, pero con muchos consejeros tienen éxito.
 La persona encuentra alegría en una respuesta adecuada, ¡y qué agradable es una palabra oportuna!
 
 ## Proverbios 15:24
-El camino de la vida lleva hacia arriba para el prudente, para mantenerlo de descender al Seol.
+El camino de la vida lleva hacia arriba para el prudente, para que no descienda al Seol.
 
 ## Proverbios 15:25
-El Señor derribará la casa de los soberbios, pero protegerá el límite de la viuda.
+El Señor derribará la casa de los soberbios, pero protegerá los linderos de la viuda.
 
 ## Proverbios 15:26
 El Señor encuentra detestables los planes malvados, pero las palabras amables son puras.

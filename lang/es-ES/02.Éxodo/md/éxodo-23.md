@@ -13,7 +13,7 @@ No muestres parcialidad a una persona pobre en su disputa.
 “Si encuentras el buey o el burro de tu enemigo vagando, debes devolvérselo.
 
 ## Éxodo 23:5
-Si ves el burro de alguien que te odia tendido bajo su carga, no lo dejes allí; debes ayudar a liberarlo con ellos.
+Si ves el burro de alguien que te odia tendido bajo su carga, no lo dejes allí; debes ayudarle a liberarlo.
 
 ## Éxodo 23:6
 “No niegues justicia a tu gente necesitada en sus juicios.
@@ -22,7 +22,7 @@ Si ves el burro de alguien que te odia tendido bajo su carga, no lo dejes allí;
 Evita cualquier acusación falsa, y no hagas daño al inocente o al justo, porque no declararé inocente al culpable.
 
 ## Éxodo 23:8
-“No aceptes un soborno, porque un soborno ciega al claro de vista y corrompe las palabras de los justos.
+“No aceptes un soborno, porque un soborno ciega a los que ven con claridad y corrompe las palabras de los justos.
 
 ## Éxodo 23:9
 “No oprimas a un extranjero; conoces el corazón de un extranjero, porque fuisteis extranjeros en Egipto.
@@ -31,7 +31,7 @@ Evita cualquier acusación falsa, y no hagas daño al inocente o al justo, porqu
 “Durante seis años sembrarás tu tierra y recogerás su producto,
 
 ## Éxodo 23:11
-pero en el séptimo año, déjala descansar y yacer en barbecho, para que los pobres de tu pueblo puedan comer, y lo que ellos dejen, lo coman los animales salvajes. Haz lo mismo con tu viñedo y tu olivar.
+pero en el séptimo año, déjala descansar en barbecho, para que los pobres de tu pueblo puedan comer, y lo que ellos dejen, lo coman los animales salvajes. Haz lo mismo con tu viñedo y tu olivar.
 
 ## Éxodo 23:12
 “Seis días harás tu trabajo, pero en el séptimo día cesarás de trabajar, para que tu buey y tu burro puedan descansar, y el hijo de tu sierva y el extranjero puedan refrescarse.
@@ -49,7 +49,7 @@ Guardarás la Fiesta de los Panes sin Levadura; durante siete días comerás pan
 “Guarda la Fiesta de la Cosecha con los primeros frutos de tus labores de lo que siembres en el campo, y la Fiesta de la Recolección al final del año, cuando recojas tus cosechas del campo.
 
 ## Éxodo 23:17
-“Tres veces al año todos tus varones se presentarán ante el Señor Soberano.
+“Tres veces al año todos tus varones se presentarán ante el Señor Dios.
 
 ## Éxodo 23:18
 “No ofrecerás la sangre de mi sacrificio con nada que contenga levadura, ni dejarás la grasa de mis ofrendas festivas hasta la mañana.
@@ -58,13 +58,13 @@ Guardarás la Fiesta de los Panes sin Levadura; durante siete días comerás pan
 “Lleva lo mejor de los primeros frutos de tu suelo a la casa del Señor tu Dios. “No cocerás un cabrito en la leche de su madre.
 
 ## Éxodo 23:20
-“He aquí, envío un ángel delante de ti para guardarte en el camino y llevarte al lugar que he preparado.
+“Mira, voy a enviar un ángel delante de ti, para que te proteja en el camino y te lleve al lugar que he preparado.
 
 ## Éxodo 23:21
-Sé atento a él y escucha su voz; no seas rebelde hacia él, porque no perdonará tus transgresiones, ya que mi Nombre está en él.
+Presta atención a él y escucha su voz; no seas rebelde hacia él, porque no perdonará tus transgresiones, ya que mi Nombre está en él.
 
 ## Éxodo 23:22
-Si verdaderamente obedeces su voz y haces todo lo que digo, seré enemigo de tus enemigos y opondré a los que se opongan a ti.
+Si verdaderamente obedeces su voz y haces todo lo que digo, seré enemigo de tus enemigos y me opondré a los que se opongan a ti.
 
 ## Éxodo 23:23
 Mi ángel irá delante de ti y te llevará a la tierra de los amorreos, hititas, ferezeos, cananeos, heveos y jebuseos, y los destruiré completamente.

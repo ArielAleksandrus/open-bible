@@ -26,7 +26,7 @@ Aram, Efraín, y el hijo de Remalías han tramado el mal contra ti, diciendo,
 
 ## Isaías 7:7
 
-Así dice el Señor Soberano: “‘No se mantendrá, ni sucederá.
+Así dice el Señor Dios: “‘No se mantendrá, ni sucederá.
 
 ## Isaías 7:8
 
@@ -54,11 +54,11 @@ Entonces Isaías dijo, “¡Escucha ahora, oh casa de David! ¿No es suficiente 
 
 ## Isaías 7:14
 
-Por tanto, el mismo Señor os dará una señal: He aquí, la joven virgen concebirá y dará a luz un hijo, y llamará su nombre Emanuel.
+Por tanto, el mismo Señor os dará una señal: He aquí, la virgen concebirá y dará a luz un hijo, y llamará su nombre Emanuel.
 
 ## Isaías 7:15
 
-Comerá cuajada y miel para cuando sepa rechazar el mal y escoger el bien,
+Comerá cuajada y miel cuando ya sepa rechazar lo malo y elegir lo bueno,
 
 ## Isaías 7:16
 

@@ -112,7 +112,7 @@ De un solo hombre hizo todas las naciones de la humanidad para habitar toda la t
 
 ## Hechos 17:27
 
-para que busquen a Dios, si en alguna manera, palpando, puedan hallarlo, aunque no está lejos de ninguno de nosotros.
+para que busquen a Dios y, tal vez, a tientas, lleguen a encontrarlo, aunque no está lejos de ninguno de nosotros.
 
 ## Hechos 17:28
 
@@ -120,15 +120,15 @@ Porque en él vivimos, nos movemos y existimos, como incluso algunos de vuestros
 
 ## Hechos 17:29
 
-Por tanto, siendo linaje de Dios, no debemos pensar que la naturaleza divina es semejante al oro, o a la plata, o a la piedra, una imagen hecha por diseño y habilidad humana.
+Así que, ya que somos descendencia de Dios, no debemos pensar que la naturaleza divina se parece al oro, a la plata o a la piedra, a una imagen hecha por el diseño y la habilidad humanos.
 
 ## Hechos 17:30
 
-En el pasado, Dios pasó por alto tal ignorancia, pero ahora manda a todos los hombres en todo lugar que se arrepientan,
+Dios pasó por alto en otro tiempo esa ignorancia, pero ahora ordena a todas las personas, en todas partes, que se arrepientan.
 
 ## Hechos 17:31
 
-porque ha establecido un día en el que juzgará al mundo con justicia por el hombre que ha designado. Ha dado prueba de esto a todos al levantarlo de entre los muertos.”
+Porque ha fijado un día en el que juzgará al mundo con justicia por medio del hombre que él ha escogido; y lo ha demostrado ante todos al resucitarlo de entre los muertos.”
 
 ---
 

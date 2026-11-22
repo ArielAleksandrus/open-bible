@@ -66,8 +66,8 @@ Entonces el rey de Asiria llevó a Israel al exilio a Asiria,
 ## 2 Reyes 18:12
 
 porque no obedecieron la voz del Señor su Dios,  
- sino que violaron su pacto —todo lo que Moisés, siervo del Señor, había mandado;  
- no escucharon ni obedecieron—.
+ sino que violaron su pacto —todo lo que Moisés, siervo del Señor, había mandado—;  
+ no escucharon ni obedecieron.
 
 ---
 
@@ -119,19 +119,19 @@ Entonces Rabsaces les dijo:
 
 ## 2 Reyes 18:20
 
-Dices —pero son solo palabras vacías—"Tengo un plan y fuerza para la guerra.  
-" Ahora, ¿en quién has confiado, que te has rebelado contra mí?
+Dices —pero son solo palabras vacías—: “Tengo un plan y fuerza para la guerra.  
+” Ahora, ¿en quién has confiado, que te has rebelado contra mí?
 
 ## 2 Reyes 18:21
 
 Ahora bien, he aquí que has confiado en el bastón de esta caña rota, en Egipto,  
  en el cual, si un hombre se apoya, se le clavará en la mano y lo atravesará.  
- Así es Faraón, rey de Egipto, para todos los que confían en él.
+ Así es el faraón, rey de Egipto, para todos los que confían en él.
 
 ## 2 Reyes 18:22
 
-Pero si me dices: "Hemos confiado en el Señor nuestro Dios,  
-" ¿no es Él cuyos lugares altos y altares Ezequías ha quitado,  
+Pero si me dices: “Hemos confiado en el Señor nuestro Dios,  
+” ¿no es Él cuyos lugares altos y altares Ezequías ha quitado,  
  y ha dicho a Judá y a Jerusalén,  
  “Adoraréis delante de este altar en Jerusalén”?
 
@@ -162,7 +162,7 @@ Entonces Eliacim hijo de Hilcías, y Sebna y Joa, dijeron a Rabsaces:
 ## 2 Reyes 18:27
 
 Pero Rabsaces les dijo:  
- “¿Me ha enviado mi señor solo a tu señor y a ti para hablar estas palabras,  
+ “¿Me ha enviado mi señor solo a vuestro señor y a vosotros para hablar estas palabras,  
  y no a los hombres que están sentados sobre el muro,  
  que están condenados a comer su propio estiércol y beber su propia orina con vosotros?”
 

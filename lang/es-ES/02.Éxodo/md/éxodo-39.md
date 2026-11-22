@@ -25,7 +25,7 @@ Estas fueron colocadas en las piezas para los hombros del efod como piedras conm
 El pectoral fue confeccionado por un hábil bordador, como el efod, de oro, y de hilo violeta, púrpura y escarlata, y lino finamente torcido.
 
 ## Éxodo 39:9
-Era cuadrado y doblado en doble, un palmo de largo y ancho.
+Era cuadrado y doblado en dos, un palmo de largo y ancho.
 
 ## Éxodo 39:10
 Montaron cuatro hileras de piedras preciosas en él. La primera hilera era rubí, topacio y esmeralda;
@@ -64,31 +64,31 @@ También hicieron dos anillos más de oro y los fijaron a la parte inferior de l
 Los anillos del pectoral se ataron a los anillos del efod con un cordón violeta, para que el pectoral permaneciera unido al cinturón y no se balanceara, como el Señor mandó a Moisés.
 
 ## Éxodo 39:22
-La túnica del efod fue hecha enteramente de tela violeta, obra de un tejedor.
+El manto del efod fue hecho enteramente de tela violeta, obra de un tejedor.
 
 ## Éxodo 39:23
 Tenía una abertura en el centro, como la abertura de una cota de malla, con un ribete alrededor de la abertura para evitar que se rasgara.
 
 ## Éxodo 39:24
-Hicieron granadas de hilo violeta, púrpura y escarlata y lino finamente torcido alrededor del dobladillo de la túnica.
+Hicieron granadas de hilo violeta, púrpura y escarlata y lino finamente torcido alrededor del dobladillo del manto.
 
 ## Éxodo 39:25
 Se hicieron campanas de oro puro y se colocaron entre las granadas alrededor del dobladillo.
 
 ## Éxodo 39:26
-Las campanas y las granadas alternaban alrededor del dobladillo de la túnica para ministrar, como el Señor mandó a Moisés.
+Las campanas y las granadas alternaban alrededor del dobladillo del manto para ministrar, como el Señor mandó a Moisés.
 
 ## Éxodo 39:27
 Se hicieron túnicas de lino finamente tejido para Aarón y sus hijos.
 
 ## Éxodo 39:28
-También hicieron el turbante de lino fino, las cofias decoradas y las prendas interiores de lino finamente torcido.
+También hicieron el turbante de lino fino, los gorros decorados y las prendas interiores de lino finamente torcido.
 
 ## Éxodo 39:29
 El cinturón fue confeccionado de lino finamente torcido y de hilo violeta, púrpura y escarlata, obra de un bordador, como el Señor mandó a Moisés.
 
 ## Éxodo 39:30
-Hicieron la placa, el emblema sagrado, de oro puro y grabaron en ella, como una inscripción en un sello: "Santo para el Señor."
+Hicieron la placa, el emblema sagrado, de oro puro y grabaron en ella, como una inscripción en un sello: “Santo para el Señor.”
 
 ## Éxodo 39:31
 Un cordón violeta fue fijado a ella para sujetarla al turbante, como el Señor mandó a Moisés.
@@ -103,7 +103,7 @@ Llevaron el tabernáculo a Moisés: la tienda y todos sus enseres, sus broches, 
 la cubierta de pieles de carnero teñidas de rojo, la cubierta de cuero fino y la cortina protectora;
 
 ## Éxodo 39:35
-el arca del pacto con sus varas y la cubierta del propiciatorio;
+el arca del pacto con sus varas y el propiciatorio;
 
 ## Éxodo 39:36
 la mesa con todos sus utensilios y el pan de la Presencia;

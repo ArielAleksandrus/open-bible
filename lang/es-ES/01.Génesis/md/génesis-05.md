@@ -6,7 +6,7 @@ Este es el registro de las generaciones de Adán. El día que Dios creó a la hu
 
 ## Génesis 5:2
 
-Los creó hombre y mujer, y los bendijo. Los llamó "Humanidad" el día en que fueron creados.
+Los creó hombre y mujer, y los bendijo. Los llamó “Humanidad” el día en que fueron creados.
 
 ## Génesis 5:3
 
@@ -86,7 +86,7 @@ Cuando Enoc alcanzó los 65 años, engendró a Matusalén.
 
 ## Génesis 5:22
 
-Después de convertirse en padre de Matusalén, Enoc caminó cerca de Dios durante 300 años y tuvo otros hijos e hijas.
+Después de convertirse en padre de Matusalén, Enoc caminó con Dios durante 300 años y tuvo otros hijos e hijas.
 
 ## Génesis 5:23
 

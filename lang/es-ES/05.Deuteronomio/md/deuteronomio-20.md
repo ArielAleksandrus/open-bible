@@ -22,7 +22,7 @@ Los oficiales hablarán entonces al pueblo, diciendo: “¿Hay alguien que haya 
 ¿Hay alguien que se haya comprometido con una mujer y no se haya casado aún con ella? Que regrese a su casa, no sea que muera en la batalla y otro se case con ella.”
 
 ## Deuteronomio 20:8
-Los oficiales también dirán, “¿Hay alguien que tenga miedo o esté desmayado? Que regrese a su casa, para que no se desmaye el corazón de sus compañeros como el suyo.”
+Los oficiales también dirán, “¿Hay alguien que tenga miedo o sea cobarde? Que regrese a su casa, para que no se desmaye el corazón de sus compañeros como el suyo.”
 
 ## Deuteronomio 20:9
 Cuando los oficiales hayan terminado de hablar al pueblo, nombrarán comandantes sobre el ejército.
@@ -31,7 +31,7 @@ Cuando los oficiales hayan terminado de hablar al pueblo, nombrarán comandantes
 Cuando te acerques a una ciudad para hacerle la guerra, le ofrecerás términos de paz.
 
 ## Deuteronomio 20:11
-Si acepta hacer la paz contigo y abre sus puertas, toda la gente que se encuentre en ella se convertirá en tu trabajo forzado y te servirá.
+Si acepta hacer la paz contigo y abre sus puertas, toda la gente que se encuentre en ella quedará sujeta a trabajo forzado y te servirá.
 
 ## Deuteronomio 20:12
 Pero si se niega a hacer la paz y te hace la guerra, la sitiarás.

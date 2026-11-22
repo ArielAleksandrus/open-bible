@@ -57,12 +57,12 @@ Ben-abinadab, en toda la región de Dor (Tafat, la hija de Salomón, era su espo
 
 Baana, hijo de Ahilud, en Taanac y Meguido, y todo Bet-seán,  
  que está junto a Zaretán, debajo de Jezreel, desde Bet-seán hasta Abel-meholá,  
- extendiendo hasta el otro lado de Jocmeam;
+ hasta el otro lado de Jocmeam;
 
 ## 1 Reyes 4:13
 
 Ben-geber, en Ramot de Galaad (las ciudades de Jair, hijo de Manasés, que están en Galaad, eran suyas;  
- también la región de Argob, que está en Basán —sesenta grandes ciudades con muros y barras de bronce)—;
+ también la región de Argob, que está en Basán: sesenta grandes ciudades con muros y barras de bronce);
 
 ## 1 Reyes 4:14
 
@@ -74,7 +74,7 @@ Ahimaas, en Neftalí (también tomó a Basemat, la hija de Salomón, como esposa
 
 ## 1 Reyes 4:16
 
-Baana, hijo de Husai - responsable de Aser y Bealot;
+Baana, hijo de Husai, en Aser y Bealot;
 
 ## 1 Reyes 4:17
 
@@ -118,7 +118,7 @@ diez bueyes gordos, veinte bueyes de pasto,
 
 Porque tenía dominio sobre todo lo que estaba al oeste del Río,  
  desde Tifsa hasta Gaza, sobre todos los reyes al oeste del Río;  
- y tenía paz en todos los lados alrededor de él.
+ y tenía paz por todos lados a su alrededor.
 
 ## 1 Reyes 4:25
 

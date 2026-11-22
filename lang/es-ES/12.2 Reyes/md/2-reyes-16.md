@@ -94,7 +94,7 @@ Entonces el rey Acaz ordenó al sacerdote Urías, diciendo,
  con el holocausto de todo el pueblo de la tierra,  
  y su ofrenda de cereal y sus libaciones;  
  y rocía sobre él toda la sangre de los holocaustos y toda la sangre de los sacrificios.  
- Pero el altar de bronce será para mí para consultar.”
+ Pero el altar de bronce quedará para que yo consulte.”
 
 ## 2 Reyes 16:16
 

@@ -39,8 +39,8 @@ Sin embargo, la palabra del rey prevaleció contra Joab.
 
 Joab dio el número del censo de todo el pueblo a David.
 
->  Y todo Israel era de 1,100,000 hombres que sacaban espada,  
->  y Judá era de 470,000 hombres que sacaban espada.
+>  Y todo Israel era de 1 100 000 hombres que sacaban espada,  
+>  y Judá era de 470 000 hombres que sacaban espada.
 
 ---
 
@@ -131,8 +131,8 @@ Y Dios envió un ángel a Jerusalén para destruirla;
  pero cuando estaba a punto de destruirla,  
  el Señor vio y se arrepintió del desastre,
 
->  y dijo al ángel destructor,  
->  “Basta; ahora relaja tu mano.”  
+>  y dijo al ángel destructor:  
+>  “¡Basta! Retira ya tu mano.”  
 >  Y el ángel del Señor estaba de pie junto a la era de Ornán el jebuseo.
 
 ---
@@ -198,7 +198,7 @@ Entonces David dijo a Ornán:
 >  “Dame el lugar de la era,  
 >  para que pueda construir un altar al Señor en ella;  
 >  dámelo por el precio completo,  
->  para que la plaga se detenga del pueblo.”
+>  para que la plaga se aparte del pueblo.”
 
 ---
 

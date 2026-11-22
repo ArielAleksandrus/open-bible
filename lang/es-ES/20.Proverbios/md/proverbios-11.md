@@ -52,7 +52,7 @@ Una mujer bondadosa gana honor, pero los hombres despiadados solo ganan riquezas
 Una persona misericordiosa se beneficia a sí misma, pero los crueles se causan daño a sí mismos.
 
 ## Proverbios 11:18
-Una persona malvada gana salarios engañosos, pero quien siembra justicia recibe una verdadera recompensa.
+El malvado obtiene una paga engañosa, pero quien siembra justicia recibe una verdadera recompensa.
 
 ## Proverbios 11:19
 Los firmes en la justicia alcanzan la vida, pero quienes persiguen el mal encuentran la muerte.

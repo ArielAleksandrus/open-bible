@@ -16,7 +16,7 @@ Pregunté al ángel que hablaba conmigo: “¿Qué son estos, mi señor?”
 El ángel que hablaba conmigo respondió: “¿No sabes qué son estos?” Dije: “No, mi señor.”
 
 ## Zacarías 4:6
-Entonces me dijo: “Esta es la palabra del Señor a Zorobabel: ‘No con ejército, ni con fuerza, sino con mi Espíritu,’ declara el Señor de los Ejércitos.
+Entonces me dijo: “Esta es la palabra del Señor a Zorobabel: ‘No por el poderío ni por la fuerza, sino por mi Espíritu,’ declara el Señor de los ejércitos.
 
 ## Zacarías 4:7
 ‘¿Quién eres tú, gran monte? Delante de Zorobabel te convertirás en terreno llano. Él sacará la piedra principal con gritos de “¡Gracia, gracia a ella!”’”
@@ -25,10 +25,10 @@ Entonces me dijo: “Esta es la palabra del Señor a Zorobabel: ‘No con ejérc
 El mensaje del Señor vino a mí, diciendo,
 
 ## Zacarías 4:9
-“Las manos de Zorobabel han puesto los cimientos de esta casa; sus manos también la completarán. Entonces sabrás que el Señor de los Ejércitos me ha enviado a ti.
+“Las manos de Zorobabel han puesto los cimientos de esta casa; sus manos también la completarán. Entonces sabrás que el Señor de los ejércitos me ha enviado a ti.
 
 ## Zacarías 4:10
-Porque ¿quién ha despreciado el día de las cosas pequeñas? Estos siete se alegrarán cuando vean el cordel de medir en la mano de Zorobabel; ellos son los ojos del Señor que recorren toda la tierra.”
+Porque ¿quién ha despreciado el día de las cosas pequeñas? Estos siete se alegrarán cuando vean la plomada en la mano de Zorobabel; ellos son los ojos del Señor que recorren toda la tierra.”
 
 ## Zacarías 4:11
 Entonces le pregunté: “¿Qué son estos dos olivos a la derecha e izquierda del candelabro?”

@@ -6,7 +6,7 @@ En el segundo año del rey Darío, en el primer día del sexto mes, la palabra d
 
 ## Hageo 1:2
 
-“Así dice el Señor de los Ejércitos:
+“Así dice el Señor de los ejércitos:
 
 >  ‘Este pueblo dice: “Aún no ha llegado el momento de reconstruir la casa del Señor.”’”
 
@@ -21,7 +21,7 @@ Entonces la palabra del Señor vino por medio del profeta Hageo, diciendo,
 
 ## Hageo 1:5
 
-Así dice el Señor de los Ejércitos:
+Así dice el Señor de los ejércitos:
 
 >  “Considerad vuestros caminos.
 
@@ -35,7 +35,7 @@ Así dice el Señor de los Ejércitos:
 
 ## Hageo 1:7
 
-Así dice el Señor de los Ejércitos:
+Así dice el Señor de los ejércitos:
 
 >  “Considerad vuestros caminos.
 
@@ -48,7 +48,7 @@ Así dice el Señor de los Ejércitos:
 
 > “Esperabais mucho, y he aquí, resultó ser poco;
 >  y cuando lo trajisteis a casa, yo lo disipé.
->  ¿Por qué?” declara el Señor de los Ejércitos.
+>  ¿Por qué?” declara el Señor de los ejércitos.
 >  “Por causa de mi casa, que está en ruinas,
 >  mientras cada uno de vosotros se ocupa de su propia casa.
 
@@ -78,7 +78,7 @@ Entonces Hageo, el mensajero del Señor, entregó el mensaje del Señor al puebl
 
 ## Hageo 1:14
 
-Así que el Señor despertó el espíritu de Zorobabel hijo de Sealtiel, gobernador de Judá, y el espíritu de Josué hijo de Josadac, el sumo sacerdote, y el espíritu de todo el resto del pueblo; y vinieron y comenzaron la obra en la casa del Señor de los Ejércitos, su Dios,
+Así que el Señor despertó el espíritu de Zorobabel hijo de Sealtiel, gobernador de Judá, y el espíritu de Josué hijo de Josadac, el sumo sacerdote, y el espíritu de todo el resto del pueblo; y vinieron y comenzaron la obra en la casa del Señor de los ejércitos, su Dios,
 
 ## Hageo 1:15
 

@@ -2,7 +2,7 @@
 
 ## Filipenses 1:1
 
-Pablo y Timoteo, siervos de Cristo Jesús, a todos los santos en Cristo Jesús que están en Filipos, junto con los obispos y diáconos:
+Pablo y Timoteo, siervos de Cristo Jesús, a todos los santos en Cristo Jesús que están en Filipos, junto con los supervisores y diáconos:
 
 ## Filipenses 1:2
 
@@ -22,7 +22,7 @@ debido a vuestra colaboración en el evangelio desde el primer día hasta ahora,
 
 ## Filipenses 1:6
 
-estando convencido de esto, que el que comenzó en vosotros la buena obra la perfeccionará hasta el día de Cristo Jesús.
+y estoy seguro de esto: el que empezó en vosotros una buena obra la irá llevando a término hasta el día de Cristo Jesús.
 
 ## Filipenses 1:7
 
@@ -78,11 +78,11 @@ porque sé que gracias a vuestras oraciones y a la provisión del Espíritu de J
 
 ## Filipenses 1:20
 
-Espero con ansia y espero no tener nunca vergüenza, sino tener suficiente valor para que ahora, como siempre, Cristo sea honrado en mi cuerpo, ya sea por vida o por muerte.
+Aguardo con ansia y espero no tener nunca vergüenza, sino tener suficiente valor para que ahora, como siempre, Cristo sea honrado en mi cuerpo, ya sea por vida o por muerte.
 
 ## Filipenses 1:21
 
-Porque para mí, vivir es Cristo, y morir es ganancia.
+Porque, para mí, la vida es Cristo, y la muerte, una ganancia.
 
 ## Filipenses 1:22
 
@@ -90,7 +90,7 @@ Si he de seguir viviendo en la carne, esto significará trabajo fructífero para
 
 ## Filipenses 1:23
 
-Estoy atrapado entre los dos: deseo partir y estar con Cristo, lo cual es mucho mejor;
+Me siento dividido entre las dos cosas: deseo irme y estar con Cristo, que es muchísimo mejor;
 
 ## Filipenses 1:24
 
@@ -102,7 +102,7 @@ Convencido de esto, sé que permaneceré y continuaré con todos vosotros para v
 
 ## Filipenses 1:26
 
-para que a través de mi presencia con vosotros de nuevo, vuestro orgullo en Cristo Jesús abunde a causa de mí.
+para que, con mi presencia de nuevo entre vosotros, vuestro orgullo en Cristo Jesús abunde a causa de mí.
 
 ## Filipenses 1:27
 
@@ -114,7 +114,7 @@ sin dejaros intimidar de ninguna manera por los que se oponen a vosotros. Esto e
 
 ## Filipenses 1:29
 
-Porque se os ha concedido en nombre de Cristo no solo creer en Él, sino también soportar sufrimientos por Él,
+Porque se os ha concedido por causa de Cristo no solo creer en Él, sino también soportar sufrimientos por Él,
 
 ## Filipenses 1:30
 

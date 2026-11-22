@@ -10,7 +10,7 @@ Abrid las puertas, para que entre la nación justa, la nación que permanece fie
 
 ## Isaías 26:3
 
-Tú mantendrás en completa paz a aquellos cuya mente es firme, porque confían en ti.
+Tú das una paz completa a los que se mantienen firmes en su manera de pensar, porque ponen en ti su confianza.
 
 ## Isaías 26:4
 
@@ -22,7 +22,7 @@ Confía en el Señor para siempre, porque el Señor Dios es la Roca eterna.
 
 ## Isaías 26:6
 
-El pie la pisoteará —los pies de los pobres, los pasos de los oprimidos—.
+El pie la pisoteará —los pies de los pobres, los pasos de los oprimidos—.”
 
 ## Isaías 26:7
 
@@ -30,11 +30,11 @@ El camino de los justos es llano; Oh Justo, tú haces el camino de los justos su
 
 ## Isaías 26:8
 
-De hecho, mientras seguimos el camino de tus leyes, Señor, te hemos esperado; tu nombre y tu renombre son el deseo de nuestras almas.
+Sí, siguiendo el camino de tus leyes, Señor, te hemos esperado; tu nombre y tu renombre son el deseo de nuestras almas.
 
 ## Isaías 26:9
 
-Por la noche mi alma te anhela, de hecho, mi espíritu dentro de mí te busca diligentemente; porque cuando tus juicios vienen sobre la tierra, los habitantes del mundo aprenden justicia.
+Por la noche mi alma te anhela, sí, mi espíritu dentro de mí te busca diligentemente; porque cuando tus juicios vienen sobre la tierra, los habitantes del mundo aprenden justicia.
 
 ## Isaías 26:10
 
@@ -42,7 +42,7 @@ Aunque se muestra compasión a los malvados, no aprenden justicia; continúan ac
 
 ## Isaías 26:11
 
-Señor, tu mano está levantada, pero ellos no la ven. Que vean tu celo por tu pueblo y se avergüencen; de hecho, que el fuego reservado para tus enemigos los consuma.
+Señor, tu mano está levantada, pero ellos no la ven. Que vean tu celo por tu pueblo y se avergüencen; sí, que el fuego reservado para tus enemigos los consuma.
 
 ## Isaías 26:12
 
@@ -70,16 +70,16 @@ Como una mujer embarazada a punto de dar a luz se retuerce y grita en sus dolore
 
 ## Isaías 26:18
 
-Estábamos embarazados, nos retorcíamos en el parto, pero dimos a luz viento. No pudimos lograr la liberación para la tierra, ni nacieron los habitantes del mundo.
+Concebimos, nos retorcíamos en el parto, pero dimos a luz viento. No pudimos lograr la liberación para la tierra, ni nacieron los habitantes del mundo.
 
 ## Isaías 26:19
 
-Tus muertos vivirán; sus cuerpos se levantarán. Vosotros que habitáis en el polvo, despertad y gritad de alegría, porque vuestro rocío es como el rocío del amanecer, y la tierra dará a luz a los espíritus de los difuntos.
+Tus muertos volverán a vivir; sus cuerpos se levantarán. ¡Despertad y gritad de alegría, vosotros que vivís en el polvo! Porque tu rocío es como el rocío de la mañana, y la tierra hará nacer de nuevo a los difuntos.
 
 ## Isaías 26:20
 
-Ven, pueblo mío, entra en tus habitaciones y cierra tus puertas tras de ti; escóndete un poco hasta que haya pasado la indignación.
+Anda, pueblo mío, métete en tu habitación y cierra la puerta detrás de ti; quédate escondido un ratito, hasta que haya pasado el castigo.
 
 ## Isaías 26:21
 
-Porque he aquí, el Señor sale de su lugar para castigar a los habitantes de la tierra por su maldad; la tierra revelará su derramamiento de sangre y ya no cubrirá a sus muertos.
+Porque mirad: el Señor sale de su lugar para castigar a los habitantes de la tierra por su maldad; la tierra sacará a la luz la sangre que se ha derramado en ella y no seguirá ocultando a los que mataron.

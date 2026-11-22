@@ -58,4 +58,4 @@ La corona servirá como un memorial en el templo del Señor para Helem, Tobías,
 
 ## Zacarías 6:15
 
-Los que están lejos vendrán y edificarán el templo del Señor, y sabréis que el Señor de los Ejércitos me ha enviado a vosotros. Esto ocurrirá si obedecéis diligentemente al Señor vuestro Dios.
+Los que están lejos vendrán y edificarán el templo del Señor, y sabréis que el Señor de los ejércitos me ha enviado a vosotros. Esto ocurrirá si obedecéis diligentemente al Señor vuestro Dios.”

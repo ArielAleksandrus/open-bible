@@ -6,15 +6,15 @@ El sumo sacerdote preguntó entonces a Esteban: “¿Son ciertas estas acusacion
 
 ## Hechos 7:2
 
-Esteban respondió: “¡Hermanos y padres, escúchenme! El Dios de la gloria se apareció a nuestro antepasado Abraham cuando estaba en Mesopotamia, antes de que residiera en Harán.
+Esteban respondió: “¡Hermanos y padres, escuchadme! El Dios de la gloria se apareció a nuestro antepasado Abraham cuando estaba en Mesopotamia, antes de que residiera en Harán.
 
 ## Hechos 7:3
 
-Y le instruyó: ‘Sal de tu tierra y de tu parentela, y dirígete a la tierra que te mostraré.’
+Y le dijo: ‘Sal de tu tierra y de tu parentela, y dirígete a la tierra que te mostraré.’
 
 ## Hechos 7:4
 
-Así que Abraham salió de la tierra de los caldeos y se estableció en Harán. Después de la muerte de su padre, Dios lo trasladó a esta tierra donde ustedes ahora viven.
+Así que Abraham salió de la tierra de los caldeos y se estableció en Harán. Después de la muerte de su padre, Dios lo trasladó a esta tierra donde vosotros ahora vivís.
 
 ## Hechos 7:5
 
@@ -40,7 +40,7 @@ Luego le dio el pacto de la circuncisión. Así que Abraham fue padre de Isaac y
 
 ## Hechos 7:10
 
-y lo libró de todas sus tribulaciones, concediéndole favor y sabiduría ante Faraón, rey de Egipto, quien lo nombró gobernador sobre Egipto y toda su casa.
+y lo libró de todas sus tribulaciones, concediéndole favor y sabiduría ante el faraón, rey de Egipto, quien lo nombró gobernador sobre Egipto y toda su casa.
 
 ## Hechos 7:11
 
@@ -52,7 +52,7 @@ Cuando Jacob supo que había grano en Egipto, envió a nuestros antepasados en s
 
 ## Hechos 7:13
 
-En su segunda visita, José reveló su identidad a sus hermanos, y Faraón conoció a la familia de José.
+En su segunda visita, José reveló su identidad a sus hermanos, y el faraón conoció a la familia de José.
 
 ## Hechos 7:14
 
@@ -86,7 +86,7 @@ Este rey explotó a nuestro pueblo y oprimió a nuestros antepasados, obligándo
 
 ## Hechos 7:21
 
-Cuando fue expuesto, la hija de Faraón lo tomó y lo crió como su propio hijo.
+Cuando fue expuesto, la hija del faraón lo tomó y lo crió como su propio hijo.
 
 ## Hechos 7:22
 
@@ -106,7 +106,7 @@ Supuso que sus hermanos entenderían que Dios les estaba dando liberación por m
 
 ## Hechos 7:26
 
-Al día siguiente, se encontró con dos israelitas peleando y trató de reconciliarlos, diciendo: ‘Hombres, son hermanos; ¿por qué se hacen daño el uno al otro?’
+Al día siguiente, se encontró con dos israelitas peleando y trató de reconciliarlos, diciendo: ‘Hombres, sois hermanos; ¿por qué os hacéis daño el uno al otro?’
 
 ## Hechos 7:27
 
@@ -136,7 +136,7 @@ Cuando Moisés la vio, se maravilló de la visión. Al acercarse para observar m
 
 ## Hechos 7:33
 
-Entonces el Señor le instruyó: ‘Quítate las sandalias, porque el lugar donde estás es tierra santa.
+Entonces el Señor le dijo: ‘Quítate las sandalias, porque el lugar donde estás es tierra santa.
 
 ## Hechos 7:34
 
@@ -154,7 +154,7 @@ Los sacó, realizando prodigios y señales en Egipto, en el Mar Rojo, y durante 
 
 ## Hechos 7:37
 
-“Este es el Moisés que dijo a los israelitas, ‘Dios levantará para ustedes un profeta como yo de entre su propio pueblo.’
+“Este es el Moisés que dijo a los israelitas, ‘Dios os levantará un profeta como yo de entre vuestro propio pueblo.’
 
 ## Hechos 7:38
 
@@ -176,15 +176,15 @@ En ese momento hicieron un ídolo en forma de becerro. Le ofrecieron sacrificios
 
 Pero Dios se apartó de ellos y los entregó a la adoración del sol, la luna y las estrellas. Como está escrito en el libro de los profetas:
 
->  ‘¿Me ofrecieron sacrificios y ofrendas durante cuarenta años en el desierto,
+>  ‘¿Me ofrecisteis sacrificios y ofrendas durante cuarenta años en el desierto,
 >  casa de Israel?
 
 ## Hechos 7:43
 
-> Han tomado el tabernáculo de Moloc y la estrella de su dios Renfán,
->  los ídolos que hicieron para adorar.
+> Habéis tomado el tabernáculo de Moloc y la estrella de vuestro dios Renfán,
+>  los ídolos que hicisteis para adorar.
 >  Por lo tanto,
->  los enviaré al exilio más allá de Babilonia.’
+>  os enviaré al exilio más allá de Babilonia.’
 
 ---
 
@@ -212,7 +212,7 @@ No obstante, el Altísimo no reside en estructuras hechas por manos humanas. Com
 
 > ‘El cielo es mi trono,
 >  y la tierra es el estrado de mis pies.
->  ¿Qué clase de casa levantarán para mí?’ dice el Señor.
+>  ¿Qué clase de casa levantaréis para mí?’ dice el Señor.
 >  ‘¿O dónde estará mi lugar de descanso?
 
 ## Hechos 7:50
@@ -223,15 +223,15 @@ No obstante, el Altísimo no reside en estructuras hechas por manos humanas. Com
 
 ## Hechos 7:51
 
-“¡Gente de dura cerviz, incircuncisos de corazón y oídos! Siempre resisten al Espíritu Santo; son igual que sus antepasados.
+“¡Gente de dura cerviz, incircuncisos de corazón y oídos! Siempre resistís al Espíritu Santo; sois igual que vuestros antepasados.
 
 ## Hechos 7:52
 
-¿Qué profeta no persiguieron sus antepasados? Mataron a los que anunciaron la venida del Justo, y ahora ustedes se han convertido en sus traidores y asesinos—
+¿Qué profeta no persiguieron vuestros antepasados? Mataron a los que anunciaron la venida del Justo, y ahora vosotros os habéis convertido en sus traidores y asesinos,
 
 ## Hechos 7:53
 
-ustedes que recibieron la ley dada por medio de ángeles pero no la han guardado.”
+vosotros que recibisteis la ley dada por medio de ángeles pero no la habéis guardado.”
 
 ---
 

@@ -6,7 +6,7 @@
 
 ## Jeremías 5:2
 
-Aunque digan, ‘Tan cierto como que vive el Señor,’ seguramente juran en falso.”
+Aunque digan, ‘Tan cierto como que vive el Señor,’ ciertamente juran en falso.”
 
 ## Jeremías 5:3
 
@@ -18,7 +18,7 @@ Pensé, “Estos son solo los pobres; son necios, porque no conocen el camino de
 
 ## Jeremías 5:5
 
-Iré a los grandes y les hablaré, porque seguramente conocen el camino del Señor, el juicio de su Dios.” Pero ellos también han roto el yugo y han reventado las ataduras.
+Iré a los grandes y les hablaré, porque ellos sí conocen el camino del Señor, el juicio de su Dios.” Pero ellos también han roto el yugo y han reventado las ataduras.
 
 ## Jeremías 5:6
 
@@ -54,7 +54,7 @@ Los profetas no son más que viento, y la palabra no está en ellos; así se les
 
 ## Jeremías 5:14
 
-Por tanto, esto es lo que dice el Señor Dios de los Ejércitos: “Porque habéis hablado esta palabra, haré que mis palabras en tu boca sean fuego y este pueblo leña, y los consumirá.
+Por tanto, esto es lo que dice el Señor Dios de los ejércitos: “Porque habéis hablado esta palabra, haré que mis palabras en tu boca sean fuego y este pueblo leña, y los consumirá.
 
 ## Jeremías 5:15
 
@@ -94,7 +94,7 @@ Pero este pueblo tiene un corazón obstinado y desafiante; se han desviado y se 
 
 ## Jeremías 5:24
 
-No dicen en su corazón, ‘Temamos al Señor nuestro Dios, que da las lluvias de otoño y primavera a su tiempo, que nos asegura las semanas regulares de la cosecha.’
+No dicen en su corazón, ‘Temamos al Señor nuestro Dios, que da las lluvias de otoño y primavera a su tiempo, que nos asegura las semanas señaladas para la cosecha.’
 
 ## Jeremías 5:25
 
@@ -122,4 +122,4 @@ Han engordado y se han puesto lustrosos. Sus malas acciones no tienen límite; n
 
 ## Jeremías 5:31
 
-Los profetas profetizan falsamente, y los sacerdotes gobiernan por su propia autoridad; y mi pueblo ama que sea así. Pero, ¿qué haréis cuando llegue el fin?
+Los profetas profetizan falsamente, y los sacerdotes gobiernan por su propia autoridad; y a mi pueblo le gusta así. Pero, ¿qué haréis cuando llegue el fin?

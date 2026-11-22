@@ -2,11 +2,11 @@
 
 ## 1 Samuel 17:1
 
-Los filisteos reunieron sus ejércitos para la batalla, y se congregaron en Socoh, que pertenece a Judá; y acamparon entre Socoh y Azeka, en Efes-damim.
+Los filisteos reunieron sus ejércitos para la batalla, y se congregaron en Soco, que pertenece a Judá; y acamparon entre Soco y Azeca, en Efes-damim.
 
 ## 1 Samuel 17:2
 
-Saúl y los hombres de Israel se reunieron y acamparon en el Valle de Elah, y formaron filas para enfrentarse a los filisteos.
+Saúl y los hombres de Israel se reunieron y acamparon en el valle de Ela, y formaron filas para enfrentarse a los filisteos.
 
 ## 1 Samuel 17:3
 
@@ -78,7 +78,7 @@ Lleva también estos diez quesos al comandante de su mil, y revisa el bienestar 
 
 ## 1 Samuel 17:19
 
-Ahora Saúl y todos los hombres de Israel estaban en el Valle de Elah, luchando con los filisteos.
+Ahora Saúl y todos los hombres de Israel estaban en el valle de Ela, luchando con los filisteos.
 
 ## 1 Samuel 17:20
 

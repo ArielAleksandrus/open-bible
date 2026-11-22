@@ -2,17 +2,17 @@
 
 ## Proverbios 6:1
 
-Hijo mío, si te has comprometido por tu vecino, o has dado un apretón de manos por un extraño,
+Hijo mío, si te has hecho responsable de la deuda de tu vecino, o has cerrado un trato con un apretón de manos a favor de un desconocido,
 
 ## Proverbios 6:2
 
-te has enredado con las palabras de tu boca, atrapado por lo que has dicho.
+te has dejado atrapar por tus propias palabras; has quedado preso de lo que dijiste.
 
 ## Proverbios 6:3
 
 Así que haz esto, hijo mío, para salvarte, ya que has caído en manos de tu vecino:
 
->  Ve, humíllate, y sé urgente con tu vecino para liberarte.
+>  Ve, humíllate, e insiste ante tu vecino para liberarte.
 
 ## Proverbios 6:4
 
@@ -20,9 +20,9 @@ No permitas que tus ojos duerman, ni que tus párpados se adormezcan;
 
 ## Proverbios 6:5
 
-Sálvate como una gacela de la mano del cazador,
+escápate como la gacela que huye del cazador,
 
->  y como un pájaro de la trampa del cazador.
+>  como el pájaro que se libra de la trampa.
 
 ---
 
@@ -36,21 +36,21 @@ No tiene jefe, ni oficial, ni gobernante,
 
 ## Proverbios 6:8
 
-sin embargo, prepara su comida en el verano y recoge su provisión en la cosecha.
+y aun así, en el verano junta su comida y en la cosecha almacena lo que necesita.
 
 ## Proverbios 6:9
 
-¿Cuánto tiempo estarás acostado, perezoso? ¿Cuándo te levantarás de tu sueño?
+Perezoso, ¿hasta cuándo vas a seguir tumbado? ¿Cuándo vas a levantarte de dormir?
 
 ## Proverbios 6:10
 
-Un breve sueño, un pequeño adormecimiento,
+Una siestecita, una cabezadita,
 
->  un ligero cruce de manos para descansar—
+>  un ratito con los brazos cruzados para descansar—
 
 ## Proverbios 6:11
 
-y la pobreza vendrá sobre ti como un vagabundo, y la escasez como un hombre armado.
+y la pobreza te caerá encima como un vagabundo, y la necesidad como un asaltante armado.
 
 ---
 
@@ -68,7 +68,7 @@ que trama el mal con engaño en su corazón —continuamente siembra discordia�
 
 ## Proverbios 6:15
 
-Por lo tanto, el desastre lo alcanzará de repente; instantáneamente será quebrantado sin remedio.
+Por eso la desgracia le caerá de golpe; en un momento quedará destrozado y ya no habrá remedio.
 
 ---
 
@@ -78,8 +78,8 @@ Hay seis cosas que el Señor odia, siete que son una abominación para Él:
 
 ## Proverbios 6:17
 
-> ojos altivos, una lengua engañosa,
->  y manos que derraman sangre inocente,
+> los ojos orgullosos, la lengua que engaña,
+>  las manos que matan a inocentes,
 
 ## Proverbios 6:18
 
@@ -88,36 +88,35 @@ Hay seis cosas que el Señor odia, siete que son una abominación para Él:
 
 ## Proverbios 6:19
 
-> un testigo falso que esparce mentiras,
->  y el que siembra discordia entre hermanos.
+> el testigo falso que suelta mentiras y el que siembra peleas entre hermanos.
 
 ---
 
 ## Proverbios 6:20
 
-Hijo mío, guarda el mandamiento de tu padre, y no abandones la enseñanza de tu madre.
+Hijo mío, cumple lo que te manda tu padre y no dejes de lado lo que te enseña tu madre.
 
 ## Proverbios 6:21
 
-Átalos continuamente en tu corazón; llévalos alrededor de tu cuello.
+Llévalos siempre atados al corazón; cuélgatelos del cuello.
 
 ## Proverbios 6:22
 
-Cuando camines, te guiarán; cuando duermas, te vigilarán;
+Cuando camines, te mostrarán el camino; cuando duermas, te cuidarán;
 
->  y cuando despiertes, te hablarán.
+>  y cuando te despiertes, te hablarán.
 
 ## Proverbios 6:23
 
-Porque el mandamiento es una lámpara, la enseñanza es una luz, y las correcciones para la disciplina son el camino a la vida,
+Porque el mandamiento es una lámpara, la enseñanza es una luz, y las correcciones que te disciplinan son el camino que lleva a la vida;
 
 ## Proverbios 6:24
 
-para guardarte de la mujer malvada, de la lengua suave de la mujer descarriada.
+te protegerán de la mujer malvada, de las palabras melosas de la mujer infiel.
 
 ## Proverbios 6:25
 
-No desees su belleza en tu corazón, ni dejes que te cautive con sus ojos.
+No dejes que su belleza te despierte el deseo, ni que te atrape con sus miradas.
 
 ---
 
@@ -131,29 +130,29 @@ Porque una prostituta se puede conseguir por un trozo de pan, pero una adúltera
 
 ## Proverbios 6:28
 
-¿O puede uno caminar sobre brasas sin que sus pies se quemen?
+¿O alguien puede pisar brasas sin quemarse los pies?
 
 ## Proverbios 6:29
 
-Así es el que se acerca a la mujer de su vecino; quien la toque no quedará impune.
+Lo mismo le pasa al que se acuesta con la mujer de su vecino: quien la toque no se librará del castigo.
 
 ---
 
 ## Proverbios 6:30
 
-Un ladrón no es despreciado si roba para satisfacer su hambre cuando está hambriento;
+A nadie le parece despreciable el ladrón que roba porque se está muriendo de hambre;
 
 ## Proverbios 6:31
 
-sin embargo, si es atrapado, debe pagar siete veces, incluso si le cuesta toda la riqueza de su casa.
+pero si lo pillan, tendrá que devolver siete veces lo robado, aunque tenga que dar todo lo que hay en su casa.
 
 ## Proverbios 6:32
 
-Pero el que comete adulterio con una mujer carece de sentido; quien lo hace se destruye a sí mismo.
+Pero el que se acuesta con la mujer de otro no tiene sentido común; el que hace eso se destruye a sí mismo.
 
 ## Proverbios 6:33
 
-Enfrentará heridas y deshonra, y su vergüenza nunca será borrada.
+Recibirá golpes y deshonra, y nunca se le quitará la vergüenza.
 
 ---
 

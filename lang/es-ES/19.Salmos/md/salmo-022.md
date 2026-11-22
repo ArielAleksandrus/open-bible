@@ -4,185 +4,184 @@
 
 ## Salmo 22:1
 
-> Dios mío, Dios mío, ¿por qué me has desamparado?  
->  Lejos de mi salvación están las palabras de mi clamor.
+> Dios mío, Dios mío, ¿por qué me has abandonado?  
+>  Mis gemidos no consiguen que vengas a ayudarme.
 
 ## Salmo 22:2
 
-> Dios mío, clamo de día, y no respondes;  
->  Y de noche, y no hallo descanso.
+> Dios mío, te llamo durante el día, pero no me contestas;  
+>  también de noche, y no encuentro paz.
 
 ---
 
 ## Salmo 22:3
 
-> Pero tú eres santo,  
->  Tú que habitas entre las alabanzas de Israel.
+> Y sin embargo tú eres santo;  
+>  tienes tu trono sobre las alabanzas de Israel.
 
 ## Salmo 22:4
 
-> En ti confiaron nuestros padres;  
->  Confiaron, y tú los libraste.
+> Nuestros antepasados pusieron su confianza en ti;  
+>  confiaron, y tú los rescataste.
 
 ## Salmo 22:5
 
-> A ti clamaron y fueron librados;  
->  En ti confiaron y no fueron avergonzados.
+> A ti te pidieron ayuda a gritos,  
+>  y hallaron refugio; en ti confiaron, y no quedaron en vergüenza.
 
 ---
 
 ## Salmo 22:6
 
-> Pero yo soy gusano, y no hombre,  
->  Oprobio de los hombres y despreciado del pueblo.
+> Pero yo soy como un gusano, no un hombre;  
+>  la gente se burla de mí y el pueblo me desprecia.
 
 ## Salmo 22:7
 
-> Todos los que me ven se burlan de mí;  
->  Hacen muecas, menean la cabeza, diciendo,
+> Todos los que me ven se ríen de mí;  
+>  hacen gestos de desprecio, mueven la cabeza y dicen:
 
 ## Salmo 22:8
 
-> “Confía en el Señor; que él lo libre;  
->  Que lo rescate, puesto que en él se deleita.”
+> “Que se ponga en manos del Señor;  
+>  que el Señor lo libre; que lo rescate, ya que tanto lo quiere.”
 
 ---
 
 ## Salmo 22:9
 
-> Pero tú eres el que me sacó del vientre;  
->  Me hiciste confiar desde los pechos de mi madre.
+> Y sin embargo fuiste tú quien me sacó del vientre;  
+>  tú me diste confianza cuando aún mamaba del pecho de mi madre.
 
 ## Salmo 22:10
 
-> Desde el nacimiento fui entregado a ti;  
->  Tú eres mi Dios desde el vientre de mi madre.
+> Desde que nací quedé a tu cuidado;  
+>  desde el vientre de mi madre tú has sido mi Dios.
 
 ---
 
 ## Salmo 22:11
 
-> No te alejes de mí, porque la angustia está cerca;  
->  Porque no hay quien ayude.
+> No te quedes lejos de mí,  
+>  que el peligro está cerca y no hay nadie que me ayude.
 
 ---
 
 ## Salmo 22:12
 
-> Muchos toros me han rodeado;  
->  Fuertes toros de Basán me han cercado.
+> Una manada de toros me tiene rodeado;  
+>  los toros bravos de Basán me cercan por todas partes.
 
 ## Salmo 22:13
 
-> Abren su boca contra mí,  
->  Como león rapaz y rugiente.
+> Abren la boca contra mí,  
+>  como leones hambrientos que rugen.
 
 ## Salmo 22:14
 
-> Soy derramado como agua,  
->  Y todos mis huesos se descoyuntan;  
->  Mi corazón es como cera;  
->  Se derrite dentro de mí.
+> Me he quedado como agua derramada,  
+>  todos mis huesos se han salido de su sitio;  
+>  mi corazón es como la cera:  
+>  se me ha derretido por dentro.
 
 ## Salmo 22:15
 
-> Mi fuerza se ha secado como un tiesto,  
->  Y mi lengua se pega a mis mandíbulas;  
->  Y me has puesto en el polvo de la muerte.
+> Mis fuerzas se han secado como un trozo de barro cocido,  
+>  la lengua se me pega a la boca;  
+>  me has dejado tendido en el polvo de la muerte.
 
 ---
 
 ## Salmo 22:16
 
-> Porque perros me han rodeado;  
->  Una banda de malhechores me ha cercado;  
->  Han horadado mis manos y mis pies.
+> Los perros me tienen rodeado;  
+>  una pandilla de malvados me acorrala como una jauría;  
+>  me han atravesado las manos y los pies.
 
 ## Salmo 22:17
 
-> Puedo contar todos mis huesos.  
->  Ellos me miran, me observan;
+> Se me pueden contar todos los huesos.  
+>  Ellos me miran y se me quedan mirando;
 
 ## Salmo 22:18
 
-> Reparten mis vestidos entre sí,  
->  Y sobre mi ropa echan suertes.
+> se reparten mi ropa y se sortean lo que llevo puesto.
 
 ---
 
 ## Salmo 22:19
 
-> Pero tú, Señor, no te alejes;  
->  Tú que eres mi ayuda, apresúrate a socorrerme.
+> Pero tú, Señor, no te quedes lejos;  
+>  tú que eres mi ayuda, ven pronto a socorrerme.
 
 ## Salmo 22:20
 
-> Libra mi alma de la espada,  
->  Mi vida preciosa del poder del perro.
+> Pon a salvo mi alma de la espada,  
+>  salva mi vida, lo único que tengo, de las garras del perro.
 
 ## Salmo 22:21
 
-> Sálvame de la boca del león;  
->  De los cuernos de los búfalos salvajes, me has respondido.
+> Rescátame de las fauces del león;  
+>  tú me has respondido librándome de los cuernos de los toros salvajes.
 
 ---
 
 ## Salmo 22:22
 
-> Anunciaré tu nombre a mis hermanos;  
->  En medio de la congregación te alabaré.
+> Hablaré de tu nombre a mis hermanos;  
+>  te alabaré cuando el pueblo esté reunido.
 
 ## Salmo 22:23
 
-> Los que teméis al Señor, alabadle;  
->  Todos vosotros, descendientes de Jacob, honradle,  
->  Y temedle, todos vosotros, descendientes de Israel.
+> Vosotros, los que respetáis al Señor,  
+>  ¡alabadle! Todos los descendientes de Jacob, ¡honradle!  
+>  ¡Que le tengan reverencia todos los descendientes de Israel!
 
 ## Salmo 22:24
 
-> Porque no ha menospreciado ni aborrecido la aflicción del afligido;  
->  Ni ha escondido de él su rostro;  
->  Sino que cuando clamó a él por ayuda, le escuchó.
+> Porque él no ha despreciado ni ha mirado con asco el sufrimiento del que sufre,  
+>  ni le ha dado la espalda,  
+>  sino que cuando le pidió ayuda a gritos, él lo escuchó.
 
 ---
 
 ## Salmo 22:25
 
-> De ti viene mi alabanza en la gran congregación;  
->  Cumpliré mis votos delante de los que le temen.
+> Tú eres la razón de mi alabanza ante todo el pueblo reunido;  
+>  cumpliré lo que he prometido delante de los que le respetan.
 
 ## Salmo 22:26
 
-> Los afligidos comerán y serán saciados;  
->  Los que buscan al Señor lo alabarán.  
->  ¡Vuestro corazón viva para siempre!
+> Los pobres comerán hasta quedar satisfechos;  
+>  los que buscan al Señor le darán alabanza.  
+>  ¡Que vuestro corazón tenga vida para siempre!
 
 ---
 
 ## Salmo 22:27
 
-> Todos los confines de la tierra se acordarán y se volverán al Señor,  
->  Y todas las familias de las naciones se postrarán delante de ti.
+> Los pueblos de los lugares más lejanos de la tierra se acordarán y volverán al Señor,  
+>  y todas las familias de las naciones se inclinarán ante ti.
 
 ## Salmo 22:28
 
-> Porque del Señor es el reino,  
->  Y él gobierna las naciones.
+> Porque el reino es del Señor,  
+>  y él gobierna sobre las naciones.
 
 ---
 
 ## Salmo 22:29
 
-> Todos los prósperos de la tierra comerán y adorarán,  
->  Todos los que descienden al polvo se arrodillarán ante él,  
->  Aun el que no puede mantener viva su propia alma.
+> Todos los ricos de la tierra comerán y le adorarán;  
+>  todos los que bajan a la tumba se pondrán de rodillas ante él,  
+>  incluso el que no puede mantenerse con vida.
 
 ## Salmo 22:30
 
-> La posteridad le servirá;  
->  Se hablará del Señor a la generación venidera.
+> Las generaciones futuras le servirán;  
+>  se hablará del Señor a los que vengan después.
 
 ## Salmo 22:31
 
-> Vendrán y declararán su justicia A un pueblo que ha de nacer,  
->  que él ha hecho esto.
+> Vendrán y contarán lo justo que es él a un pueblo que todavía no ha nacido:  
+>  dirán que él lo ha hecho.

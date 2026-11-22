@@ -40,25 +40,25 @@ Cuando lo oímos, nuestros corazones se derritieron de miedo y no quedó valor e
 de que perdonaréis la vida de mi padre y mi madre, mis hermanos y hermanas, y todos los que les pertenecen, y nos salvaréis de la muerte.”
 
 ## Josué 2:14
-Los hombres le aseguraron: “¡Nuestras vidas por las vuestras! Si no divulgáis este asunto nuestro, os trataremos con bondad y fidelidad cuando el Señor nos dé la tierra.”
+Los hombres le aseguraron: “¡Nuestras vidas por la tuya! Si no divulgas este asunto nuestro, te trataremos con bondad y fidelidad cuando el Señor nos dé la tierra.”
 
 ## Josué 2:15
 Entonces ella los dejó bajar por una cuerda a través de la ventana, porque su casa formaba parte del muro de la ciudad, así que vivía en el muro.
 
 ## Josué 2:16
-Ella les aconsejó: “Id a las colinas para que los perseguidores no os encuentren. Escondéos allí durante tres días hasta que regresen, y luego seguid vuestro camino.”
+Ella les aconsejó: “Id a las colinas para que los perseguidores no os encuentren. Escondeos allí durante tres días hasta que regresen, y luego seguid vuestro camino.”
 
 ## Josué 2:17
-Los hombres le dijeron: “Este juramento que nos hicisteis hacer no será vinculante para nosotros
+Los hombres le dijeron: “Este juramento que nos hiciste hacer no será vinculante para nosotros
 
 ## Josué 2:18
 a menos que, cuando entremos en la tierra, hayas atado este cordón escarlata en la ventana por la que nos dejaste bajar, y hayas reunido a tu padre, madre, hermanos y toda tu familia en tu casa.
 
 ## Josué 2:19
-Si alguno de ellos sale de tu casa a la calle, su sangre caerá sobre su propia cabeza; no seremos responsables. Pero si alguien es herido que esté contigo en la casa, su sangre caerá sobre nuestra cabeza.
+Si alguno de ellos sale de tu casa a la calle, su sangre caerá sobre su propia cabeza; no seremos responsables. Pero si alguien que esté contigo en la casa es herido, su sangre caerá sobre nuestra cabeza.
 
 ## Josué 2:20
-Pero si divulgas este asunto nuestro, quedaremos liberados del juramento que nos hicisteis hacer.”
+Pero si divulgas este asunto nuestro, quedaremos liberados del juramento que nos hiciste hacer.”
 
 ## Josué 2:21
 Ella estuvo de acuerdo: “Que sea como decís.” Así que los envió y se fueron. Luego ató el cordón escarlata en la ventana.

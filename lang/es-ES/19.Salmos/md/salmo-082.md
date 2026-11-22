@@ -4,8 +4,8 @@
 
 ## Salmo 82:1
 
-> Dios se levanta en la congregación divina;  
->  En medio de los dioses juzga.
+> Dios se pone en pie en Su propia asamblea y,  
+>  rodeado de los dioses, pronuncia Su juicio.
 
 ---
 
@@ -18,37 +18,37 @@
 
 ## Salmo 82:3
 
-> Defended al débil y al huérfano;  
->  Haced justicia al afligido y al menesteroso.
+> Defended al que no tiene fuerzas y al huérfano;  
+>  haced valer los derechos del afligido y del que no tiene nada.
 
 ## Salmo 82:4
 
-> Librad al débil y al necesitado;  
->  Libradlos de la mano de los impíos.
+> Salvad al débil y al pobre;  
+>  rescatadlos de las garras de los malvados.
 
 ---
 
 ## Salmo 82:5
 
-> No saben ni entienden;  
->  Andan en tinieblas;  
->  Todos los cimientos de la tierra están conmovidos.
+> Ellos no saben ni entienden nada;  
+>  andan a oscuras;  
+>  todos los cimientos de la tierra se tambalean.
 
 ---
 
 ## Salmo 82:6
 
-> Yo dije: “Vosotros sois dioses,  
->  Y todos vosotros hijos del Altísimo.
+> Yo declaré: “Sois dioses;  
+>  todos sois hijos del Altísimo.
 
 ## Salmo 82:7
 
-> Sin embargo, como hombres moriréis,  
->  Y caeréis como cualquiera de los príncipes.”
+> Pero moriréis como cualquier mortal,  
+>  y caeréis como cae cualquier gobernante.”
 
 ---
 
 ## Salmo 82:8
 
-> ¡Levántate, oh Dios, juzga la tierra!  
->  Porque tú posees todas las naciones.
+> ¡Levántate, Dios, y juzga la tierra!  
+>  Porque tú reinas sobre todas las naciones.

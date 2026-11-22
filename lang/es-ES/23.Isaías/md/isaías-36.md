@@ -16,10 +16,10 @@ El oficial principal les dijo: “Decid a Ezequías: ‘Así dice el gran rey, e
 Afirmas tener estrategia y fuerza para la guerra, pero estas son meras palabras. ¿En quién confías, que te has rebelado contra mí?
 
 ## Isaías 36:6
-He aquí, confías en Egipto, esa caña rota de un bastón, que atraviesa la mano de cualquiera que se apoya en ella. Así es el faraón rey de Egipto para todos los que confían en él.
+Mira, estás confiando en Egipto, ese bastón de caña rota que se le clava en la mano al que se apoya en él. Eso es el faraón, rey de Egipto, para todos los que confían en él.
 
 ## Isaías 36:7
-Pero si me dices: “Confiamos en el Señor nuestro Dios”, ¿no es Él cuyos lugares altos y altares Ezequías quitó, ordenando a Judá y Jerusalén: “Debéis adorar ante este altar”?
+Pero si me dices: “Confiamos en el Señor nuestro Dios”, ¿no es Él aquel cuyos lugares altos y altares quitó Ezequías, ordenando a Judá y Jerusalén: “Debéis adorar ante este altar”?
 
 ## Isaías 36:8
 “‘Ahora, haz un trato con mi señor, el rey de Asiria: ¡Te daré dos mil caballos, si puedes proporcionar jinetes para ellos!
@@ -55,7 +55,7 @@ hasta que yo venga y os lleve a una tierra como la vuestra, una tierra de grano 
 No dejéis que Ezequías os engañe diciendo: ‘El Señor nos librará.’ ¿Acaso alguno de los dioses de las naciones ha librado sus tierras de la mano del rey de Asiria?
 
 ## Isaías 36:19
-¿Dónde están los dioses de Hamat y Arfad? ¿Dónde están los dioses de Sefarvaim? ¿Han librado a Samaria de mi mano?
+¿Dónde están los dioses de Hamat y Arpad? ¿Dónde están los dioses de Sefarvaim? ¿Han librado a Samaria de mi mano?
 
 ## Isaías 36:20
 ¿Quién entre todos los dioses de estas tierras ha librado su tierra de mi mano, para que el Señor libre a Jerusalén de mi mano?”
@@ -64,4 +64,4 @@ No dejéis que Ezequías os engañe diciendo: ‘El Señor nos librará.’ ¿Ac
 Pero el pueblo permaneció en silencio y no le respondió ni una palabra, porque el rey había ordenado: “No le respondáis.”
 
 ## Isaías 36:22
-Entonces Eliacim hijo de Hilcías, que estaba sobre la casa, Sebna el escriba, y Joa hijo de Asaf, el cronista, vinieron a Ezequías con sus ropas rasgadas, y le informaron de las palabras del oficial principal.
+Entonces Eliacim hijo de Hilcías, que estaba a cargo del palacio, Sebna el escriba, y Joa hijo de Asaf, el cronista, vinieron a Ezequías con sus ropas rasgadas, y le informaron de las palabras del oficial principal.

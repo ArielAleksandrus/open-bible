@@ -6,13 +6,13 @@ En el año duodécimo, en el mes duodécimo, el primer día del mes, vino a mí 
 
 ## Ezequiel 32:2
 
-“Hijo de hombre, entona una lamentación sobre Faraón, rey de Egipto, y dile:
+“Hijo de hombre, entona una lamentación sobre el faraón, rey de Egipto, y dile:
 
  ‘Te comparaste a un león entre las naciones, pero eres como un monstruo en los mares; te agitas en tus ríos, enturbiando las aguas con tus pies y ensuciando sus corrientes.’
 
 ## Ezequiel 32:3
 
-Esto es lo que dice el Señor Soberano:
+Esto es lo que dice el Señor Dios:
 
 >  ‘Extenderé mi red sobre ti con una multitud de pueblos,
 >  y te sacarán en mi red.
@@ -44,7 +44,7 @@ Esto es lo que dice el Señor Soberano:
 > Todas las luces brillantes en los cielos las oscureceré sobre ti,
 >  y traeré oscuridad sobre tu tierra,
 > ’
->  declara el Señor Soberano.
+>  declara el Señor Dios.
 
 ## Ezequiel 32:9
 
@@ -61,7 +61,7 @@ Esto es lo que dice el Señor Soberano:
 
 ## Ezequiel 32:11
 
-Esto es lo que declara el Señor Soberano:
+Esto es lo que declara el Señor Dios:
 
 >  ‘La espada del rey de Babilonia vendrá contra ti.
 
@@ -79,9 +79,8 @@ Esto es lo que declara el Señor Soberano:
 
 ## Ezequiel 32:14
 
-> Entonces permitiré que sus aguas se calmen y haré que sus corrientes fluyan suavemente,
-> ’
->  declara el Señor Soberano.
+> Entonces calmaré sus aguas y haré que sus corrientes fluyan suavemente,’
+>  declara el Señor Dios.
 
 ## Ezequiel 32:15
 
@@ -92,7 +91,7 @@ Esto es lo que declara el Señor Soberano:
 ## Ezequiel 32:16
 
 Esta es la lamentación que entonarán por ella. Las hijas de las naciones la entonarán; sobre Egipto y todas sus hordas la entonarán,
-’ declara el Señor Soberano.
+’ declara el Señor Dios.
 
 ## Ezequiel 32:17
 
@@ -100,7 +99,7 @@ En el año duodécimo, el día quince del mes, vino a mí el mensaje del Señor,
 
 ## Ezequiel 32:18
 
-“Hijo de hombre, llora por las hordas de Egipto y consíguelas a la tierra de abajo, ella y las hijas de naciones poderosas,
+“Hijo de hombre, llora por las hordas de Egipto y hazlas descender a la tierra de abajo, a ella y a las hijas de naciones poderosas,
  con aquellos que descienden a la fosa.
 
 ## Ezequiel 32:19
@@ -149,7 +148,7 @@ Pero no yacen con los guerreros caídos de antaño,
 
 ## Ezequiel 32:28
 
-Tú también, Faraón, serás humillado y descansarás entre los incircuncisos, con aquellos muertos a espada.
+Tú también, faraón, serás humillado y descansarás entre los incircuncisos, con aquellos muertos a espada.
 
 ## Ezequiel 32:29
 
@@ -163,9 +162,9 @@ Tú también, Faraón, serás humillado y descansarás entre los incircuncisos, 
 
 ## Ezequiel 32:31
 
-“Faraón los verá y se consolará por todas sus hordas que fueron muertas a espada, declara el Señor Soberano.
+“El faraón los verá y se consolará por todas sus hordas que fueron muertas a espada, declara el Señor Dios.
 
 ## Ezequiel 32:32
 
-Aunque había sembrado terror en la tierra de los vivos, Faraón y todas sus hordas serán colocados entre los incircuncisos,
- con aquellos muertos a espada, declara el Señor Soberano.
+Aunque yo hice que sembrara terror en la tierra de los vivos, el faraón y todas sus hordas serán colocados entre los incircuncisos,
+ con aquellos muertos a espada, declara el Señor Dios.

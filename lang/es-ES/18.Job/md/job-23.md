@@ -2,7 +2,7 @@
 
 ## Job 23:1
 
-Job respondió,
+Job respondió:
 
 ## Job 23:2
 

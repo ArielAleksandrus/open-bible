@@ -40,7 +40,7 @@ Entonces comenzó a contar al pueblo esta parábola: “Un hombre plantó una vi
 
 ## Lucas 20:10
 
-A su debido tiempo, envió un siervo a los labradores para que le dieran parte del fruto de la viña. Pero los labradores lo golpearon y lo enviaron con las manos vacías.
+Cuando llegó el tiempo de la cosecha, mandó a un siervo a los labradores para que le dieran parte del fruto de la viña. Pero los labradores lo golpearon y lo despidieron con las manos vacías.
 
 ## Lucas 20:11
 
@@ -64,7 +64,7 @@ Así que lo echaron fuera de la viña y lo mataron. ¿Qué hará entonces el due
 
 ## Lucas 20:16
 
-Vendrá y acabará con esos labradores y dará la viña a otros.” Cuando el pueblo oyó esto, dijeron, “¡Que nunca suceda!”
+Vendrá y matará a esos labradores y dará la viña a otros.” Cuando el pueblo oyó esto, dijeron, “¡Que nunca suceda!”
 
 ## Lucas 20:17
 
@@ -123,7 +123,7 @@ Algunos de los saduceos, que dicen que no hay resurrección, vinieron a Él con 
 
 ## Lucas 20:29
 
-Ahora había siete hermanos. El primero se casó con una mujer y murió sin hijos.
+Pues bien, había siete hermanos. El primero se casó con una mujer y murió sin hijos.
 
 ## Lucas 20:30
 
@@ -131,7 +131,7 @@ Entonces el segundo se casó con ella, y murió
 
 ## Lucas 20:31
 
-y luego el tercero se casó con ella, y murió y así fue con todos los demás hermanos, hasta que los siete murieron, sin dejar hijos.
+y luego el tercero se casó con ella, y murió; y así fue con todos los demás hermanos, hasta que los siete murieron, sin dejar hijos.
 
 ## Lucas 20:32
 
@@ -181,7 +181,7 @@ David mismo declara en el Libro de los Salmos: ‘El Señor dijo a mi Señor: �
 
 ## Lucas 20:43
 
-hasta que ponga a tus enemigos por estrado de tus pies.”’
+hasta que haga de tus enemigos un estrado bajo tus pies.”’
 
 ## Lucas 20:44
 

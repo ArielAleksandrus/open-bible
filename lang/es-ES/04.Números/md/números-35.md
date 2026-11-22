@@ -91,7 +91,7 @@ El acusado debe permanecer en la ciudad de refugio hasta la muerte del sumo sace
 “‘Cualquiera que mate a otro será condenado a muerte como asesino solo con el testimonio de testigos. Nadie debe ser condenado a muerte con el testimonio de un solo testigo.
 
 ## Números 35:31
-“‘No aceptéis un rescate por la vida de un asesino que merece morir. Deben ser condenados a muerte.
+“‘No aceptéis un rescate por la vida de un asesino que merece morir. Debe ser condenado a muerte.
 
 ## Números 35:32
 “‘No aceptéis un rescate por nadie que haya huido a una ciudad de refugio, permitiéndole regresar y vivir en su propia tierra antes de la muerte del sumo sacerdote.

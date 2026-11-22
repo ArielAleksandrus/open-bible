@@ -62,7 +62,7 @@ Cuando nos encontró en Asón, lo llevamos a bordo y procedimos a Mitilene.
 
 ## Hechos 20:15
 
-Navegando desde allí, llegamos al día siguiente frente a Quíos; al día siguiente cruzamos a Samos, y al día siguiente llegamos a Mileto.
+Navegando desde allí, llegamos al día siguiente frente a Quíos; al otro día cruzamos a Samos, y un día después llegamos a Mileto.
 
 ## Hechos 20:16
 

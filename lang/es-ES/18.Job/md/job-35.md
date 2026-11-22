@@ -2,16 +2,16 @@
 
 ## Job 35:1
 
-Entonces Eliú continuó y habló:
+Entonces Elihú continuó y habló:
 
 ## Job 35:2
 
 > “¿Consideras que esto es justo?
->  Afirmas, ‘Mi justicia supera la de Dios.’
+>  Afirmas: ‘Mi justicia supera la de Dios.’
 
 ## Job 35:3
 
-> Porque preguntas, ‘¿Qué beneficio me reporta?
+> Porque preguntas: ‘¿Qué beneficio me reporta?
 >  ¿Qué gano más que si hubiera pecado?’
 
 ---
@@ -49,7 +49,7 @@ Entonces Eliú continuó y habló:
 
 ## Job 35:10
 
-> Sin embargo, nadie pregunta, ‘¿Dónde está Dios mi Hacedor,
+> Sin embargo, nadie pregunta: ‘¿Dónde está Dios mi Hacedor,
 >  que proporciona canciones en la noche,
 
 ## Job 35:11

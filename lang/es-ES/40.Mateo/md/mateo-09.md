@@ -14,7 +14,7 @@ Al oír esto, algunos de los escribas dijeron para sí: “¡Este hombre blasfem
 
 ## Mateo 9:4
 
-Pero Jesús, conociendo sus pensamientos, dijo: “¿Por qué albergan malos pensamientos en sus corazones?
+Pero Jesús, conociendo sus pensamientos, dijo: “¿Por qué albergáis malos pensamientos en vuestros corazones?
 
 ## Mateo 9:5
 
@@ -22,7 +22,7 @@ Pero Jesús, conociendo sus pensamientos, dijo: “¿Por qué albergan malos pen
 
 ## Mateo 9:6
 
-Pero para que sepan que el Hijo del Hombre tiene autoridad en la tierra para perdonar pecados” —dijo entonces al paralítico—: “Levántate, toma tu camilla y vete a tu casa.”
+Pero para que sepáis que el Hijo del Hombre tiene autoridad en la tierra para perdonar pecados” —dijo entonces al paralítico—: “Levántate, toma tu camilla y vete a tu casa.”
 
 ## Mateo 9:7
 
@@ -44,7 +44,7 @@ Más tarde, mientras Jesús estaba reclinado a la mesa en la casa, muchos recaud
 
 ## Mateo 9:11
 
-Al ver esto, los fariseos preguntaron a sus discípulos: “¿Por qué su maestro comparte comidas con recaudadores de impuestos y pecadores?”
+Al ver esto, los fariseos preguntaron a sus discípulos: “¿Por qué vuestro maestro comparte comidas con recaudadores de impuestos y pecadores?”
 
 ## Mateo 9:12
 
@@ -52,7 +52,7 @@ Al oír esto, Jesús comentó: “No son los sanos los que necesitan médico, si
 
 ## Mateo 9:13
 
-Vayan y aprendan lo que significa: ‘Misericordia quiero, no sacrificio.’ Porque no he venido a llamar a justos, sino a pecadores.”
+Id y aprended lo que significa: ‘Misericordia quiero, no sacrificio.’ Porque no he venido a llamar a justos, sino a pecadores.”
 
 ---
 
@@ -100,7 +100,7 @@ Cuando Jesús llegó a la casa del líder de la sinagoga y vio a los flautistas 
 
 ## Mateo 9:24
 
-dijo: “Váyanse; la niña no está muerta, sino dormida.” Y se rieron de él.
+dijo: “Idos; la niña no está muerta, sino dormida.” Y se rieron de él.
 
 ## Mateo 9:25
 
@@ -118,15 +118,15 @@ Al salir Jesús de allí, dos ciegos le siguieron, gritando: “¡Ten misericord
 
 ## Mateo 9:28
 
-Cuando él entró en la casa, los ciegos se le acercaron, y él les preguntó: “¿Creen que puedo hacer esto?” Ellos respondieron: “Sí, Señor.”
+Cuando él entró en la casa, los ciegos se le acercaron, y él les preguntó: “¿Creéis que puedo hacer esto?” Ellos respondieron: “Sí, Señor.”
 
 ## Mateo 9:29
 
-Entonces él tocó sus ojos y dijo: “Que se haga con ustedes conforme a su fe”;
+Entonces él tocó sus ojos y dijo: “Que se haga con vosotros conforme a vuestra fe”;
 
 ## Mateo 9:30
 
-y su vista fue restaurada. Jesús les advirtió severamente: “Asegúrense de que nadie se entere de esto.”
+y su vista fue restaurada. Jesús les advirtió severamente: “Aseguraos de que nadie se entere de esto.”
 
 ## Mateo 9:31
 
@@ -162,4 +162,4 @@ Entonces dijo a sus discípulos: “La cosecha es abundante, pero los trabajador
 
 ## Mateo 9:38
 
-Por tanto, pidan al Señor de la cosecha que envíe trabajadores a su campo de cosecha.”
+Por tanto, pedid al Señor de la cosecha que envíe trabajadores a su campo de cosecha.”

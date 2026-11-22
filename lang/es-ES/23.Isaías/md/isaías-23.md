@@ -1,7 +1,7 @@
 # Isaías Capítulo 23
 
 ## Isaías 23:1
-Un mensaje acerca de Tiro: Lamenta, tú, naves de Tarsis, porque Tiro está destruida, sin casa ni puerto; se les informa desde la tierra de Chipre.
+Un mensaje acerca de Tiro: Gemid, naves de Tarsis, porque Tiro está destruida, sin casa ni puerto; se les informa desde la tierra de Chipre.
 
 ## Isaías 23:2
 Calla, tú que habitas en la costa, tú, mercader de Sidón; tus mensajeros han cruzado el mar.
@@ -16,7 +16,7 @@ Avergüénzate, Sidón, porque el mar ha hablado, la fortaleza del mar, diciendo
 Cuando la noticia llegue a Egipto, estarán angustiados por la noticia de Tiro.
 
 ## Isaías 23:6
-Viaja a Tarsis; lamenta, tú, habitante de la costa.
+Pasad a Tarsis; gemid, habitantes de la costa.
 
 ## Isaías 23:7
 ¿Es esta tu ciudad de alegría, cuyo origen es de tiempos antiguos, cuyos pies la llevaron a asentarse en tierras lejanas?
@@ -25,7 +25,7 @@ Viaja a Tarsis; lamenta, tú, habitante de la costa.
 ¿Quién ha ideado esto contra Tiro, la dadora de coronas, cuyos mercaderes eran príncipes, cuyos comerciantes eran honrados en toda la tierra?
 
 ## Isaías 23:9
-El Señor de los Ejércitos lo ha propuesto, para mancillar el orgullo de toda esplendidez, para humillar a todos los honrados en la tierra.
+El Señor de los ejércitos lo ha propuesto, para mancillar el orgullo de toda esplendidez, para humillar a todos los honrados en la tierra.
 
 ## Isaías 23:10
 Desborda tu tierra como el Nilo, Hija de Tarsis, porque ya no tienes restricción.
@@ -40,7 +40,7 @@ El Señor ha extendido su mano sobre el mar, ha hecho temblar a los reinos; ha d
 Mira la tierra de los caldeos —este es el pueblo que no era; Asiria la destinó para criaturas del desierto— levantaron sus torres de asedio, despojaron sus palacios, y la convirtieron en ruinas.
 
 ## Isaías 23:14
-Lamenta, tú, naves de Tarsis, porque tu fortaleza está destruida.
+Gemid, naves de Tarsis, porque tu fortaleza está destruida.
 
 ## Isaías 23:15
 En ese tiempo Tiro será olvidada por setenta años, como los días de un rey. Al final de setenta años, le sucederá a Tiro como en la canción de la ramera:

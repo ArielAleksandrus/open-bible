@@ -48,7 +48,7 @@ La bestia que era, y no es, es también un octavo rey, y pertenece a los siete, 
 
 ## Apocalipsis 17:12
 
-Los diez cuernos que viste representan diez reyes que aún no han recibido sus reinos, pero recibirán autoridad como reyes junto con la bestia por un breve período.
+Los diez cuernos que viste son diez reyes que aún no han recibido sus reinos, pero recibirán autoridad como reyes junto con la bestia por un breve período.
 
 ## Apocalipsis 17:13
 

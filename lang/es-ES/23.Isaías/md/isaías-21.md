@@ -1,7 +1,7 @@
 # Isaías Capítulo 21
 
 ## Isaías 21:1
-Una proclamación acerca del Desierto junto al Mar: Como torbellinos en el Néguev barren, viene del desierto, de una tierra de terror.
+Una proclamación acerca del Desierto junto al Mar: Como los torbellinos que barren el Néguev, viene del desierto, de una tierra de terror.
 
 ## Isaías 21:2
 Se me ha revelado una visión severa: El traidor sigue traicionando, y el destructor sigue destruyendo. ¡Elam, avanza! ¡Media, pon sitio! He puesto fin a todos sus gemidos.
@@ -19,16 +19,16 @@ Preparan las mesas, extienden los manteles, ¡comen, beben! ¡Levantaos, comanda
 Porque esto es lo que el Señor me ha dicho: “Ve, pon un centinela, que declare lo que ve.
 
 ## Isaías 21:7
-Cuando vea carros con equipos de caballos, jinetes en asnos, jinetes en camellos, debe estar completamente alerta, muy alerta.”
+Cuando vea carros tirados por caballos, jinetes en asnos, jinetes en camellos, debe estar completamente alerta, muy alerta.”
 
 ## Isaías 21:8
 Y el centinela gritó, “Día tras día, mi señor, estoy en la torre de vigilancia; cada noche permanezco en mi puesto.
 
 ## Isaías 21:9
-Y he aquí, viene un carro de hombres, con un par de jinetes. Y él respondió, diciendo: ‘¡Babilonia ha caído, ha caído! Todas las imágenes de sus dioses yacen destrozadas en el suelo!’”
+¡Y mirad, ahí viene un carro con hombres, con un par de jinetes! Y él respondió: ‘¡Ha caído, ha caído Babilonia! ¡Todas las imágenes de sus dioses están hechas pedazos por el suelo!’”
 
 ## Isaías 21:10
-Oh mi pueblo aplastado, trillado en la era, lo que he oído del Señor Todopoderoso, el Dios de Israel, os lo declaro.
+Oh mi pueblo aplastado, trillado en la era, lo que he oído del Señor de los ejércitos, el Dios de Israel, os lo declaro.
 
 ## Isaías 21:11
 Una proclamación acerca de Edom: Alguien me llama desde Seir, “Centinela, ¿qué queda de la noche? Centinela, ¿qué queda de la noche?”

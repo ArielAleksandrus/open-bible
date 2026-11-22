@@ -86,7 +86,7 @@ Los clanes coatitas restantes de los levitas recibieron ciudades de la tribu de 
 
 ## Josué 21:21
 
-En la región montañosa de Efraín, les dieron Siquem (una ciudad de refugio para quien matara a alguien involuntariamente) y Guézer,
+En la región montañosa de Efraín, les dieron Siquem (una ciudad de refugio para quien matara a alguien involuntariamente) y Gezer,
 
 ## Josué 21:22
 

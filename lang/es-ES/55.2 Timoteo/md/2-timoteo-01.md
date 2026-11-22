@@ -19,27 +19,27 @@ deseando verte, al recordar tus lágrimas, para que me llene de alegría.
 
 ## 2 Timoteo 1:5
 
-Porque tengo presente la fe sincera que hay en ti, la cual habitó primero en tu abuela Loida y en tu madre Eunice, y estoy seguro de que también está en ti.
+Me acuerdo de tu fe sincera, la misma que tuvieron primero tu abuela Loida y tu madre Eunice, y que estoy seguro de que también tienes tú.
 
 ## 2 Timoteo 1:6
 
-Por esta razón, te recuerdo que avives el don de Dios que está en ti por la imposición de mis manos.
+Por eso te recuerdo que vuelvas a encender el don que Dios te dio cuando te impuse las manos.
 
 ## 2 Timoteo 1:7
 
-Porque Dios no nos ha dado un espíritu de cobardía, sino de poder, amor y dominio propio.
+Porque el espíritu que Dios nos ha dado no es de miedo, sino de poder, de amor y de dominio propio.
 
 ## 2 Timoteo 1:8
 
-Por tanto, no te avergüences del testimonio de nuestro Señor, ni de mí, su prisionero; sino participa conmigo en los sufrimientos por el evangelio según el poder de Dios,
+Así que no te avergüences de dar testimonio de nuestro Señor, ni te avergüences de mí, que estoy preso por Él; al contrario, con el poder que Dios da, soporta conmigo los sufrimientos por el evangelio.
 
 ## 2 Timoteo 1:9
 
-quien nos salvó y nos llamó con un llamamiento santo, no según nuestras obras, sino según su propio propósito y gracia, que nos fue concedida en Cristo Jesús desde toda la eternidad,
+Él nos salvó y nos llamó a una vida santa, no por lo que nosotros hubiéramos hecho, sino por su propio plan y por su gracia, que nos dio en Cristo Jesús desde la eternidad,
 
 ## 2 Timoteo 1:10
 
-pero que ahora ha sido revelada por la aparición de nuestro Salvador Cristo Jesús, quien abolió la muerte y sacó a la luz la vida y la inmortalidad por medio del evangelio,
+y que ahora se ha dado a conocer con la venida de nuestro Salvador Cristo Jesús, que acabó con el poder de la muerte y, por medio del evangelio, dio a conocer la vida y la inmortalidad.
 
 ## 2 Timoteo 1:11
 
@@ -47,7 +47,7 @@ para el cual fui designado como heraldo, apóstol y maestro.
 
 ## 2 Timoteo 1:12
 
-Por esta razón, también sufro estas cosas; pero no me avergüenzo, porque sé en quién he creído, y estoy convencido de que Él es capaz de guardar lo que le he confiado hasta aquel día.
+Por eso estoy sufriendo todo esto; pero no me avergüenzo, porque sé en quién he puesto mi confianza, y estoy convencido de que Él tiene poder para cuidar hasta aquel día lo que le he confiado.
 
 ## 2 Timoteo 1:13
 
@@ -67,8 +67,8 @@ Que el Señor muestre bondad a la casa de Onesíforo, porque muchas veces me ref
 
 ## 2 Timoteo 1:17
 
-sino que cuando estuvo en Roma, me buscó diligentemente y me encontró—
+sino que, en cuanto llegó a Roma, se puso a buscarme sin descanso hasta que me encontró—
 
 ## 2 Timoteo 1:18
 
-que el Señor le conceda hallar misericordia del Señor en aquel día —y tú sabes muy bien qué servicios prestó en Éfeso—.
+que el Señor le conceda encontrar misericordia de parte del Señor en aquel día—, y tú sabes muy bien cuánto me ayudó en Éfeso.

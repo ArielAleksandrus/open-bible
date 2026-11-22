@@ -61,7 +61,7 @@ Luego trajo a todos los sacerdotes de las ciudades de Judá,
 ## 2 Reyes 23:9
 
 Sin embargo, los sacerdotes de los lugares altos no subieron al altar del Señor en Jerusalén,  
- pero comieron pan sin levadura entre sus hermanos.
+ sino que comían pan sin levadura entre sus hermanos.
 
 ## 2 Reyes 23:10
 
@@ -87,14 +87,14 @@ Los altares que estaban en el techo,
 ## 2 Reyes 23:13
 
 Los lugares altos que estaban delante de Jerusalén,  
- que estaban a la derecha del monte de la destrucción que Salomón, el rey de Israel, había construido para Astoret, la abominación de los sidonios,  
+ que estaban a la derecha del monte de la destrucción que Salomón, el rey de Israel, había construido para Astarté, la abominación de los sidonios,  
  para Quemos, la abominación de Moab,  
  y para Milcom, la abominación de los hijos de Amón,  
  el rey los profanó.
 
 ## 2 Reyes 23:14
 
-También destrozó las piedras conmemorativas, cortó los Aserim,  
+También destrozó las piedras conmemorativas, cortó las Aseras,  
  y llenó sus lugares con huesos humanos.
 
 ---
@@ -126,7 +126,7 @@ Entonces dijo,
 ## 2 Reyes 23:18
 
 Y él dijo,  
- “Déjenlo en paz, que nadie perturbe sus huesos.”  
+ “Dejadlo en paz, que nadie perturbe sus huesos.”  
  Así que dejaron sus huesos sin perturbar,  
  junto con los huesos del profeta que vino de Samaria.
 
@@ -147,7 +147,7 @@ Y sacrificó sobre los altares a todos los sacerdotes de los lugares altos que e
 ## 2 Reyes 23:21
 
 El rey mandó a todo el pueblo, diciendo,  
- “Celebren la Pascua al Señor su Dios como está escrito en este Libro del Pacto.  
+ “Celebrad la Pascua al Señor vuestro Dios como está escrito en este Libro del Pacto.  
 ”
 
 ## 2 Reyes 23:22
@@ -198,7 +198,7 @@ En cuanto al resto de los actos de Josías y todo lo que hizo,
 
 ## 2 Reyes 23:29
 
-En sus días, el faraón Necao, rey de Egipto, subió al rey de Asiria al río Éufrates.  
+En sus días, el faraón Necao, rey de Egipto, subió al encuentro del rey de Asiria, junto al río Éufrates.  
  Y el rey Josías fue a su encuentro,  
  pero cuando el faraón Necao lo vio, lo mató en Meguido.
 

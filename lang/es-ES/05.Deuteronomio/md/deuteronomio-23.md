@@ -25,7 +25,7 @@ No desprecies a un edomita, porque son tus parientes. No desprecies a un egipcio
 La tercera generación de sus hijos nacidos de ellos podrá entrar en la asamblea del Señor.
 
 ## Deuteronomio 23:9
-Cuando montes campamento contra tus enemigos, guardaos de cualquier cosa impura.
+Cuando montes campamento contra tus enemigos, guárdate de cualquier cosa impura.
 
 ## Deuteronomio 23:10
 Si hay un hombre entre vosotros que esté impuro debido a una emisión nocturna, debe salir del campamento y no volver a entrar.
@@ -49,7 +49,7 @@ Si un esclavo busca refugio contigo, no lo entregues a su amo.
 Déjalos vivir entre vosotros donde elijan, en la ciudad que prefieran. No los oprimas.
 
 ## Deuteronomio 23:17
-Ningún hombre o mujer israelita debe convertirse en prostituto de culto.
+Ningún hombre ni ninguna mujer de Israel debe dedicarse a la prostitución de culto.
 
 ## Deuteronomio 23:18
 No debes traer las ganancias de una prostituta ni el salario de un perro a la casa del Señor tu Dios para cumplir cualquier voto, porque ambos son detestables para el Señor tu Dios.
@@ -58,7 +58,7 @@ No debes traer las ganancias de una prostituta ni el salario de un perro a la ca
 No cobres interés a un compatriota israelita, ya sea sobre dinero, comida o cualquier otra cosa que pueda generar interés.
 
 ## Deuteronomio 23:20
-Puedes cobrar interés a un extranjero, pero no a un compatriota israelita, para que el Señor tu Dios te bendiga en todo lo que hagas en la tierra que estás entrando para poseer.
+Puedes cobrar interés a un extranjero, pero no a un compatriota israelita, para que el Señor tu Dios te bendiga en todo lo que hagas en la tierra en la que vas a entrar para poseerla.
 
 ## Deuteronomio 23:21
 Si haces un voto al Señor tu Dios, no tardes en cumplirlo, porque el Señor tu Dios ciertamente te lo exigirá, y serás culpable de pecado.

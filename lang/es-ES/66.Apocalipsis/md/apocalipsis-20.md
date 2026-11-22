@@ -13,10 +13,10 @@ Lo arrojó al Abismo, lo cerró y lo selló sobre él, para evitar que engañara
 Vi tronos, y a los que estaban sentados en ellos se les dio autoridad para juzgar. Vi las almas de los que habían sido decapitados por su testimonio de Jesús y la palabra de Dios, y aquellos que no habían adorado a la bestia ni a su imagen ni habían recibido su marca en sus frentes o manos. Volvieron a la vida y reinaron con Cristo por mil años.
 
 ## Apocalipsis 20:5
-El resto de los muertos no volvió a la vida hasta que se cumplieron los mil años. Esto marca la primera resurrección.
+El resto de los muertos no volvió a la vida hasta que se cumplieron los mil años. Esta es la primera resurrección.
 
 ## Apocalipsis 20:6
-Bienaventurados y santos son los que participan en la primera resurrección. La segunda muerte no tiene autoridad sobre ellos, sino que serán sacerdotes de Dios y de Cristo, y reinarán con Él por mil años.
+Dichosos y santos los que tienen parte en la primera resurrección. La segunda muerte no tiene ningún poder sobre ellos, sino que serán sacerdotes de Dios y de Cristo, y reinarán con él durante mil años.
 
 ## Apocalipsis 20:7
 Una vez que los mil años hayan concluido, Satanás será liberado de su prisión,
@@ -40,7 +40,7 @@ Vi a los muertos, grandes y pequeños, de pie ante el trono, y se abrieron libro
 El mar entregó a los muertos que estaban en él, y la Muerte y el Hades entregaron a los muertos que estaban en ellos, y cada persona fue juzgada según sus obras.
 
 ## Apocalipsis 20:14
-Entonces la Muerte y el Hades fueron arrojados al lago de fuego. Este lago de fuego representa la segunda muerte.
+Entonces la Muerte y el Hades fueron arrojados al lago de fuego. Este lago de fuego es la segunda muerte.
 
 ## Apocalipsis 20:15
 Cualquiera cuyo nombre no se encontró en el libro de la vida fue arrojado al lago de fuego.

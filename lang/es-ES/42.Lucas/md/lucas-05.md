@@ -38,7 +38,7 @@ Porque él y todos sus compañeros estaban asombrados por la pesca que habían h
 
 ## Lucas 5:10
 
-y lo mismo les sucedía a Santiago y Juan, hijos de Zebedeo, que eran socios de Simón. Entonces Jesús le dijo a Simón: “No temas; desde ahora serás pescador de hombres.”
+y lo mismo les pasaba a Santiago y Juan, hijos de Zebedeo, que eran socios de Simón. Entonces Jesús le dijo a Simón: “No tengas miedo; desde ahora vas a pescar personas.”
 
 ## Lucas 5:11
 
@@ -94,7 +94,7 @@ Jesús, conociendo sus pensamientos, les preguntó: “¿Por qué pensáis estas
 
 ## Lucas 5:23
 
-¿Qué es más fácil decir: ‘Tus pecados te son perdonados,’ o decir: ‘Levántate y anda’?
+¿Qué os parece más sencillo, decir: ‘Tus pecados quedan perdonados,’ o decir: ‘Levántate y camina’?
 
 ## Lucas 5:24
 
@@ -112,7 +112,7 @@ Todos quedaron asombrados y alabaron a Dios. Llenos de asombro, decían: “Hoy 
 
 ## Lucas 5:27
 
-Después de esto, Jesús salió y vio a un recaudador de impuestos llamado Leví, sentado en su cabina de impuestos. “Sígueme,” le dijo Jesús,
+Después de esto, Jesús salió y vio a un recaudador de impuestos llamado Leví, sentado en su puesto de recaudación. “Sígueme,” le dijo Jesús,
 
 ## Lucas 5:28
 

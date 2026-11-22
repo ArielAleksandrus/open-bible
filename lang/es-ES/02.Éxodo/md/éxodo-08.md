@@ -22,7 +22,7 @@ Así que Aarón extendió su mano sobre las aguas de Egipto, y las ranas subiero
 Sin embargo, los magos hicieron lo mismo con sus artes secretas, haciendo subir ranas sobre la tierra de Egipto.
 
 ## Éxodo 8:8
-Faraón llamó a Moisés y a Aarón y dijo: “Rueguen al Señor que quite las ranas de mí y de mi pueblo, y dejaré ir a tu pueblo para que ofrezcan sacrificios al Señor.”
+Faraón llamó a Moisés y a Aarón y dijo: “Rogad al Señor que quite las ranas de mí y de mi pueblo, y dejaré ir a vuestro pueblo para que ofrezcan sacrificios al Señor.”
 
 ## Éxodo 8:9
 Moisés dijo a Faraón: “Te dejo el honor de decidir cuándo debo orar por ti, tus oficiales y tu pueblo, para que las ranas sean quitadas de ti y de tus casas, quedando solo las del Nilo.”
@@ -73,7 +73,7 @@ Mostraré una diferencia entre mi pueblo y tu pueblo. Esta señal ocurrirá mañ
 Y el Señor lo hizo así. Densos enjambres de moscas entraron en el palacio de Faraón y en las casas de sus oficiales; por todo Egipto, la tierra fue arruinada por las moscas.
 
 ## Éxodo 8:25
-Entonces Faraón llamó a Moisés y a Aarón y dijo: “Vayan, ofrezcan sacrificios a su Dios aquí en esta tierra.”
+Entonces Faraón llamó a Moisés y a Aarón y dijo: “Id, ofreced sacrificios a vuestro Dios aquí en esta tierra.”
 
 ## Éxodo 8:26
 Pero Moisés dijo: “Eso no sería correcto. Los sacrificios que ofrecemos al Señor nuestro Dios serían detestables para los egipcios. Si ofrecemos sacrificios que son detestables a sus ojos, ¿no nos apedrearán?
@@ -82,10 +82,10 @@ Pero Moisés dijo: “Eso no sería correcto. Los sacrificios que ofrecemos al S
 Debemos hacer un viaje de tres días en el desierto para ofrecer sacrificios al Señor nuestro Dios, como Él nos ha dirigido.”
 
 ## Éxodo 8:28
-Faraón dijo: “Les permitiré ir y ofrecer sacrificios al Señor su Dios en el desierto, pero no deben ir demasiado lejos. Ahora, por favor, oren por mí.”
+Faraón dijo: “Os permitiré ir y ofrecer sacrificios al Señor vuestro Dios en el desierto, pero no debéis ir demasiado lejos. Ahora, por favor, orad por mí.”
 
 ## Éxodo 8:29
-Moisés respondió: “Tan pronto como salga de tu presencia, oraré al Señor, y mañana las moscas se apartarán de Faraón, sus oficiales y su pueblo. Solo asegúrate de que Faraón no actúe engañosamente de nuevo al no dejar ir al pueblo para ofrecer sacrificios al Señor.”
+Moisés respondió: “Tan pronto como salga de tu presencia, oraré al Señor, y mañana las moscas se apartarán de Faraón, sus oficiales y su pueblo. Solo que Faraón no vuelva a actuar con engaño, negándose a dejar ir al pueblo para ofrecer sacrificios al Señor.”
 
 ## Éxodo 8:30
 Moisés entonces salió de la presencia de Faraón y oró al Señor,

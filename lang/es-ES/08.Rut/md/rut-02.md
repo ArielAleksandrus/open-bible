@@ -68,7 +68,7 @@ También, sacad algunas espigas de los manojos y dejadlas para que las recoja, y
 
 ## Rut 2:17
 
-Rut continuó recogiendo espigas en el campo hasta el anochecer. Después trilló la cebada que había recogido, que ascendió a unos un efa.
+Rut continuó recogiendo espigas en el campo hasta el anochecer. Después trilló la cebada que había recogido, que fue como un efa.
 
 ## Rut 2:18
 

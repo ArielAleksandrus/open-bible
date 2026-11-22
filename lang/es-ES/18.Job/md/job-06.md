@@ -2,11 +2,11 @@
 
 ## Job 6:1
 
-Entonces Job respondió, diciendo
+Entonces Job respondió diciendo:
 
 ## Job 6:2
 
-> “¡Si tan solo mi angustia fuera pesada y mi calamidad puesta en la balanza juntas!
+> “¡Si tan solo se pesara mi angustia y se pusiera mi calamidad en la balanza junto con ella!
 
 ## Job 6:3
 
@@ -76,7 +76,7 @@ Entonces Job respondió, diciendo
 
 ## Job 6:15
 
-> Pero mis hermanos han actuado engañosamente como un wadi,
+> Pero mis hermanos han actuado engañosamente como un torrente,
 >  como los arroyos que desbordan
 
 ## Job 6:16
@@ -110,13 +110,13 @@ Entonces Job respondió, diciendo
 
 ## Job 6:22
 
-> ¿Alguna vez he dicho, ‘Dame algo,’ o,
+> ¿Alguna vez he dicho: ‘Dame algo,’ o:
 >  ‘Ofrece un soborno en mi nombre de tu riqueza,’
 
 ## Job 6:23
 
-> o, ‘Líbrame de la mano del enemigo,’
->  o, ‘Redímeme de las garras de los despiadados’?
+> o: ‘Líbrame de la mano del enemigo,’
+>  o: ‘Redímeme de las garras de los despiadados’?
 
 ---
 
@@ -137,7 +137,7 @@ Entonces Job respondió, diciendo
 
 ## Job 6:27
 
-> Incluso jugaríais con un huérfano y negociaríais a vuestro amigo.
+> Incluso jugaríais con un huérfano y venderíais a vuestro amigo.
 
 ---
 

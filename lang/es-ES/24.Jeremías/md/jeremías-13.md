@@ -56,7 +56,7 @@ entonces diles, ‘Esto es lo que dice el Señor: Voy a llenar a todos los habit
 
 ## Jeremías 13:14
 
-Los destrozaré unos contra otros, tanto a padres como a hijos por igual,” declara el Señor. “No mostraré compasión, ni perdonaré ni tendré misericordia para evitar su destrucción.”
+Los destrozaré unos contra otros, tanto a padres como a hijos por igual,’ declara el Señor. ‘No mostraré compasión, ni perdonaré ni tendré misericordia para evitar su destrucción.’”
 
 ## Jeremías 13:15
 
@@ -84,11 +84,11 @@ Levantad vuestros ojos y ved a los que vienen del norte. ¿Dónde está el reba�
 
 ## Jeremías 13:21
 
-¿Qué diréis cuando el Señor ponga sobre vosotros a aquellos que cultivasteis como vuestros aliados? ¿No os apoderará el dolor como el de una mujer en trabajo de parto?
+¿Qué diréis cuando el Señor ponga sobre vosotros a aquellos que cultivasteis como vuestros aliados? ¿No se apoderará de vosotros el dolor como el de una mujer en trabajo de parto?
 
 ## Jeremías 13:22
 
-Y si os preguntáis, “¿Por qué me ha sucedido esto?” —es por la magnitud de vuestros pecados que vuestras faldas han sido desgarradas y vuestro cuerpo maltratado—.
+Y si os preguntáis, “¿Por qué me ha sucedido esto?”, es por la magnitud de vuestros pecados que vuestras faldas han sido desgarradas y vuestro cuerpo maltratado.
 
 ## Jeremías 13:23
 
@@ -108,4 +108,4 @@ Levantaré vuestras faldas sobre vuestro rostro para que vuestra vergüenza sea 
 
 ## Jeremías 13:27
 
-vuestros adulterios y relinchos lujuriosos, vuestra prostitución desvergonzada! He visto vuestros actos detestables en las colinas y en los campos. ¡Ay de ti, Jerusalén! ¿Cuánto tiempo permanecerás impura?”
+¡vuestros adulterios y relinchos lujuriosos, vuestra prostitución desvergonzada! He visto vuestros actos detestables en las colinas y en los campos. ¡Ay de ti, Jerusalén! ¿Hasta cuándo seguirás impura?”

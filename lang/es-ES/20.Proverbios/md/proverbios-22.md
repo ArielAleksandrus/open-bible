@@ -22,7 +22,7 @@ Espinas y trampas hay en el camino de los malvados; los que cuidan su vida se ma
 
 ## Proverbios 22:6
 
-Instruye al niño en el camino que debe seguir, y aun cuando sea viejo no se apartará de él.
+Enseña al niño el camino por el que debe ir, y aun de viejo seguirá por él.
 
 ## Proverbios 22:7
 
@@ -50,7 +50,7 @@ Los ojos del Señor vigilan el conocimiento, pero Él derriba las palabras de lo
 
 ## Proverbios 22:13
 
-El perezoso dice: “¡Hay un león afuera! ¡Seré asesinado en las calles!”
+El perezoso dice: “¡Hay un león afuera! ¡Me matarán en la calle!”
 
 ## Proverbios 22:14
 
@@ -76,7 +76,7 @@ porque es agradable cuando las guardas dentro de ti y las tienes listas en tus l
 
 ## Proverbios 22:19
 
-Para que tu confianza esté en el Señor, te instruyo hoy, incluso a ti.
+Para que tu confianza esté en el Señor, hoy te instruyo a ti, sí, a ti.
 
 ## Proverbios 22:20
 
@@ -120,4 +120,4 @@ No muevas una piedra de límite antigua establecida por tus antepasados.
 
 ## Proverbios 22:29
 
-¿Ves a alguien hábil en su trabajo? Servirá ante reyes; no servirá ante personas oscuras.
+¿Ves a alguien hábil en su trabajo? Servirá ante reyes; no servirá ante gente sin importancia.

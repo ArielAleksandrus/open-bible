@@ -18,7 +18,7 @@ Este día marca vuestra salida en el mes de Abib.
 
 ## Éxodo 13:5
 
-Cuando el Señor te lleve a la tierra de los cananeos, hititas, amorreos, heveos y jebuseos, la tierra que juró a tus antepasados daros, una tierra que fluye leche y miel, observarás este rito en este mes:
+Cuando el Señor te lleve a la tierra de los cananeos, hititas, amorreos, heveos y jebuseos, la tierra que juró a tus antepasados que te daría, una tierra que fluye leche y miel, observarás este rito en este mes:
 
 ## Éxodo 13:6
 
@@ -50,7 +50,7 @@ entregarás al Señor el primer fruto de todo vientre. Todos los primogénitos m
 
 ## Éxodo 13:13
 
-Por cada primer hijo de burro, sustituye un cordero, pero si no lo sustituyes, rompe su cuello. Redime a todos los primogénitos de tus hijos.
+Por cada cría primogénita de burro, da un cordero en su lugar; pero si no lo rescatas, rómpele el cuello. Redime a todos los primogénitos de tus hijos.
 
 ## Éxodo 13:14
 

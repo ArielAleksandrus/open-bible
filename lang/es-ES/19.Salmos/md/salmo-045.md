@@ -12,56 +12,56 @@
 
 ## Salmo 45:2
 
-> Eres el más hermoso de los hijos de los hombres;  
->  La gracia fluye de tus labios;  
->  Por eso Dios te ha bendecido eternamente.
+> Tú eres el más hermoso de todos los hombres;  
+>  tus labios están llenos de gracia;  
+>  por eso Dios te ha bendecido para siempre.
 
 ---
 
 ## Salmo 45:3
 
-> Ciñe tu espada sobre tu muslo, Poderoso,  
->  En tu esplendor y majestad.
+> ¡Ponte la espada a la cintura, oh Poderoso,  
+>  con todo tu esplendor y majestad!
 
 ## Salmo 45:4
 
 > Y en tu majestad cabalga triunfante,  
->  Por la causa de la verdad, la humildad y la justicia;  
->  Que tu diestra revele cosas maravillosas.
+>  por la causa de la verdad, la humildad y la justicia;  
+>  que tu diestra revele cosas maravillosas.
 
 ## Salmo 45:5
 
 > Tus flechas son agudas;  
->  Las naciones caen bajo ti;  
+>  las naciones caen bajo ti;  
 >  Tus flechas atraviesan el corazón de los enemigos del Rey.
 
 ## Salmo 45:6
 
-> Tu trono, Dios, es por los siglos de los siglos;  
->  El cetro de tu reino es un cetro de justicia.
+> Tu trono, oh Dios, permanece para siempre;  
+>  el cetro de tu reino es un cetro de justicia.
 
 ## Salmo 45:7
 
-> Amas la justicia y detestas la maldad;  
->  Por eso Dios, tu Dios,  
->  te ha ungido Con el óleo de alegría sobre tus compañeros.
+> Tú amas lo justo y odias lo malo; por eso Dios,  
+>  tu Dios,  
+>  te ha ungido Con el aceite de la alegría por encima de tus compañeros.
 
 ## Salmo 45:8
 
 > Todas tus vestiduras están perfumadas con mirra, áloes y casia;  
->  Desde palacios de marfil, instrumentos de cuerda te han deleitado.
+>  desde palacios de marfil, instrumentos de cuerda te han deleitado.
 
 ## Salmo 45:9
 
-> Hijas de reyes están entre tus damas nobles;  
->  A tu diestra está la reina adornada con oro de Ofir.
+> Entre tus damas de honor hay hijas de reyes;  
+>  a tu derecha está la reina, adornada con oro de Ofir.
 
 ---
 
 ## Salmo 45:10
 
-> Escucha, hija, observa e inclina tu oído:  
->  Deja atrás a tu pueblo y la casa de tu padre;
+> Escucha, hija, mira bien y presta atención:  
+>  Olvídate de tu pueblo y de la casa de tu padre;
 
 ## Salmo 45:11
 
@@ -70,8 +70,8 @@
 
 ## Salmo 45:12
 
-> La hija de Tiro vendrá con un regalo;  
->  Los ricos del pueblo buscarán tu favor.
+> La hija de Tiro vendrá a traerte un regalo;  
+>  los ricos del pueblo querrán ganarse tu favor.
 
 ## Salmo 45:13
 
@@ -81,23 +81,23 @@
 ## Salmo 45:14
 
 > Será llevada al Rey con vestiduras de colores;  
->  Las vírgenes, sus compañeras que la siguen, serán llevadas a ti.
+>  las vírgenes, sus compañeras que la siguen, serán llevadas a ti.
 
 ## Salmo 45:15
 
-> Serán llevadas con alegría y gozo;  
->  Entrarán en el palacio del Rey.
+> Las llevan entre fiestas y alegría;  
+>  y así entran en el palacio del Rey.
 
 ---
 
 ## Salmo 45:16
 
-> En lugar de tus padres estarán tus hijos;  
->  Los nombrarás príncipes por toda la tierra.
+> Tus hijos ocuparán el lugar de tus padres;  
+>  los pondrás como príncipes en todo el país.
 
 ---
 
 ## Salmo 45:17
 
-> Haré que tu nombre sea recordado en todas las generaciones;  
->  Por eso los pueblos te alabarán por los siglos de los siglos.
+> Haré que se recuerde tu nombre de generación en generación;  
+>  por eso los pueblos te alabarán para siempre jamás.

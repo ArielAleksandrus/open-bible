@@ -14,7 +14,7 @@ Se la darás a Eleazar el sacerdote, y será llevada fuera del campamento y sacr
 
 ## Números 19:4
 
-Eleazar el sacerdote tomará con su dedo parte de su sangre y la rociará siete veces hacia el frente del tabernáculo de reunión.
+Eleazar el sacerdote tomará con su dedo parte de su sangre y la rociará siete veces hacia el frente del tienda de reunión.
 
 ## Números 19:5
 
@@ -46,11 +46,11 @@ Cualquiera que toque un cadáver humano quedará impuro durante siete días.
 
 ## Números 19:12
 
-Deberán purificarse con el agua en el tercer día y en el séptimo día; entonces quedarán limpios. Si no se purifican en el tercer y séptimo día, no quedarán limpios.
+Deberá purificarse con el agua en el tercer día y en el séptimo día; entonces quedará limpio. Si no se purifica en el tercer y séptimo día, no quedará limpio.
 
 ## Números 19:13
 
-Cualquiera que toque un cadáver y no se purifique contamina el tabernáculo del Señor. Deberán ser cortados de Israel, ya que el agua de purificación no ha sido rociada sobre ellos; permanecen impuros.
+Cualquiera que toque un cadáver y no se purifique contamina el tabernáculo del Señor. Deberá ser cortado de Israel, ya que el agua de purificación no ha sido rociada sobre él; permanece impuro.
 
 ## Números 19:14
 
@@ -66,7 +66,7 @@ Cualquiera que en campo abierto toque a alguien muerto por espada o que haya mue
 
 ## Números 19:17
 
-Para la persona impura, tomen algunas de las cenizas de la ofrenda de purificación quemada y añadan agua corriente en un recipiente.
+Para la persona impura, tomaréis algunas de las cenizas de la ofrenda de purificación quemada y les añadiréis agua corriente en un recipiente.
 
 ## Números 19:18
 
@@ -74,11 +74,11 @@ Una persona limpia tomará hisopo, lo mojará en el agua y rociará la tienda, t
 
 ## Números 19:19
 
-La persona limpia rociará al impuro en el tercer y séptimo día, y en el séptimo día los purificará. Deberán lavar sus vestidos y bañarse en agua, y al anochecer quedarán limpios.
+La persona limpia rociará al impuro en el tercer y séptimo día, y en el séptimo día lo purificará. Deberá lavar sus vestidos y bañarse en agua, y al anochecer quedará limpio.
 
 ## Números 19:20
 
-Pero si la persona impura no se purifica, deberá ser cortada de la asamblea, porque ha contaminado el santuario del Señor. El agua de purificación no ha sido rociada sobre ellos, y están impuros.
+Pero si la persona impura no se purifica, deberá ser cortada de la asamblea, porque ha contaminado el santuario del Señor. El agua de purificación no ha sido rociada sobre ella, y está impura.
 
 ## Números 19:21
 

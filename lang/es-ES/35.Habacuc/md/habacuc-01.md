@@ -31,9 +31,9 @@ La profecía que el profeta Habacuc vio.
 
 ## Habacuc 1:6
 
-> Porque he aquí, yo levanto a los caldeos,
->  esa nación feroz e impetuosa,
->  que marcha por la anchura de la tierra para apoderarse de moradas ajenas.
+> Porque, fijaos, estoy levantando a los babilonios,
+>  esa nación feroz e impulsiva,
+>  que avanza a lo ancho de la tierra para apoderarse de casas que no son suyas.
 
 ## Habacuc 1:7
 
@@ -42,11 +42,10 @@ La profecía que el profeta Habacuc vio.
 
 ## Habacuc 1:8
 
-> Sus caballos son más veloces que leopardos,
->  más feroces que los lobos nocturnos.
->  Sus jinetes avanzan con orgullo;
->  sus jinetes vienen de lejos.
->  Vuelan como águila que se apresura a devorar.
+> Sus caballos son más rápidos que los leopardos y más fieros que los lobos al caer la tarde.
+>  Sus jinetes avanzan con arrogancia;
+>  sus jinetes llegan de lejos.
+>  Vuelan como el águila que se lanza a devorar.
 
 ## Habacuc 1:9
 

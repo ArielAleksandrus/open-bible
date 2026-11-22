@@ -4,41 +4,39 @@
 
 ## Salmo 119:1
 
-> Dichosos los que andan en camino perfecto,  
->  Los que andan conforme a la ley del Señor.
+> Felices los que llevan una vida limpia,  
+>  los que siguen la ley del Señor.
 
 ## Salmo 119:2
 
-> Dichosos los que guardan sus testimonios,  
->  Y lo buscan con todo el corazón.
+> Felices los que cumplen sus testimonios y lo buscan de todo corazón.
 
 ## Salmo 119:3
 
-> No cometen iniquidad;  
->  Caminan en sus caminos.
+> No hacen nada malo;  
+>  van por sus caminos.
 
 ## Salmo 119:4
 
 > Tú has ordenado tus preceptos,  
->  Para que los guardemos con diligencia.
+>  para que los guardemos con diligencia.
 
 ## Salmo 119:5
 
-> ¡Ojalá mis caminos sean firmes Para guardar tus estatutos!
+> ¡Ojalá yo fuera siempre constante en cumplir tus estatutos!
 
 ## Salmo 119:6
 
-> Entonces no seré avergonzado Cuando considere todos tus mandamientos.
+> Así no tendré de qué avergonzarme cuando me fije en todos tus mandamientos.
 
 ## Salmo 119:7
 
-> Te daré gracias con sinceridad de corazón,  
->  Cuando aprenda tus justos juicios.
+> Te daré gracias con un corazón sincero cuando aprenda lo justos que son tus juicios.
 
 ## Salmo 119:8
 
-> Guardaré tus estatutos;  
->  ¡No me abandones por completo!
+> Cumpliré tus estatutos;  
+>  ¡no me dejes del todo solo!
 
 ---
 
@@ -46,41 +44,40 @@
 
 ## Salmo 119:9
 
-> ¿Cómo puede un joven mantener puro su camino?  
->  Guardándolo conforme a tu palabra.
+> ¿Cómo puede un joven llevar una vida limpia?  
+>  Viviendo según tu palabra.
 
 ## Salmo 119:10
 
-> Con todo mi corazón te he buscado;  
->  No dejes que me desvíe de tus mandamientos.
+> Te he buscado de todo corazón;  
+>  no permitas que me aparte de tus mandamientos.
 
 ## Salmo 119:11
 
-> He guardado tu palabra en mi corazón,  
->  Para no pecar contra ti.
+> Atesoro tu palabra en mi corazón,  
+>  para no pecar contra ti.
 
 ## Salmo 119:12
 
-> Bendito eres, Señor;  
+> ¡Alabado seas, Señor!  
 >  Enséñame tus estatutos.
 
 ## Salmo 119:13
 
-> Con mis labios he declarado Todos los juicios de tu boca.
+> He anunciado con mis labios todo lo que tu boca ha ordenado.
 
 ## Salmo 119:14
 
-> Me he gozado en el camino de tus testimonios,  
->  Más que en todas las riquezas.
+> Seguir tus testimonios me alegra tanto como tener todas las riquezas del mundo.
 
 ## Salmo 119:15
 
-> Meditaré en tus preceptos Y consideraré tus caminos.
+> Pensaré a fondo en tus preceptos y prestaré atención a tus caminos.
 
 ## Salmo 119:16
 
-> Me deleitaré en tus estatutos;  
->  No olvidaré tu palabra.
+> Tus estatutos son mi placer;  
+>  no me olvidaré de tu palabra.
 
 ---
 
@@ -88,42 +85,42 @@
 
 ## Salmo 119:17
 
-> Haz bien a tu siervo,  
->  Para que viva y guarde tu palabra.
+> Sé generoso con tu siervo,  
+>  para que yo viva y cumpla tu palabra.
 
 ## Salmo 119:18
 
-> Abre mis ojos,  
->  para que vea Las maravillas de tu ley.
+> Ábreme los ojos,  
+>  para que pueda ver las cosas maravillosas de tu ley.
 
 ## Salmo 119:19
 
-> Soy un forastero en la tierra;  
->  No escondas de mí tus mandamientos.
+> En esta tierra estoy de paso;  
+>  no me ocultes tus mandamientos.
 
 ## Salmo 119:20
 
-> Mi alma se consume de anhelo Por tus juicios en todo tiempo.
+> Mi alma se desgasta de tanto anhelar tus ordenanzas en todo momento.
 
 ## Salmo 119:21
 
-> Tú reprendes a los soberbios, los malditos,  
->  Que se desvían de tus mandamientos.
+> Tú regañas a los orgullosos,  
+>  a esos malditos que se alejan de tus mandamientos.
 
 ## Salmo 119:22
 
-> Aparta de mí el oprobio y el menosprecio,  
->  Porque he guardado tus testimonios.
+> Quítame de encima la deshonra y el desprecio,  
+>  porque yo cumplo tus testimonios.
 
 ## Salmo 119:23
 
-> Aunque príncipes se sienten y hablen contra mí,  
->  Tu siervo medita en tus estatutos.
+> Aunque los gobernantes se reúnan para hablar contra mí,  
+>  tu siervo sigue pensando en tus estatutos.
 
 ## Salmo 119:24
 
-> También tus testimonios son mi deleite;  
->  Ellos son mis consejeros.
+> Además, tus testimonios son mi alegría;  
+>  ellos me aconsejan.
 
 ---
 
@@ -131,43 +128,43 @@
 
 ## Salmo 119:25
 
-> Mi alma está pegada al polvo;  
->  Vivifícame conforme a tu palabra.
+> Estoy tirado en el suelo;  
+>  dame nueva vida, como dice tu palabra.
 
 ## Salmo 119:26
 
-> Te he manifestado mis caminos, y me has respondido;  
->  Enséñame tus estatutos.
+> Te conté cómo había vivido, y tú me respondiste;  
+>  enséñame tus estatutos.
 
 ## Salmo 119:27
 
-> Hazme entender el camino de tus preceptos,  
->  Para que medite en tus maravillas.
+> Ayúdame a entender el camino de tus preceptos,  
+>  y así pensaré en tus maravillas.
 
 ## Salmo 119:28
 
-> Mi alma se derrite de tristeza;  
->  Fortaléceme conforme a tu palabra.
+> Lloro de tristeza; dame fuerzas,  
+>  como dice tu palabra.
 
 ## Salmo 119:29
 
-> Aparta de mí el camino de la mentira,  
->  Y concédeme tu ley graciosamente.
+> Aleja de mí el camino del engaño,  
+>  y concédeme por tu bondad tu ley.
 
 ## Salmo 119:30
 
-> He escogido el camino de la verdad;  
->  He puesto tus juicios delante de mí.
+> He elegido el camino de la fidelidad;  
+>  tengo presentes tus juicios.
 
 ## Salmo 119:31
 
-> Me he apegado a tus testimonios;  
->  Señor, no me avergüences.
+> Me aferro a tus testimonios; ¡Señor,  
+>  no permitas que quede en vergüenza!
 
 ## Salmo 119:32
 
 > Correré por el camino de tus mandamientos,  
->  Porque tú ensancharás mi corazón.
+>  porque tú me darás un corazón más grande.
 
 ---
 
@@ -175,43 +172,43 @@
 
 ## Salmo 119:33
 
-> Enséñame, Señor, el camino de tus estatutos,  
->  Y lo guardaré hasta el fin.
+> Señor, enséñame el camino de tus estatutos,  
+>  y lo seguiré hasta el final.
 
 ## Salmo 119:34
 
-> Dame entendimiento,  
->  para que guarde tu ley Y la cumpla de todo corazón.
+> Hazme entender,  
+>  para que cumpla tu ley y la obedezca de todo corazón.
 
 ## Salmo 119:35
 
-> Guíame por la senda de tus mandamientos,  
->  Porque en ella me deleito.
+> Llévame por el sendero de tus mandamientos,  
+>  porque en él encuentro mi alegría.
 
 ## Salmo 119:36
 
-> Inclina mi corazón a tus testimonios,  
->  Y no a la ganancia deshonesta.
+> Haz que mi corazón se incline hacia tus testimonios,  
+>  y no hacia las ganancias deshonestas.
 
 ## Salmo 119:37
 
-> Aparta mis ojos de mirar la vanidad,  
->  Y vivifícame en tus caminos.
+> No dejes que mis ojos se queden mirando lo que no vale nada;  
+>  dame vida en tus caminos.
 
 ## Salmo 119:38
 
-> Confirma tu palabra a tu siervo,  
->  Que te teme.
+> Cumple con tu siervo tu palabra,  
+>  esa que inspira reverencia hacia ti.
 
 ## Salmo 119:39
 
-> Aparta de mí el oprobio que temo,  
->  Porque tus juicios son buenos.
+> Quítame la deshonra que tanto temo,  
+>  porque lo que tú decides es bueno.
 
 ## Salmo 119:40
 
-> He aquí, anhelo tus preceptos;  
->  Vivifícame en tu justicia.
+> Mira cómo anhelo tus preceptos;  
+>  dame vida por tu justicia.
 
 ---
 
@@ -219,43 +216,43 @@
 
 ## Salmo 119:41
 
-> Venga a mí tu misericordia, Señor,  
->  Tu salvación conforme a tu palabra;
+> Señor, que también llegue a mí tu favor,  
+>  tu salvación, tal como lo prometiste en tu palabra;
 
 ## Salmo 119:42
 
-> Y daré respuesta al que me afrenta,  
->  Porque confío en tu palabra.
+> así tendré qué responder al que me insulta,  
+>  porque confío en tu palabra.
 
 ## Salmo 119:43
 
-> No quites de mi boca en ningún momento la palabra de verdad,  
->  Porque en tus juicios espero.
+> No me quites del todo de la boca la palabra de verdad,  
+>  porque pongo mi esperanza en tus juicios.
 
 ## Salmo 119:44
 
-> Guardaré tu ley continuamente,  
->  Para siempre jamás.
+> Así cumpliré tu ley siempre,  
+>  por todos los tiempos.
 
 ## Salmo 119:45
 
-> Y andaré en libertad,  
->  Porque busco tus preceptos.
+> Y viviré en libertad,  
+>  porque busco tus preceptos.
 
 ## Salmo 119:46
 
-> Hablaré también de tus testimonios delante de los reyes,  
->  Y no me avergonzaré.
+> Ante los reyes también hablaré de tus testimonios,  
+>  sin sentir ninguna vergüenza.
 
 ## Salmo 119:47
 
-> Me deleitaré en tus mandamientos,  
->  Que amo.
+> Disfrutaré de tus mandamientos,  
+>  porque los amo.
 
 ## Salmo 119:48
 
-> Alzaré mis manos a tus mandamientos, que amo;  
->  Y meditaré en tus estatutos.
+> Levantaré las manos hacia tus mandamientos, que tanto amo,  
+>  y pensaré a fondo en tus estatutos.
 
 ---
 
@@ -263,42 +260,41 @@
 
 ## Salmo 119:49
 
-> Acuérdate de la palabra dada a tu siervo,  
->  En la cual me has hecho esperar.
+> Acuérdate de lo que le prometiste a tu siervo,  
+>  de la palabra con la que me diste esperanza.
 
 ## Salmo 119:50
 
-> Este es mi consuelo en mi aflicción,  
->  Que tu palabra me ha vivificado.
+> En mi sufrimiento, este es mi consuelo:  
+>  que tu palabra me ha devuelto la vida.
 
 ## Salmo 119:51
 
-> Los soberbios se han burlado de mí en gran manera,  
->  Pero no me he apartado de tu ley.
+> Los orgullosos no paran de burlarse de mí,  
+>  pero yo no me aparto de tu ley.
 
 ## Salmo 119:52
 
-> Me acordé de tus juicios antiguos, Señor,  
->  Y me consolé.
+> Señor, recuerdo tus juicios de tiempos antiguos,  
+>  y eso me consuela.
 
 ## Salmo 119:53
 
-> Indignación se ha apoderado de mí a causa de los impíos,  
->  Que abandonan tu ley.
+> Me lleno de indignación cuando veo a los malvados que abandonan tu ley.
 
 ## Salmo 119:54
 
-> Tus estatutos han sido mis cánticos En la casa de mi peregrinación.
+> Tus estatutos han sido mis canciones en la casa donde vivo de paso.
 
 ## Salmo 119:55
 
-> Señor, me he acordado de tu nombre en la noche,  
->  Y he guardado tu ley.
+> Señor, de noche me acuerdo de tu nombre,  
+>  y cumplo tu ley.
 
 ## Salmo 119:56
 
-> Esto se ha convertido en mío,  
->  Que guardo tus preceptos.
+> Esto es lo que tengo como propio:  
+>  que obedezco tus preceptos.
 
 ---
 
@@ -306,40 +302,40 @@
 
 ## Salmo 119:57
 
-> El Señor es mi porción;  
->  He prometido guardar tus palabras.
+> Mi parte es el Señor;  
+>  he prometido cumplir tus palabras.
 
 ## Salmo 119:58
 
-> Busqué tu favor con todo mi corazón;  
->  Ten misericordia de mí conforme a tu palabra.
+> De todo corazón he buscado tu favor;  
+>  ten compasión de mí, como dice tu palabra.
 
 ## Salmo 119:59
 
-> Consideré mis caminos Y volví mis pasos hacia tus testimonios.
+> Me puse a pensar en cómo vivía, y dirigí mis pasos hacia tus testimonios.
 
 ## Salmo 119:60
 
-> Me apresuré y no me retardé En guardar tus mandamientos.
+> Me di prisa, sin perder un momento, para seguir tus mandamientos.
 
 ## Salmo 119:61
 
-> Los lazos de los impíos me han rodeado,  
->  Pero no me he olvidado de tu ley.
+> Las trampas de los malvados me rodean,  
+>  pero no me he olvidado de tu ley.
 
 ## Salmo 119:62
 
-> A medianoche me levantaré para darte gracias Por tus justos juicios.
+> A medianoche me levanto para darte gracias por la justicia de tus juicios.
 
 ## Salmo 119:63
 
 > Soy amigo de todos los que te temen,  
->  Y de los que guardan tus preceptos.
+>  de los que cumplen tus preceptos.
 
 ## Salmo 119:64
 
-> La tierra está llena de tu misericordia, Señor;  
->  Enséñame tus estatutos.
+> Señor, tu misericordia llena la tierra;  
+>  enséñame tus estatutos.
 
 ---
 
@@ -347,42 +343,42 @@
 
 ## Salmo 119:65
 
-> Has hecho bien a tu siervo, Señor,  
->  Conforme a tu palabra.
+> Señor, has tratado bien a tu siervo,  
+>  tal como lo dijiste en tu palabra.
 
 ## Salmo 119:66
 
-> Enséñame buen juicio y conocimiento,  
->  Porque en tus mandamientos he creído.
+> Enséñame a tener buen criterio y conocimiento,  
+>  porque confío en tus mandamientos.
 
 ## Salmo 119:67
 
-> Antes que fuera afligido, me descarrié,  
->  Pero ahora guardo tu palabra.
+> Antes de pasar por el sufrimiento, andaba perdido,  
+>  pero ahora cumplo siempre tu palabra.
 
 ## Salmo 119:68
 
-> Bueno eres tú, y bienhechor;  
->  Enséñame tus estatutos.
+> Tú eres bueno y haces lo que es justo;  
+>  enséñame tus estatutos.
 
 ## Salmo 119:69
 
-> Los soberbios han urdido mentira contra mí;  
->  Con todo mi corazón guardaré tus preceptos.
+> Los orgullosos han inventado mentiras contra mí,  
+>  pero yo de todo corazón cumpliré tus preceptos.
 
 ## Salmo 119:70
 
-> Su corazón es insensible, como grasa,  
->  Pero yo me deleito en tu ley.
+> Su corazón es insensible, duro como grasa endurecida,  
+>  pero yo disfruto de tu ley.
 
 ## Salmo 119:71
 
-> Bueno es para mí haber sido afligido,  
->  Para que aprenda tus estatutos.
+> Me hizo bien pasar por dificultades,  
+>  porque así aprendo tus estatutos.
 
 ## Salmo 119:72
 
-> La ley de tu boca es mejor para mí Que millares de piezas de oro y plata.
+> Para mí vale más la ley que sale de tu boca que miles de monedas de oro y plata.
 
 ---
 
@@ -390,43 +386,43 @@
 
 ## Salmo 119:73
 
-> Tus manos me hicieron y me formaron;  
->  Dame entendimiento para que aprenda tus mandamientos.
+> Tus manos me hicieron y me dieron forma;  
+>  dame inteligencia para aprender tus mandamientos.
 
 ## Salmo 119:74
 
-> Los que te temen me verán y se alegrarán,  
->  Porque en tu palabra he esperado.
+> Que los que te temen se alegren al verme,  
+>  porque he puesto mi esperanza en tu palabra.
 
 ## Salmo 119:75
 
-> Yo sé, Señor, que tus juicios son justos,  
->  Y que con fidelidad me has afligido.
+> Señor, sé que tus juicios son justos,  
+>  y que por tu fidelidad has dejado que pase por pruebas.
 
 ## Salmo 119:76
 
-> Sea ahora tu misericordia para consolarme,  
->  Conforme a tu palabra a tu siervo.
+> Que tu favor me consuele,  
+>  como le prometiste a tu siervo.
 
 ## Salmo 119:77
 
-> Venga a mí tu compasión, para que viva,  
->  Porque tu ley es mi deleite.
+> Que tu compasión me alcance y me dé vida,  
+>  porque tu ley es mi alegría.
 
 ## Salmo 119:78
 
-> Sean avergonzados los soberbios, porque me agravian con mentira;  
->  Pero yo meditaré en tus preceptos.
+> Que queden en vergüenza los orgullosos, porque me hacen daño con mentiras;  
+>  pero yo pensaré a fondo en tus preceptos.
 
 ## Salmo 119:79
 
-> Vuélvanse a mí los que te temen,  
->  Y los que conocen tus testimonios.
+> Que se acerquen a mí los que te temen,  
+>  los que conocen tus testimonios.
 
 ## Salmo 119:80
 
-> Sea mi corazón íntegro en tus estatutos,  
->  Para que no sea avergonzado.
+> Que mi corazón se mantenga firme en tus estatutos,  
+>  para que no tenga de qué avergonzarme.
 
 ---
 
@@ -434,43 +430,43 @@
 
 ## Salmo 119:81
 
-> Mi alma desfallece por tu salvación;  
->  Espero en tu palabra.
+> Mi alma se agota esperando que me salves;  
+>  pongo mi esperanza en tu palabra.
 
 ## Salmo 119:82
 
-> Mis ojos desfallecen por tu palabra,  
->  Mientras digo: “¿Cuándo me consolarás?”
+> Se me cansan los ojos de esperar tu palabra,  
+>  y digo: “¿Cuándo vas a consolarme?”
 
 ## Salmo 119:83
 
-> Aunque he llegado a ser como un odre en el humo,  
->  No me he olvidado de tus estatutos.
+> Aunque me he quedado como un odre reseco por el humo,  
+>  no me olvido de tus estatutos.
 
 ## Salmo 119:84
 
-> ¿Cuántos son los días de tu siervo?  
->  ¿Cuándo harás juicio contra los que me persiguen?
+> ¿Cuántos días le quedan a tu siervo?  
+>  ¿Cuándo harás justicia contra los que me persiguen?
 
 ## Salmo 119:85
 
-> Los soberbios me han cavado fosas,  
->  Gente que no está de acuerdo con tu ley.
+> Los orgullosos me han cavado hoyos para que caiga;  
+>  es gente que no está de acuerdo con tu ley.
 
 ## Salmo 119:86
 
-> Todos tus mandamientos son fieles;  
->  Me persiguen con mentira; ¡ayúdame!
+> Todos tus mandamientos son dignos de confianza;  
+>  me persiguen con mentiras, ¡ayúdame!
 
 ## Salmo 119:87
 
-> Casi me destruyen en la tierra,  
->  Pero yo no he abandonado tus preceptos.
+> Por poco acaban conmigo en la tierra,  
+>  pero yo no he dejado tus preceptos.
 
 ## Salmo 119:88
 
-> Vivifícame conforme a tu misericordia,  
->  Para que guarde el testimonio de tu boca.
+> Dame vida por tu misericordia,  
+>  para que cumpla el testimonio que sale de tu boca.
 
 ---
 
@@ -478,43 +474,43 @@
 
 ## Salmo 119:89
 
-> Para siempre, Señor,  
->  Tu palabra está firme en los cielos.
+> Señor,  
+>  Tu palabra se mantiene en el cielo por siempre.
 
 ## Salmo 119:90
 
-> Tu fidelidad es de generación en generación;  
->  Tú afirmaste la tierra, y permanece.
+> Tu fidelidad sigue de una generación a otra;  
+>  tú pusiste la tierra en su lugar, y allí sigue firme.
 
 ## Salmo 119:91
 
-> Por tu ordenanza permanecen hasta hoy,  
->  Porque todas las cosas te sirven.
+> Gracias a tus ordenanzas todo sigue en pie hasta hoy,  
+>  porque todas las cosas están a tu servicio.
 
 ## Salmo 119:92
 
-> Si tu ley no hubiera sido mi deleite,  
->  Entonces habría perecido en mi aflicción.
+> Si tu ley no hubiera sido mi alegría,  
+>  mi sufrimiento habría acabado conmigo.
 
 ## Salmo 119:93
 
-> Nunca olvidaré tus preceptos,  
->  Porque por ellos me has vivificado.
+> Jamás me olvidaré de tus preceptos,  
+>  porque con ellos me has devuelto la vida.
 
 ## Salmo 119:94
 
-> Tuyo soy yo; sálvame,  
->  Porque he buscado tus preceptos.
+> Soy tuyo; rescátame,  
+>  porque he buscado tus preceptos.
 
 ## Salmo 119:95
 
-> Los impíos me han aguardado para destruirme;  
->  Consideraré diligentemente tus testimonios.
+> Los malvados están al acecho para acabar conmigo,  
+>  pero yo prestaré toda mi atención a tus testimonios.
 
 ## Salmo 119:96
 
-> He visto un límite a toda perfección;  
->  Tu mandamiento es sumamente amplio.
+> He visto que hasta lo más perfecto tiene un límite,  
+>  pero tu mandamiento no tiene medida.
 
 ---
 
@@ -522,43 +518,43 @@
 
 ## Salmo 119:97
 
-> ¡Cuánto amo tu ley!  
->  Todo el día es ella mi meditación.
+> ¡Cómo quiero tu ley!  
+>  Pienso en ella todo el día.
 
 ## Salmo 119:98
 
 > Tus mandamientos me hacen más sabio que mis enemigos,  
->  Porque siempre están conmigo.
+>  porque los llevo siempre conmigo.
 
 ## Salmo 119:99
 
-> Tengo más entendimiento que todos mis maestros,  
->  Porque tus testimonios son mi meditación.
+> Tengo más inteligencia que todos mis maestros,  
+>  porque pienso a fondo en tus testimonios.
 
 ## Salmo 119:100
 
 > Entiendo más que los ancianos,  
->  Porque he guardado tus preceptos.
+>  porque cumplo tus preceptos.
 
 ## Salmo 119:101
 
-> He contenido mis pies de todo mal camino,  
->  Para guardar tu palabra.
+> He apartado mis pies de todo mal camino,  
+>  para poder cumplir tu palabra.
 
 ## Salmo 119:102
 
-> No me he apartado de tus juicios,  
->  Porque tú me has enseñado.
+> No me he desviado de tus juicios,  
+>  porque tú mismo me has enseñado.
 
 ## Salmo 119:103
 
-> ¡Cuán dulces son a mi paladar tus palabras!  
->  Más que la miel a mi boca.
+> ¡Qué sabrosas son tus palabras! ¡Sí,  
+>  son más dulces que la miel en mi boca!
 
 ## Salmo 119:104
 
-> De tus preceptos he adquirido entendimiento;  
->  Por tanto, aborrezco todo camino de mentira.
+> Tus preceptos me dan entendimiento;  
+>  por eso detesto todo camino de engaño.
 
 ---
 
@@ -566,42 +562,42 @@
 
 ## Salmo 119:105
 
-> Tu palabra es una lámpara para mis pies Y una luz en mi camino.
+> Tu palabra es como una lámpara que alumbra mis pies, una luz en mi sendero.
 
 ## Salmo 119:106
 
-> He jurado y lo cumpliré,  
->  Que guardaré tus justos juicios.
+> He hecho un juramento y lo voy a cumplir:  
+>  obedeceré tus justos juicios.
 
 ## Salmo 119:107
 
-> Estoy muy afligido;  
->  Vivifícame, Señor, conforme a tu palabra.
+> Estoy sufriendo muchísimo;  
+>  Señor, dame vida, como dice tu palabra.
 
 ## Salmo 119:108
 
-> Acepta, Señor, las ofrendas voluntarias de mi boca,  
->  Y enséñame tus juicios.
+> Señor, te ruego que aceptes las ofrendas que mi boca te da de buena gana,  
+>  y enséñame tus juicios.
 
 ## Salmo 119:109
 
-> Mi vida está continuamente en peligro,  
->  Pero no me olvido de tu ley.
+> Mi vida corre peligro a cada momento,  
+>  pero no me olvido de tu ley.
 
 ## Salmo 119:110
 
-> Los impíos me han tendido lazo,  
->  Pero no me he desviado de tus preceptos.
+> Los malvados me han puesto una trampa,  
+>  pero no me he alejado de tus preceptos.
 
 ## Salmo 119:111
 
-> He tomado tus testimonios como herencia perpetua,  
->  Porque son el gozo de mi corazón.
+> Tus testimonios son mi herencia para siempre,  
+>  porque llenan de alegría mi corazón.
 
 ## Salmo 119:112
 
-> He inclinado mi corazón a cumplir tus estatutos Por siempre,  
->  hasta el fin.
+> Me he propuesto de corazón cumplir tus estatutos siempre,  
+>  hasta el final.
 
 ---
 
@@ -609,43 +605,43 @@
 
 ## Salmo 119:113
 
-> Aborrezco a los hombres hipócritas,  
->  Pero amo tu ley.
+> Detesto a los que tienen el corazón dividido,  
+>  pero amo tu ley.
 
 ## Salmo 119:114
 
-> Mi escondedero y mi escudo eres tú;  
->  En tu palabra he esperado.
+> Tú eres mi refugio y mi escudo;  
+>  pongo mi esperanza en tu palabra.
 
 ## Salmo 119:115
 
-> Apartaos de mí, malhechores,  
->  Para que guarde los mandamientos de mi Dios.
+> ¡Alejaos de mí, malvados,  
+>  que quiero cumplir los mandamientos de mi Dios!
 
 ## Salmo 119:116
 
-> Susténtame conforme a tu palabra, y viviré;  
->  Y no me avergüences de mi esperanza.
+> Sostenme, como dice tu palabra, para que yo viva;  
+>  no dejes que mi esperanza termine en vergüenza.
 
 ## Salmo 119:117
 
-> Sostenme, y seré salvo,  
->  Y me deleitaré siempre en tus estatutos.
+> Sujétame,  
+>  para que esté a salvo y tenga siempre en cuenta tus estatutos.
 
 ## Salmo 119:118
 
-> Has rechazado a todos los que se desvían de tus estatutos,  
->  Porque su engaño es en vano.
+> Tú rechazas a todos los que se apartan de tus estatutos,  
+>  porque sus engaños no les sirven de nada.
 
 ## Salmo 119:119
 
-> Has desechado a todos los impíos de la tierra como escoria;  
->  Por tanto, amo tus testimonios.
+> Tú quitas de en medio a todos los malvados de la tierra como si fueran basura;  
+>  por eso amo tus estatutos.
 
 ## Salmo 119:120
 
-> Mi carne se estremece por temor a ti,  
->  Y de tus juicios tengo miedo.
+> Mi cuerpo tiembla de temor ante ti,  
+>  y tus juicios me dan miedo.
 
 ---
 
@@ -653,43 +649,42 @@
 
 ## Salmo 119:121
 
-> He practicado el juicio y la justicia;  
->  No me dejes a mis opresores.
+> He actuado con justicia y rectitud;  
+>  no me dejes en manos de los que me oprimen.
 
 ## Salmo 119:122
 
-> Sé fiador de tu siervo para bien;  
->  No permitas que los soberbios me opriman.
+> Hazte responsable del bien de tu siervo;  
+>  no permitas que los orgullosos me opriman.
 
 ## Salmo 119:123
 
-> Mis ojos desfallecen por tu salvación,  
->  Y por la palabra de tu justicia.
+> Se me cansan los ojos esperando tu salvación y tu palabra llena de justicia.
 
 ## Salmo 119:124
 
-> Haz con tu siervo según tu misericordia,  
->  Y enséñame tus estatutos.
+> Trata a tu siervo con misericordia,  
+>  y enséñame tus estatutos.
 
 ## Salmo 119:125
 
-> Yo soy tu siervo; dame entendimiento,  
->  Para que conozca tus testimonios.
+> Soy tu siervo;  
+>  dame inteligencia para conocer tus testimonios.
 
 ## Salmo 119:126
 
-> Es tiempo de que actúe el Señor,  
->  Porque han invalidado tu ley.
+> Señor, ya es hora de que actúes,  
+>  porque han quebrantado tu ley.
 
 ## Salmo 119:127
 
-> Por eso amo tus mandamientos Más que el oro,  
->  sí, más que el oro fino.
+> Por eso quiero tus mandamientos más que el oro,  
+>  sí, más que el oro más puro.
 
 ## Salmo 119:128
 
-> Por eso estimo rectos todos tus preceptos,  
->  Y aborrezco todo camino de mentira.
+> Por eso sigo con cuidado todos tus preceptos,  
+>  y detesto todo camino de engaño.
 
 ---
 
@@ -697,43 +692,43 @@
 
 ## Salmo 119:129
 
-> Maravillosos son tus testimonios;  
->  Por eso los guarda mi alma.
+> Tus testimonios son maravillosos;  
+>  por eso mi alma los cumple.
 
 ## Salmo 119:130
 
-> La exposición de tus palabras alumbra;  
->  Hace entender a los simples.
+> Cuando tus palabras se explican,  
+>  traen luz y dan entendimiento a la gente sencilla.
 
 ## Salmo 119:131
 
-> Abrí mi boca y suspiré,  
->  Porque anhelaba tus mandamientos.
+> Abro la boca con ansia,  
+>  porque deseo tus mandamientos.
 
 ## Salmo 119:132
 
-> Vuélvete a mí y ten misericordia de mí,  
->  Como es tu costumbre con los que aman tu nombre.
+> Vuélvete hacia mí y ten compasión de mí,  
+>  como corresponde a los que aman tu nombre.
 
 ## Salmo 119:133
 
-> Afirma mis pasos en tu palabra,  
->  Y no se enseñoree de mí iniquidad alguna.
+> Afirma mis pasos con tu palabra,  
+>  y no dejes que ningún mal me domine.
 
 ## Salmo 119:134
 
-> Líbrame de la opresión del hombre,  
->  Para que guarde tus preceptos.
+> Líbrame de la opresión de los hombres,  
+>  para que pueda cumplir tus preceptos.
 
 ## Salmo 119:135
 
-> Haz resplandecer tu rostro sobre tu siervo,  
->  Y enséñame tus estatutos.
+> Que tu rostro brille sobre tu siervo;  
+>  enséñame tus estatutos.
 
 ## Salmo 119:136
 
-> Ríos de agua descendieron de mis ojos,  
->  Porque no guardan tu ley.
+> De mis ojos corren ríos de lágrimas,  
+>  porque la gente no cumple tu ley.
 
 ---
 
@@ -741,42 +736,42 @@
 
 ## Salmo 119:137
 
-> Justo eres tú, Señor,  
->  Y rectos son tus juicios.
+> Señor, tú eres justo,  
+>  y tus juicios son rectos.
 
 ## Salmo 119:138
 
-> Has ordenado tus testimonios con justicia Y con gran fidelidad.
+> Has dado tus testimonios con justicia y con toda fidelidad.
 
 ## Salmo 119:139
 
-> Mi celo me ha consumido,  
->  Porque mis enemigos han olvidado tus palabras.
+> Mi pasión por ti me consume,  
+>  porque mis enemigos se olvidan de tus palabras.
 
 ## Salmo 119:140
 
-> Tu palabra es muy pura,  
->  Por eso tu siervo la ama.
+> Tu palabra es completamente pura;  
+>  por eso tu siervo la ama.
 
 ## Salmo 119:141
 
-> Pequeño soy yo y despreciado,  
->  Pero no me he olvidado de tus preceptos.
+> Soy poca cosa y me desprecian,  
+>  pero no me olvido de tus preceptos.
 
 ## Salmo 119:142
 
-> Tu justicia es justicia eterna,  
->  Y tu ley es la verdad.
+> Tu justicia es justa para siempre,  
+>  y tu ley es la verdad misma.
 
 ## Salmo 119:143
 
-> Aflicción y angustia se han apoderado de mí,  
->  Pero tus mandamientos son mi deleite.
+> Me han alcanzado los problemas y la angustia,  
+>  pero tus mandamientos me llenan de alegría.
 
 ## Salmo 119:144
 
 > Tus testimonios son justos para siempre;  
->  Dame entendimiento y viviré.
+>  dame inteligencia, para que yo viva.
 
 ---
 
@@ -784,43 +779,41 @@
 
 ## Salmo 119:145
 
-> Clamé con todo mi corazón; respóndeme, Señor,  
->  Y guardaré tus estatutos.
+> Te llamo con todo mi corazón; ¡respóndeme, Señor!  
+>  Cumpliré tus estatutos.
 
 ## Salmo 119:146
 
-> A ti clamé; sálvame,  
->  Y guardaré tus testimonios.
+> A ti te llamo; sálvame,  
+>  y cumpliré tus testimonios.
 
 ## Salmo 119:147
 
-> Me anticipé al alba y clamé;  
->  En tu palabra he esperado.
+> Me levanto antes del amanecer y te pido ayuda;  
+>  pongo mi esperanza en tus palabras.
 
 ## Salmo 119:148
 
-> Se anticiparon mis ojos a las vigilias de la noche,  
->  Para meditar en tu palabra.
+> Me quedo despierto en las horas de la noche para pensar en tu palabra.
 
 ## Salmo 119:149
 
-> Oye mi voz conforme a tu misericordia;  
->  Vivifícame, Señor, conforme a tus juicios.
+> Por tu misericordia, escucha mi voz; Señor,  
+>  dame vida, como lo establecen tus juicios.
 
 ## Salmo 119:150
 
-> Se acercaron a la maldad los que me persiguen;  
->  Se alejaron de tu ley.
+> Se acercan los que andan tras la maldad;  
+>  están muy lejos de tu ley.
 
 ## Salmo 119:151
 
-> Cercano estás tú, Señor,  
->  Y todos tus mandamientos son verdad.
+> Pero tú, Señor, estás cerca,  
+>  y todos tus mandamientos son verdad.
 
 ## Salmo 119:152
 
-> Hace tiempo que he conocido de tus testimonios,  
->  Que para siempre los has establecido.
+> Hace mucho aprendí de tus testimonios que los estableciste para siempre.
 
 ---
 
@@ -828,43 +821,43 @@
 
 ## Salmo 119:153
 
-> Mira mi aflicción y líbrame,  
->  Porque no me he olvidado de tu ley.
+> Mira cómo sufro y rescátame,  
+>  porque no me olvido de tu ley.
 
 ## Salmo 119:154
 
-> Defiende mi causa y redímeme;  
->  Vivifícame conforme a tu palabra.
+> Defiende mi causa y libérame;  
+>  dame vida, como dice tu palabra.
 
 ## Salmo 119:155
 
-> Lejos está de los impíos la salvación,  
->  Porque no buscan tus estatutos.
+> La salvación está lejos de los malvados,  
+>  porque no buscan tus estatutos.
 
 ## Salmo 119:156
 
-> Muchas son tus misericordias, Señor;  
->  Vivifícame conforme a tus juicios.
+> Señor, tu compasión es inmensa; dame vida,  
+>  como lo establecen tus juicios.
 
 ## Salmo 119:157
 
-> Muchos son mis perseguidores y mis enemigos,  
->  Pero no me he desviado de tus testimonios.
+> Son muchos los que me persiguen y me atacan,  
+>  pero yo no me aparto de tus testimonios.
 
 ## Salmo 119:158
 
-> Vi a los prevaricadores y me disgusté,  
->  Porque no guardan tu palabra.
+> Veo a los traidores y siento desprecio,  
+>  porque no cumplen tu palabra.
 
 ## Salmo 119:159
 
-> Considera cómo amo tus preceptos;  
->  Vivifícame, Señor, conforme a tu misericordia.
+> Mira cuánto amo tus preceptos;  
+>  Señor, dame vida por tu misericordia.
 
 ## Salmo 119:160
 
-> La suma de tu palabra es verdad,  
->  Y cada uno de tus justos juicios es eterno.
+> Toda tu palabra es verdad,  
+>  y cada uno de tus justos juicios dura para siempre.
 
 ---
 
@@ -872,42 +865,42 @@
 
 ## Salmo 119:161
 
-> Príncipes me persiguen sin causa,  
->  Pero mi corazón teme tus palabras.
+> Los gobernantes me persiguen sin motivo,  
+>  pero mi corazón siente un profundo respeto por tus palabras.
 
 ## Salmo 119:162
 
-> Me regocijo en tu palabra,  
->  Como el que halla un gran botín.
+> Tu palabra me llena de alegría,  
+>  como al que encuentra un gran tesoro.
 
 ## Salmo 119:163
 
-> La mentira aborrezco y abomino,  
->  Pero amo tu ley.
+> Detesto y aborrezco la mentira,  
+>  pero amo tu ley.
 
 ## Salmo 119:164
 
-> Siete veces al día te alabo Por tus justos juicios.
+> Siete veces al día te alabo por la justicia de tus juicios.
 
 ## Salmo 119:165
 
-> Mucha paz tienen los que aman tu ley,  
->  Y no hay para ellos tropiezo.
+> Los que aman tu ley disfrutan de una gran paz,  
+>  y nada los hace tropezar.
 
 ## Salmo 119:166
 
-> Espero tu salvación, Señor,  
->  Y cumplo tus mandamientos.
+> Señor, espero que me salves,  
+>  y sigo tus mandamientos.
 
 ## Salmo 119:167
 
-> Mi alma ha guardado tus testimonios,  
->  Y los amo en gran manera.
+> Mi alma cumple tus testimonios,  
+>  y los quiero muchísimo.
 
 ## Salmo 119:168
 
-> He guardado tus preceptos y tus testimonios,  
->  Porque todos mis caminos están delante de ti.
+> Cumplo tus preceptos y tus testimonios,  
+>  porque tú ves todo lo que hago.
 
 ---
 
@@ -915,40 +908,40 @@
 
 ## Salmo 119:169
 
-> Llegue mi clamor delante de ti, Señor;  
->  Dame entendimiento conforme a tu palabra.
+> Señor, que mi grito llegue hasta ti;  
+>  dame inteligencia, como dice tu palabra.
 
 ## Salmo 119:170
 
-> Llegue mi súplica delante de ti;  
->  Líbrame conforme a tu palabra.
+> Que mi súplica llegue hasta ti;  
+>  sálvame, como dice tu palabra.
 
 ## Salmo 119:171
 
-> Mis labios rebosarán de alabanza,  
->  Porque me enseñas tus estatutos.
+> Que de mis labios brote la alabanza,  
+>  porque tú me enseñas tus estatutos.
 
 ## Salmo 119:172
 
-> Mi lengua cantará tu palabra,  
->  Porque todos tus mandamientos son justicia.
+> Que mi lengua cante tu palabra,  
+>  porque todos tus mandamientos son justos.
 
 ## Salmo 119:173
 
-> Esté tu mano pronta para socorrerme,  
->  Porque he escogido tus preceptos.
+> Que tu mano esté lista para ayudarme,  
+>  porque he elegido tus preceptos.
 
 ## Salmo 119:174
 
-> Anhelo tu salvación, Señor,  
->  Y tu ley es mi deleite.
+> Señor, deseo con ansia que me salves,  
+>  y tu ley es mi alegría.
 
 ## Salmo 119:175
 
-> Viva mi alma para alabarte,  
->  Y ayúdenme tus juicios.
+> Déjame vivir para alabarte,  
+>  y que tus ordenanzas me ayuden.
 
 ## Salmo 119:176
 
-> Me he descarriado como oveja perdida; busca a tu siervo,  
->  Porque no me he olvidado de tus mandamientos.
+> Ando perdido como una oveja extraviada; ven a buscar a tu siervo,  
+>  porque no me olvido de tus mandamientos.

@@ -22,26 +22,26 @@ Por tanto, consideré necesario exhortar a los hermanos a que fueran antes a vos
 
 ## 2 Corintios 9:6
 
-Ahora bien, digo esto: el que siembra escasamente, también segará escasamente, y el que siembra generosamente, también segará generosamente.
+Recordad esto: quien siembra poco, poco cosechará, y quien siembra con generosidad, con generosidad cosechará.
 
 ## 2 Corintios 9:7
 
-Cada uno debe dar según lo que haya decidido en su corazón, no de mala gana ni por obligación, porque Dios ama al dador alegre.
+Cada uno debe dar lo que haya decidido en su corazón, no a disgusto ni porque se sienta obligado, porque Dios ama al que da con alegría.
 
 ## 2 Corintios 9:8
 
-Y Dios es poderoso para hacer que abunde en vosotros toda gracia, de modo que, teniendo siempre toda suficiencia en todo, abundéis para toda buena obra;
+Y Dios puede daros en abundancia toda clase de bendiciones, para que siempre tengáis todo lo que necesitáis y aún os sobre para hacer toda clase de bien;
 
 ## 2 Corintios 9:9
 
-Como dice la escritura:
+Como dice la Escritura:
 
->  “Esparció, dio a los pobres,  
->  Su justicia permanece para siempre.”
+>  “Repartió con generosidad,  
+>  dio a los pobres; su justicia dura para siempre.”
 
 ## 2 Corintios 9:10
 
-Y el que provee semilla al sembrador y pan para comer proveerá y multiplicará vuestra semilla para sembrar y aumentará la cosecha de vuestra justicia;
+Y el que le da semilla al que siembra y pan para comer os dará también a vosotros la semilla, la multiplicará y hará crecer la cosecha de vuestra justicia;
 
 ## 2 Corintios 9:11
 

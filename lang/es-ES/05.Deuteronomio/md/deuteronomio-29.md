@@ -4,7 +4,7 @@
 Estos son los términos del pacto que el Señor mandó a Moisés establecer con los israelitas en la tierra de Moab, además del pacto que había hecho con ellos en Horeb.
 
 ## Deuteronomio 29:2
-Moisés reunió a todo Israel y les dijo: "Habéis sido testigos de todo lo que el Señor hizo en Egipto con el faraón, con todos sus oficiales y con toda su tierra.
+Moisés reunió a todo Israel y les dijo: “Habéis sido testigos de todo lo que el Señor hizo en Egipto con el faraón, con todos sus oficiales y con toda su tierra.
 
 ## Deuteronomio 29:3
 Vuestros ojos han visto esas grandes pruebas, esos signos y maravillas.
@@ -19,7 +19,7 @@ Os he guiado por el desierto durante cuarenta años; vuestra ropa no se ha gasta
 No habéis comido pan ni bebido vino ni otra bebida fermentada, para que sepáis que yo soy el Señor vuestro Dios.
 
 ## Deuteronomio 29:7
-Cuando llegasteis a este lugar, Sihón rey de Hesbón y Og rey de Basán salieron a luchar contra nosotros, pero los derrotamos.
+Cuando llegasteis a este lugar, Sehón rey de Hesbón y Og rey de Basán salieron a luchar contra nosotros, pero los derrotamos.
 
 ## Deuteronomio 29:8
 Tomamos posesión de su tierra y la asignamos como herencia a los rubenitas, los gaditas y la media tribu de Manasés.
@@ -67,7 +67,7 @@ El Señor los apartará de todas las tribus de Israel para calamidad, de acuerdo
 Las generaciones futuras —vuestros descendientes que se levanten después de vosotros y los extranjeros de tierras lejanas— verán las calamidades que han caído sobre la tierra y las enfermedades con las que el Señor la ha afligido.
 
 ## Deuteronomio 29:23
-Toda la tierra será un desierto ardiente de sal y azufre —nada sembrado, nada brotando, ninguna vegetación creciendo en ella. Será como la destrucción de Sodoma y Gomorra, Adma y Zeboim, que el Señor destruyó en su feroz ira—.
+Toda la tierra será un desierto ardiente de sal y azufre —nada sembrado, nada brotando, ninguna vegetación creciendo en ella—. Será como la destrucción de Sodoma y Gomorra, Adma y Zeboim, que el Señor destruyó en su feroz ira.
 
 ## Deuteronomio 29:24
 Todas las naciones preguntarán, ‘¿Por qué ha hecho esto el Señor a esta tierra? ¿Por qué esta gran intensidad de ira?’

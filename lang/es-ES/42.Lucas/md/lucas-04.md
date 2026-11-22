@@ -136,7 +136,7 @@ Entonces viajó a Capernaúm, una ciudad de Galilea, y en el día de reposo ense
 
 ## Lucas 4:32
 
-Estaban asombrados de su enseñanza, porque su mensaje era entregado con autoridad.
+Estaban asombrados de su enseñanza, porque hablaba con autoridad.
 
 ## Lucas 4:33
 

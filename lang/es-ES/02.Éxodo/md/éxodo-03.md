@@ -34,7 +34,7 @@ Así que he descendido para librarlos del poder de los egipcios y llevarlos de e
 
 ## Éxodo 3:9
 
-Y ahora, he aquí, el clamor de los israelitas ha llegado hasta mí, y he visto cómo los egipcios los oprimen.
+Ahora el clamor de los israelitas ha llegado hasta mí, y he visto cómo los egipcios los oprimen.
 
 ## Éxodo 3:10
 
@@ -70,7 +70,7 @@ Y he prometido sacaros de vuestra aflicción en Egipto a la tierra de los canane
 
 ## Éxodo 3:18
 
-“Los ancianos de Israel te escucharán. Entonces tú y los ancianos iréis al rey de Egipto y le diréis: ‘El Señor, el Dios de los hebreos, se nos ha encontrado. Permítenos hacer un viaje de tres días al desierto para ofrecer sacrificios al Señor nuestro Dios.’
+“Los ancianos de Israel te escucharán. Entonces tú y los ancianos iréis al rey de Egipto y le diréis: ‘El Señor, el Dios de los hebreos, se ha encontrado con nosotros. Permítenos hacer un viaje de tres días al desierto para ofrecer sacrificios al Señor nuestro Dios.’
 
 ## Éxodo 3:19
 

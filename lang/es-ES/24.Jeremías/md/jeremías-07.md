@@ -10,7 +10,7 @@ El mensaje que fue dado a Jeremías de parte del Señor:
 
 ## Jeremías 7:3
 
-Esto es lo que dice el Señor de los Ejércitos, el Dios de Israel: Enmendad vuestros caminos y vuestras obras, y os dejaré habitar en este lugar.
+Esto es lo que dice el Señor de los ejércitos, el Dios de Israel: Enmendad vuestros caminos y vuestras obras, y os dejaré habitar en este lugar.
 
 ## Jeremías 7:4
 
@@ -50,7 +50,7 @@ y luego vendréis y os presentaréis ante Mí en esta casa, que es llamada por M
 
 ## Jeremías 7:13
 
-Y ahora, porque habéis hecho todas estas cosas,” declara el Señor, “y os hablé, hablando persistentemente, pero no escuchasteis, y os llamé pero no respondisteis,
+Y ahora, porque habéis hecho todas estas cosas,” declara el Señor, “y os hablé una y otra vez, pero no escuchasteis, y os llamé pero no respondisteis,
 
 ## Jeremías 7:14
 
@@ -78,11 +78,11 @@ Los hijos recogen leña, los padres encienden el fuego, y las mujeres amasan la 
 
 ## Jeremías 7:20
 
-Por tanto, esto es lo que dice el Señor Soberano: “He aquí, Mi ira y Mi furor se derramarán sobre este lugar, sobre el hombre y la bestia, sobre los árboles del campo y el fruto de la tierra; y arderá y no se apagará.”
+Por tanto, esto es lo que dice el Señor Dios: “He aquí, Mi ira y Mi furor se derramarán sobre este lugar, sobre el hombre y la bestia, sobre los árboles del campo y el fruto de la tierra; y arderá y no se apagará.”
 
 ## Jeremías 7:21
 
-Esto es lo que dice el Señor de los Ejércitos, el Dios de Israel: “¡Añadid vuestros holocaustos a vuestros sacrificios y comed la carne vosotros mismos!
+Esto es lo que dice el Señor de los ejércitos, el Dios de Israel: “¡Añadid vuestros holocaustos a vuestros sacrificios y comed la carne vosotros mismos!
 
 ## Jeremías 7:22
 
@@ -122,11 +122,11 @@ Porque el pueblo de Judá ha hecho lo malo ante Mis ojos,” declara el Señor. 
 
 ## Jeremías 7:31
 
-Han construido los lugares altos de Tofet en el Valle de Ben Hinnom para quemar a sus hijos e hijas en el fuego —algo que no mandé, ni vino a Mi mente—.
+Han construido los lugares altos de Tofet en el Valle de Ben-hinom para quemar a sus hijos e hijas en el fuego —algo que no mandé, ni vino a Mi mente—.
 
 ## Jeremías 7:32
 
-Por tanto, he aquí, vienen días,” declara el Señor, “cuando ya no se llamará Tofet ni el Valle de Ben Hinnom, sino el Valle de la Matanza, porque enterrarán en Tofet hasta que no haya más lugar.
+Por tanto, he aquí, vienen días,” declara el Señor, “cuando ya no se llamará Tofet ni el Valle de Ben-hinom, sino el Valle de la Matanza, porque enterrarán en Tofet hasta que no haya más lugar.
 
 ## Jeremías 7:33
 

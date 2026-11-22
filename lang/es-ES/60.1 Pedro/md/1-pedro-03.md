@@ -2,94 +2,93 @@
 
 ## 1 Pedro 3:1
 
-De la misma manera, vosotras, esposas, estad sujetas a vuestros propios maridos para que, incluso si algunos de ellos son desobedientes a la palabra, sean ganados sin palabra por la conducta de sus esposas,
+De la misma manera, vosotras, las esposas, aceptad la autoridad de vuestros esposos, para que, si alguno de ellos no obedece al mensaje, pueda ser ganado sin necesidad de palabras por la conducta de su esposa,
 
 ## 1 Pedro 3:2
 
-al observar vuestra conducta pura y respetuosa.
+al ver vuestra manera de vivir, limpia y respetuosa.
 
 ## 1 Pedro 3:3
 
-Vuestro adorno no debe ser el externo: peinados ostentosos, uso de joyas de oro o vestiduras lujosas;
+Que vuestra belleza no dependa de lo de fuera, como los peinados elaborados, las joyas de oro o la ropa;
 
 ## 1 Pedro 3:4
 
-sino que sea el yo interior, con la belleza perdurable de un espíritu afable y apacible, que es valioso a los ojos de Dios.
+sino de lo que hay dentro de vosotras, de la belleza que no se marchita de un espíritu amable y tranquilo, que tiene mucho valor para Dios.
 
 ## 1 Pedro 3:5
 
-Pues de esta manera, las santas mujeres del pasado, que ponían su esperanza en Dios, solían adornarse, siendo sumisas a sus propios maridos,
+Porque así se embellecían en otros tiempos las mujeres santas que ponían su esperanza en Dios, apoyando a sus propios esposos,
 
 ## 1 Pedro 3:6
 
-tal como Sara obedecía a Abraham, llamándole señor; y vosotras habéis llegado a ser sus hijas si hacéis lo correcto sin ceder al miedo.
+como Sara, que obedecía a Abraham y lo llamaba señor; y vosotras sois hijas de ella si hacéis el bien sin dejaros vencer por el miedo.
 
 ## 1 Pedro 3:7
 
-Vosotros, maridos, de la misma manera, vivid con vuestras esposas de manera comprensiva, como con alguien más débil, ya que es mujer; y mostradle honor como coheredera de la gracia de la vida, para que vuestras oraciones no sean estorbadas.
+Del mismo modo, vosotros, los esposos, vivid con vuestras esposas con comprensión, sabiendo que la mujer es más débil; y tratadla con honra, porque ella también recibe con vosotros la vida que Dios da por su gracia, para que nada impida vuestras oraciones.
 
 ## 1 Pedro 3:8
 
-Finalmente, sed todos de un mismo sentir, compasivos, amándoos fraternalmente, misericordiosos, humildes;
+En fin, vivid todos en armonía, comprendeos unos a otros, amaos como hermanos, sed compasivos y humildes;
 
 ## 1 Pedro 3:9
 
-no devolviendo mal por mal ni insulto por insulto, sino, por el contrario, bendiciendo; porque fuisteis llamados a esto, para que heredéis bendición.
+no devolváis mal por mal ni insulto por insulto; al contrario, bendecid, porque Dios os llamó precisamente para que recibierais una bendición como herencia.
 
 ## 1 Pedro 3:10
 
-Porque,
+Porque “el que quiera amar la vida y ver días felices,
 
->  “El que quiera amar la vida y ver días buenos,  
->  debe refrenar su lengua del mal y sus labios de hablar engaño.
+>  que no deje que su lengua diga cosas malas ni que sus labios digan mentiras.
 
 ## 1 Pedro 3:11
 
-> Deben apartarse del mal y hacer el bien;  
->  deben buscar la paz y seguirla.
+> Que se aparte del mal y haga el bien;  
+>  que busque la paz y se esfuerce por alcanzarla.
 
 ## 1 Pedro 3:12
 
-> Porque los ojos del Señor están sobre los justos,  
->  y sus oídos atentos a su oración,  
->  pero el rostro del Señor está contra aquellos que hacen el mal.”
+> Porque el Señor no aparta la vista de los justos y escucha sus oraciones,  
+>  pero el Señor se pone en contra de los que hacen el mal.  
+> ”
 
 ## 1 Pedro 3:13
 
-¿Y quién os podrá hacer daño si sois celosos del bien?
+¿Y quién os va a hacer daño si os esforzáis por hacer el bien?
 
 ## 1 Pedro 3:14
 
-Pero aun si sufrís por hacer lo correcto, sois bienaventurados. No temáis sus amenazas, ni os turbéis,
+Pero, aunque tengáis que sufrir por hacer lo que es justo, dichosos vosotros. No tengáis miedo de sus amenazas ni os inquietéis,
 
 ## 1 Pedro 3:15
 
-sino santificad a Cristo como Señor en vuestros corazones, estando siempre preparados para presentar defensa ante todo el que os demande razón de la esperanza que hay en vosotros, pero con mansedumbre y respeto;
+sino honrad a Cristo como Señor en vuestro corazón, y estad siempre preparados para responder a cualquiera que os pida explicaciones de la esperanza que tenéis, pero hacedlo con amabilidad y respeto;
 
 ## 1 Pedro 3:16
 
-y mantened una buena conciencia para que, en lo que sois calumniados, aquellos que difaman vuestra buena conducta en Cristo sean avergonzados.
+y mantened limpia la conciencia, para que los que hablan mal de vuestra buena conducta como creyentes en Cristo queden avergonzados de sus calumnias.
 
 ## 1 Pedro 3:17
 
-Porque es mejor, si es la voluntad de Dios, sufrir por hacer el bien que por hacer el mal.
+Porque, si Dios así lo quiere, es mejor sufrir por hacer el bien que por hacer el mal.
 
 ## 1 Pedro 3:18
 
-Porque Cristo también sufrió por los pecados una vez para siempre, el justo por los injustos, para llevaros a Dios. Fue muerto en el cuerpo pero vivificado en el espíritu;
+Porque también Cristo sufrió por los pecados una sola vez y para siempre, el justo por los injustos, para llevaros a Dios. En su cuerpo lo mataron, pero el Espíritu le devolvió la vida;
 
 ## 1 Pedro 3:19
 
-en el cual fue y proclamó a los espíritus en prisión,
+y fue así como fue a anunciar su mensaje a los espíritus que estaban encerrados,
 
 ## 1 Pedro 3:20
 
-que fueron desobedientes hace mucho tiempo, cuando Dios esperaba pacientemente en los días de Noé mientras se construía el arca. En ella solo unas pocas personas, ocho en total, fueron salvadas por agua.
+los que hace mucho tiempo desobedecieron, cuando Dios esperaba con paciencia en los días de Noé, mientras se construía el arca. En ella solo unas pocas personas, ocho en total, se salvaron por medio del agua.
 
 ## 1 Pedro 3:21
 
-Y esta agua simboliza el bautismo que ahora os salva también, no la eliminación de la suciedad del cuerpo, sino el compromiso de una buena conciencia hacia Dios. Os salva por la resurrección de Jesucristo,
+Y esa agua representa el bautismo que ahora os salva también a vosotros; no se trata de quitar la suciedad del cuerpo, sino del compromiso de una conciencia limpia ante Dios. El bautismo os salva por la resurrección de Jesucristo,
 
 ## 1 Pedro 3:22
 
-quien ha ascendido al cielo y está a la diestra de Dios, con ángeles, autoridades y poderes sujetos a Él.
+que subió al cielo y está a la derecha de Dios, y a quien están sometidos los ángeles, las autoridades y los poderes.

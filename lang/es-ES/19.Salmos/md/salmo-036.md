@@ -4,67 +4,67 @@
 
 ## Salmo 36:1
 
-> La maldad habla al impío en su corazón;  
->  No hay temor de Dios delante de sus ojos.
+> La maldad le habla al malvado en lo íntimo de su corazón;  
+>  no siente ningún temor de Dios.
 
 ---
 
 ## Salmo 36:2
 
-> Porque le halaga a sus propios ojos En cuanto al descubrimiento de su culpa y odio.
+> Porque se engaña a sí mismo, creyendo que nadie descubrirá su culpa ni la odiará.
 
 ## Salmo 36:3
 
-> Sus palabras están llenas de maldad y engaño;  
->  Ha abandonado la sabiduría y la bondad.
+> Todo lo que dice es maldad y mentira;  
+>  ha dejado de ser sensato y de hacer el bien.
 
 ## Salmo 36:4
 
-> Planea el mal mientras está en su cama;  
->  Elige un camino que no es bueno;  
->  No se aparta de la maldad.
+> Hasta en la cama se pone a planear el mal;  
+>  Escoge un camino que no es bueno;  
+>  no se aleja de lo malo.
 
 ---
 
 ## Salmo 36:5
 
-> Tu misericordia, Señor, llega hasta los cielos,  
->  Tu fidelidad se extiende hasta el firmamento.
+> Señor, Tu misericordia llega hasta el cielo,  
+>  Tu fidelidad alcanza las alturas.
 
 ## Salmo 36:6
 
-> Tu justicia es tan majestuosa como las montañas;  
->  Tus juicios son tan profundos como el gran abismo.  
->  Señor, cuidas tanto de los humanos como de los animales.
+> Tu justicia es tan imponente como las montañas;  
+>  Tus juicios son tan hondos como el océano profundo.  
+>  Señor, Tú cuidas por igual de las personas y de los animales.
 
 ## Salmo 36:7
 
-> ¡Cuán invaluable es Tu misericordia, Dios!  
->  Y la humanidad encuentra refugio bajo la sombra de Tus alas.
+> ¡Qué valiosa es Tu misericordia, oh Dios!  
+>  La humanidad encuentra protección a la sombra de Tus alas.
 
 ## Salmo 36:8
 
-> Se sacian de la abundancia de Tu casa;  
->  Y los refrescas con el río de Tus delicias.
+> Quedan satisfechos con la abundancia de Tu casa;  
+>  y Tú les das de beber del río de Tus delicias.
 
 ## Salmo 36:9
 
-> Porque contigo está la fuente de la vida;  
->  En Tu luz, vemos la luz.
+> Porque Tú eres la fuente de la vida; gracias a Tu luz,  
+>  podemos ver la luz.
 
 ---
 
 ## Salmo 36:10
 
-> Continúa Tu misericordia con los que Te conocen,  
->  Y Tu justicia con los de corazón recto.
+> Sigue mostrando Tu misericordia a los que Te conocen,  
+>  y Tu justicia a los que tienen un corazón sincero.
 
 ## Salmo 36:11
 
-> No permitas que el pie de la arrogancia me alcance,  
->  Ni que la mano de los malvados me aleje.
+> No dejes que el soberbio me pisotee,  
+>  ni que la mano de los malvados me haga huir.
 
 ## Salmo 36:12
 
-> Allí han caído los malhechores;  
->  Han sido derribados y no pueden levantarse.
+> ¡Mirad cómo han caído los que hacen el mal!  
+>  Están derribados y ya no se pueden levantar.

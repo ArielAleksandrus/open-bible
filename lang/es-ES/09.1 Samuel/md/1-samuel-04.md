@@ -14,7 +14,7 @@ Los filisteos organizaron sus fuerzas para enfrentar a Israel, y cuando la batal
 
 ## 1 Samuel 4:3
 
-Cuando los soldados regresaron al campamento, los ancianos de Israel dijeron: “¿Por qué permitió el Señor que fuéramos derrotados hoy por los filisteos? Traigamos el arca del pacto del Señor desde Silo, para que Él vaya con nosotros y nos salve de nuestros enemigos.”
+Cuando los soldados regresaron al campamento, los ancianos de Israel dijeron: “¿Por qué nos ha derrotado hoy el Señor delante de los filisteos? Traigamos el arca del pacto del Señor desde Silo, para que Él vaya con nosotros y nos salve de nuestros enemigos.”
 
 ## 1 Samuel 4:4
 
@@ -31,7 +31,7 @@ Los filisteos oyeron el ruido del grito y preguntaron: “¿Qué es este gran gr
 
 ## 1 Samuel 4:7
 
-Los filisteos tuvieron miedo. “Un dios ha entrado en su campamento,” dijeron. “¡Ay de nosotros! Nada como esto ha sucedido antes.
+los filisteos tuvieron miedo. “Un dios ha entrado en su campamento,” dijeron. “¡Ay de nosotros! Nada como esto ha sucedido antes.
 
 ## 1 Samuel 4:8
 
@@ -73,8 +73,8 @@ Elí tenía noventa y ocho años, y sus ojos eran tan débiles que no podía ver
 
 ## 1 Samuel 4:16
 
-El hombre dijo a Elí, “He venido desde la línea de batalla —hoy he huido de ella.”  
- Elí preguntó, “¿Qué ha sucedido, hijo mío—?”
+El hombre dijo a Elí, “He venido desde la línea de batalla —hoy he huido de ella.  
+” Elí preguntó, “¿Qué ha sucedido, hijo mío?”
 
 ## 1 Samuel 4:17
 

@@ -25,7 +25,7 @@ Algunos de los hijos de Judá y Benjamín residían en Jerusalén.
 
 ## Nehemías 11:5
 
-> y Maaseías hijo de Baruc, hijo de Col-Hoze, hijo de Hazaías, hijo de Adaías,
+> y Maasías hijo de Baruc, hijo de Col-Hoze, hijo de Hazaías, hijo de Adaías,
 >  hijo de Joiarib, hijo de Zacarías, descendiente de Sela.
 
 ## Nehemías 11:6
@@ -36,7 +36,7 @@ Algunos de los hijos de Judá y Benjamín residían en Jerusalén.
 
 ## Nehemías 11:7
 
-De los hijos de Benjamín: Salú hijo de Mesulam, hijo de Joed, hijo de Pedaías, hijo de Colaías, hijo de Maaseías, hijo de Itiel, hijo de Jesaías;
+De los hijos de Benjamín: Salú hijo de Mesulam, hijo de Joed, hijo de Pedaías, hijo de Colaías, hijo de Maasías, hijo de Itiel, hijo de Jesaías;
 
 ## Nehemías 11:8
 
@@ -56,15 +56,15 @@ Seraías hijo de Hilcías, hijo de Mesulam, hijo de Sadoc, hijo de Meraiot, hijo
 
 ## Nehemías 11:12
 
-y sus asociados que realizaban el trabajo del templo —822 hombres; Adaías hijo de Jeroham, hijo de Pelalías, hijo de Amzi, hijo de Zacarías, hijo de Pasur, hijo de Malquías,—
+y sus asociados que realizaban el trabajo del templo: 822 hombres; Adaías hijo de Jeroham, hijo de Pelalías, hijo de Amzi, hijo de Zacarías, hijo de Pasur, hijo de Malquías,
 
 ## Nehemías 11:13
 
-y sus asociados, jefes de familias —242 hombres; Amasai hijo de Azareel, hijo de Ahzai, hijo de Mesillemot, hijo de Imer,—
+y sus asociados, jefes de familias: 242 hombres; Amasai hijo de Azareel, hijo de Ahzai, hijo de Mesillemot, hijo de Imer,
 
 ## Nehemías 11:14
 
-y sus hermanos, guerreros valientes —128. Su oficial principal era Zabdiel hijo de Haggedolim—.
+y sus hermanos, guerreros valientes: 128. Su oficial principal era Zabdiel hijo de Haggedolim.
 
 ## Nehemías 11:15
 
@@ -76,7 +76,7 @@ Sabetai y Jozabad, líderes entre los levitas, que eran responsables del trabajo
 
 ## Nehemías 11:17
 
-Matanías hijo de Mica, hijo de Zabdi, hijo de Asaf, el líder que comenzaba la acción de gracias en oración; Bakbuquías, segundo entre sus hermanos; y Abda hijo de Samúa, hijo de Galal, hijo de Jedutún.
+Matanías hijo de Mica, hijo de Zabdi, hijo de Asaf, el líder que comenzaba la acción de gracias en oración; Bacbuquías, segundo entre sus hermanos; y Abda hijo de Samúa, hijo de Galal, hijo de Jedutún.
 
 ## Nehemías 11:18
 
@@ -120,7 +120,7 @@ en Hazar Sual, Beerseba y sus asentamientos,
 
 ## Nehemías 11:28
 
-en Ziclag, Meconá y sus asentamientos,
+en Siclag, Meconá y sus asentamientos,
 
 ## Nehemías 11:29
 

@@ -68,21 +68,21 @@ Vosotros sois la luz del mundo. Una ciudad situada en una colina no se puede ocu
 
 ## Mateo 5:15
 
-Ni se enciende una lámpara y se pone debajo de un cesto, sino sobre el candelero, y alumbra a todos los que están en la casa.
+Tampoco se enciende una lámpara para ponerla debajo de un cesto, sino sobre un candelabro, y así alumbra a todos los que están en la casa.
 
 ## Mateo 5:16
 
-De la misma manera, que vuestra luz brille delante de los demás, para que vean vuestras buenas obras y glorifiquen a vuestro Padre que está en los cielos.
+Así también, que vuestra luz brille ante los demás, para que vean el bien que hacéis y den gloria a vuestro Padre que está en el cielo.
 
 ---
 
 ## Mateo 5:17
 
-No penséis que he venido para abolir la Ley o los Profetas; no he venido para abolirlos, sino para cumplirlos.
+No penséis que he venido a anular la Ley o los Profetas; no he venido a anularlos, sino a darles pleno cumplimiento.
 
 ## Mateo 5:18
 
-Porque en verdad os digo que, hasta que pasen el cielo y la tierra, ni la letra más pequeña, ni una tilde desaparecerán de la Ley hasta que todo se haya cumplido.
+Porque en verdad os digo que, mientras existan el cielo y la tierra, no desaparecerá de la Ley ni la letra más pequeña ni el más mínimo trazo, hasta que todo se haya realizado.
 
 ## Mateo 5:19
 

@@ -2,11 +2,11 @@
 
 ## 1 Corintios 1:1
 
-Pablo, llamado a ser apóstol de Jesucristo por la voluntad de Dios, y Sóstenes nuestro hermano,
+Pablo, nombrado apóstol de Jesucristo porque así lo quiso Dios, y nuestro hermano Sóstenes,
 
 ## 1 Corintios 1:2
 
-A la iglesia de Dios que está en Corinto, a los que han sido santificados en Cristo Jesús, llamados a ser santos, con todos los que en cualquier lugar invocan el nombre de nuestro Señor Jesucristo, Señor de ellos y nuestro:
+A la iglesia de Dios en Corinto, a quienes Dios ha hecho santos en Cristo Jesús y ha llamado a ser su pueblo santo, junto con todos los que en cualquier lugar invocan el nombre de nuestro Señor Jesucristo, que es Señor de ellos y también nuestro:
 
 ## 1 Corintios 1:3
 
@@ -14,15 +14,15 @@ Que recibáis gracia y paz de Dios nuestro Padre y del Señor Jesucristo.
 
 ## 1 Corintios 1:4
 
-Siempre doy gracias a mi Dios por vosotros, por la gracia de Dios que os fue dada en Cristo Jesús,
+Siempre doy gracias a mi Dios por vosotros, por la gracia que él os ha dado en Cristo Jesús,
 
 ## 1 Corintios 1:5
 
-Que en todo fuisteis enriquecidos en Él, en toda palabra y en todo conocimiento,
+Porque en él os ha hecho ricos en todo sentido, en toda forma de hablar y en todo conocimiento,
 
 ## 1 Corintios 1:6
 
-Así como el testimonio acerca de Cristo fue confirmado entre vosotros,
+Ya que el mensaje acerca de Cristo se ha afianzado entre vosotros,
 
 ## 1 Corintios 1:7
 
@@ -30,7 +30,7 @@ De modo que no os falta ningún don espiritual mientras esperáis con ansias la 
 
 ## 1 Corintios 1:8
 
-El cual también os sostendrá hasta el fin, irreprochables en el día de nuestro Señor Jesucristo.
+Él os mantendrá firmes hasta el final, para que nadie pueda reprocharos nada en el día de nuestro Señor Jesucristo.
 
 ## 1 Corintios 1:9
 
@@ -38,11 +38,11 @@ Dios, que es fiel, os ha llamado a la comunión con su Hijo, Jesucristo nuestro 
 
 ## 1 Corintios 1:10
 
-Os ruego, hermanos y hermanas, por el nombre de nuestro Señor Jesucristo, que todos estéis de acuerdo y que no haya divisiones entre vosotros, sino que estéis perfectamente unidos en una misma mente y en un mismo parecer.
+Hermanos y hermanas, os pido en el nombre de nuestro Señor Jesucristo que todos estéis de acuerdo y que no haya divisiones entre vosotros, sino que estéis bien unidos, con una misma manera de pensar y un mismo criterio.
 
 ## 1 Corintios 1:11
 
-Porque he sido informado acerca de vosotros, hermanos y hermanas míos, por los de Cloe, que hay contiendas entre vosotros.
+Porque los de la casa de Cloe me han contado, hermanos y hermanas míos, que hay peleas entre vosotros.
 
 ## 1 Corintios 1:12
 
@@ -66,7 +66,7 @@ Pero también bauticé a la casa de Estéfanas; más allá de eso, no sé si bau
 
 ## 1 Corintios 1:17
 
-Porque Cristo no me envió a bautizar, sino a predicar el evangelio, no con sabiduría elocuente, para que la cruz de Cristo no se haga vana.
+Porque Cristo no me envió a bautizar, sino a anunciar el evangelio, y no con discursos llenos de sabiduría humana, para que la cruz de Cristo no pierda su poder.
 
 ## 1 Corintios 1:18
 
@@ -74,22 +74,22 @@ Porque el mensaje de la cruz parece una necedad para los que se pierden, pero pa
 
 ## 1 Corintios 1:19
 
-Porque la escritura dice:
+Porque la Escritura dice:
 
->  “Destruiré la sabiduría de los sabios,  
->  Y el entendimiento de los entendidos desecharé.”
+>  “Acabaré con la sabiduría de los sabios,  
+>  y frustraré la inteligencia de los inteligentes.”
 
 ## 1 Corintios 1:20
 
-¿Dónde está el sabio? ¿Dónde está el escriba? ¿Dónde está el disputador de este siglo? ¿No ha hecho Dios que la sabiduría del mundo sea necedad?
+¿Dónde queda el sabio? ¿Dónde el maestro de la ley? ¿Dónde el que sabe discutir en esta época? ¿No ha demostrado Dios que la sabiduría del mundo es una tontería?
 
 ## 1 Corintios 1:21
 
-Porque ya que en la sabiduría de Dios, el mundo no conoció a Dios mediante su sabiduría, agradó a Dios salvar a los creyentes por la necedad de la predicación.
+Porque, ya que en la sabiduría de Dios el mundo no llegó a conocerlo por medio de su propia sabiduría, Dios quiso salvar a los que creen por medio de un mensaje que parece una tontería.
 
 ## 1 Corintios 1:22
 
-Porque en verdad los judíos piden señales, y los griegos buscan sabiduría;
+Los judíos piden señales milagrosas y los griegos van tras la sabiduría;
 
 ## 1 Corintios 1:23
 
@@ -105,15 +105,15 @@ Porque lo que parece necedad en Dios es más sabio que la sabiduría humana, y l
 
 ## 1 Corintios 1:26
 
-Considerad, hermanos y hermanas, vuestro llamamiento, que no hay muchos sabios según la carne, ni muchos poderosos, ni muchos nobles;
+Fijaos, hermanos y hermanas, en cómo erais cuando Dios os llamó: no había entre vosotros muchos sabios según los criterios humanos, ni muchos poderosos, ni muchos de familias importantes;
 
 ## 1 Corintios 1:27
 
-Sino que Dios ha escogido lo necio del mundo para avergonzar a los sabios, y Dios ha escogido lo débil del mundo para avergonzar a lo fuerte,
+Al contrario, Dios escogió lo que el mundo tiene por tonto para dejar en vergüenza a los sabios, y escogió lo que el mundo tiene por débil para dejar en vergüenza a los fuertes,
 
 ## 1 Corintios 1:28
 
-Y lo insignificante del mundo y lo despreciado Dios ha escogido, lo que no es, para anular lo que es,
+Y escogió lo que en el mundo no cuenta y lo que es despreciado, lo que no es nada, para reducir a nada lo que sí es algo,
 
 ## 1 Corintios 1:29
 
@@ -125,4 +125,4 @@ Pero es por Él que estáis en Cristo Jesús, quien se convirtió para nosotros 
 
 ## 1 Corintios 1:31
 
-Por tanto, como dice la escritura: “El que se gloría, gloríese en el Señor.”
+Así que, como dice la Escritura: “Si alguien quiere sentirse orgulloso, que se sienta orgulloso del Señor.”

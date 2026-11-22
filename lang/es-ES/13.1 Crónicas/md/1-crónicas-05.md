@@ -78,7 +78,7 @@ Durante los días de Saúl, hicieron guerra con los agarenos,
 
 Los descendientes de Gad residían frente a ellos en la tierra de Basán,
 
->  extendiéndose hasta Salecah.
+>  extendiéndose hasta Salca.
 
 ---
 
@@ -122,7 +122,7 @@ Ahi, el hijo de Abdiel, el hijo de Guni,
 
 ## 1 Crónicas 5:16
 
-Residian en Galaad, en Basán y sus pueblos,  
+Residían en Galaad, en Basán y sus pueblos,  
  y en todas las tierras de pastoreo de Sarón, alcanzando sus fronteras.
 
 ---
@@ -140,8 +140,8 @@ Todos estos fueron registrados en las genealogías durante los días de Jotam, r
 Los descendientes de Rubén, los gaditas y la media tribu de Manasés —compuestos por hombres valientes,
 
 >  hombres que llevaban escudo y espada,  
->  y tensaban el arco, y estaban entrenados para la batalla— sumaban 44,  
-> 760, que salieron para el servicio militar.
+>  y tensaban el arco, y estaban entrenados para la batalla— sumaban 44 760,  
+>  que salieron para el servicio militar.
 
 ---
 

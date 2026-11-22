@@ -22,7 +22,7 @@ En el año dieciocho del reinado del rey Josías,
 
 ## 2 Reyes 22:4
 
-“Sube a Hilcías el sumo sacerdote,  
+“Sube adonde está Hilcías el sumo sacerdote,  
  para que cuente el dinero traído a la casa del Señor,  
  que los porteros han recogido del pueblo.
 
@@ -51,14 +51,14 @@ Hilcías el sumo sacerdote informó a Safán el escriba,
 
 ## 2 Reyes 22:9
 
-Y Safán el escriba vino al rey y le trajo palabra al rey, diciendo,  
+Y Safán el escriba vino al rey y le informó, diciendo,  
  “Tus siervos han vaciado el dinero que se halló en la casa,  
  y lo han entregado a los que tienen a su cargo la obra de la casa del Señor.”
 
 ## 2 Reyes 22:10
 
 Además, Safán el escriba informó al rey, diciendo,  
- “Hilkías el sacerdote me ha dado un libro.”  
+ “Hilcías el sacerdote me ha dado un libro.”  
  Y Safán lo leyó delante del rey.
 
 ## 2 Reyes 22:11
@@ -86,7 +86,7 @@ Entonces el rey ordenó a Hilcías el sacerdote,
 
 Entonces Hilcías el sacerdote, Ahicam, Acbor,  
  Safán y Asaías fueron a Huldá la profetisa, esposa de Salum hijo de Ticva, hijo de Harhas,  
- guardián del vestuario (ahora ella vivía en Jerusalén en el Segundo Barrio),  
+ guardián del vestuario (ella vivía en Jerusalén en el Segundo Barrio),  
  y hablaron con ella.
 
 ## 2 Reyes 22:15

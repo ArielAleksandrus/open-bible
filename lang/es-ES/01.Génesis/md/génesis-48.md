@@ -31,7 +31,7 @@ José dijo a su padre, “Son mis hijos, que Dios me ha dado aquí.” Entonces 
 Ahora los ojos de Israel fallaban debido a la vejez, y apenas podía ver. Así que José los acercó, y su padre los besó y abrazó.
 
 ## Génesis 48:11
-Israel comentó a José, “Nunca esperé volver a ver tu rostro, y ahora Dios me ha permitido ver también a tus hijos.”
+Israel comentó a José, “Nunca esperé volver a ver tu rostro, y ahora Dios me ha concedido ver también a tus hijos.”
 
 ## Génesis 48:12
 Entonces José los apartó de las rodillas de Israel y se inclinó con su rostro hacia el suelo.

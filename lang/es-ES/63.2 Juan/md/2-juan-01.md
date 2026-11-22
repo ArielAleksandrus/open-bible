@@ -2,8 +2,8 @@
 
 ## 2 Juan 1:1
 
-Del anciano,  
- A la señora elegida y a sus hijos, a quienes amo verdaderamente; y no solo yo, sino también todos los que han llegado a conocer la verdad,
+De parte del anciano,  
+ a la señora elegida y a sus hijos, a quienes amo de verdad; y no solo yo, sino también todos los que han llegado a conocer la verdad,
 
 ## 2 Juan 1:2
 
@@ -15,40 +15,40 @@ La gracia, la misericordia y la paz son nuestras de parte de Dios el Padre y de 
 
 ## 2 Juan 1:4
 
-Me alegré mucho al descubrir que algunos de tus hijos viven en la verdad, tal como el Padre nos ha mandado.
+Me ha alegrado muchísimo saber que algunos de tus hijos viven de acuerdo con la verdad, tal como el Padre nos lo ha mandado.
 
 ## 2 Juan 1:5
 
-Ahora te ruego, señora, no como si te escribiera un nuevo mandamiento, sino uno que hemos tenido desde el principio, que nos amemos unos a otros.
+Y ahora, señora, te pido algo, no como si te escribiera un mandamiento nuevo, sino el mismo que hemos tenido desde el principio: que nos amemos unos a otros.
 
 ## 2 Juan 1:6
 
-Y este es el amor, que vivamos conforme a Sus mandamientos. Este es el mandamiento, tal como lo habéis oído desde el principio, que andéis en él.
+Y el amor consiste en vivir según Sus mandamientos. Este es el mandamiento que habéis oído desde el principio: que viváis en el amor.
 
 ## 2 Juan 1:7
 
-Porque muchos engañadores han salido al mundo, aquellos que no reconocen que Jesucristo ha venido en carne. Tal persona es el engañador y el anticristo.
+Porque han salido por el mundo muchos engañadores, que no reconocen que Jesucristo vino como hombre de carne y hueso. El que así piensa es el engañador y el anticristo.
 
 ## 2 Juan 1:8
 
-Cuidaos, para que no perdáis lo que hemos logrado, sino que recibáis una recompensa completa.
+Tened cuidado para no perder lo que hemos conseguido con nuestro trabajo, sino para que recibáis la recompensa completa.
 
 ## 2 Juan 1:9
 
-Cualquiera que va más allá y no permanece en la enseñanza de Cristo no tiene a Dios; el que permanece en la enseñanza tiene tanto al Padre como al Hijo.
+Cualquiera que se pasa de la raya y no se mantiene fiel a la enseñanza de Cristo no tiene a Dios; el que se mantiene fiel a esa enseñanza tiene al Padre y también al Hijo.
 
 ## 2 Juan 1:10
 
-Si alguien viene a vosotros y no trae esta enseñanza, no le recibáis en casa, ni le saludéis;
+Si alguien va a vuestra casa y no lleva esta enseñanza, no lo recibáis ni le deis la bienvenida;
 
 ## 2 Juan 1:11
 
-porque el que le saluda participa en sus malas obras.
+porque el que le da la bienvenida se hace cómplice de sus malas obras.
 
 ## 2 Juan 1:12
 
-Aunque tengo muchas cosas que escribiros, prefiero no hacerlo con papel y tinta; pero espero visitaros y hablar cara a cara, para que vuestro gozo sea completo.
+Tengo muchas cosas que deciros, pero prefiero no hacerlo por carta; espero ir a veros y hablar con vosotros en persona, para que vuestra alegría sea completa.
 
 ## 2 Juan 1:13
 
-Los hijos de tu hermana elegida te envían saludos.
+Te mandan saludos los hijos de tu hermana, la elegida.

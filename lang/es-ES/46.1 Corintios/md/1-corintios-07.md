@@ -86,7 +86,7 @@ Cada persona debe permanecer en el estado en el que fue llamada.
 
 ## 1 Corintios 7:22
 
-Porque el que fue llamado en el Señor siendo esclavo es la persona libre del Señor; de manera similar, el que fue llamado siendo libre es siervo de Cristo.
+Porque el que fue llamado en el Señor siendo esclavo es liberto del Señor; de manera similar, el que fue llamado siendo libre es siervo de Cristo.
 
 ## 1 Corintios 7:23
 
@@ -154,7 +154,7 @@ Así que, el que da a su prometida en matrimonio hace bien, y el que no la da en
 
 ## 1 Corintios 7:39
 
-Una esposa está comprometida con su marido mientras él vive; pero si su marido fallece, es libre de casarse con quien desee, solo en el Señor.
+Una esposa está ligada a su marido mientras él vive; pero si su marido fallece, es libre de casarse con quien desee, solo en el Señor.
 
 ## 1 Corintios 7:40
 

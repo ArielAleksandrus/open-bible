@@ -19,7 +19,7 @@ El Señor es exaltado, porque Él reside en lo alto; ha llenado a Sion de justic
 Él será la estabilidad de tus tiempos, una riqueza de salvación, sabiduría y conocimiento; el temor del Señor es el tesoro.
 
 ## Isaías 33:7
-He aquí, sus valientes claman en las calles; los mensajeros de paz lloran amargamente.
+Mirad, sus valientes piden auxilio a gritos por las calles; los que fueron a negociar la paz lloran amargamente.
 
 ## Isaías 33:8
 Las carreteras están desoladas, los viajeros han cesado. El pacto está roto, las ciudades son despreciadas, y no hay consideración por la humanidad.
@@ -61,10 +61,10 @@ No verás más a un pueblo feroz, un pueblo de habla ininteligible, cuyo lenguaj
 Mira a Sion, la ciudad de nuestras festividades; tus ojos verán Jerusalén, una morada pacífica, una tienda que no será movida; sus estacas nunca serán arrancadas, ni se romperá ninguna de sus cuerdas.
 
 ## Isaías 33:21
-Allí el Señor será nuestro majestuoso, un lugar de ríos anchos y corrientes, donde no irá galera con remos, ni pasará por allí ningún barco poderoso.
+Allí el Señor será majestuoso para nosotros, un lugar de ríos anchos y corrientes, donde no irá galera con remos, ni pasará por allí ningún barco poderoso.
 
 ## Isaías 33:22
-Porque el Señor es nuestro juez, el Señor es nuestro legislador, el Señor es nuestro rey; él nos salvará.
+Porque el Señor es quien nos juzga, el Señor es quien nos da leyes, el Señor es nuestro rey; Él nos salvará.
 
 ## Isaías 33:23
 Tu aparejo cuelga flojo; no puede sostener el mástil firme, ni extender la vela. Entonces se dividirá una abundancia de despojos, y hasta los cojos llevarán botín.

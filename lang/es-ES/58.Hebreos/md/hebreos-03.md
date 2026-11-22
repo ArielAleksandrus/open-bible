@@ -2,7 +2,7 @@
 
 ## Hebreos 3:1
 
-Por lo tanto, santos hermanos y hermanas, participantes en el llamamiento celestial, centren sus pensamientos en Jesús, el Apóstol y Sumo Sacerdote de nuestra confesión.
+Por lo tanto, santos hermanos y hermanas, participantes en el llamamiento celestial, centrad vuestros pensamientos en Jesús, el Apóstol y Sumo Sacerdote de nuestra confesión.
 
 ## Hebreos 3:2
 
@@ -52,11 +52,11 @@ donde vuestros antepasados me probaron y tentaron, y vieron mis obras durante cu
 
 ## Hebreos 3:12
 
-Cuídense, hermanos y hermanas, de que ninguno de ustedes tenga un corazón malo e incrédulo que se aparte del Dios vivo.
+Hermanos y hermanas, tened cuidado de que ninguno de vosotros tenga un corazón malo y sin fe que lo lleve a apartarse del Dios vivo.
 
 ## Hebreos 3:13
 
-Sino anímense unos a otros cada día, mientras se llame “Hoy”, para que ninguno de ustedes se endurezca por el engaño del pecado.
+Antes bien, animaos unos a otros cada día, mientras se llame “Hoy”, para que ninguno de vosotros se endurezca por el engaño del pecado.
 
 ## Hebreos 3:14
 

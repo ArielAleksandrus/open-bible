@@ -10,7 +10,7 @@ Envió mensajeros a la ciudad a Acab, rey de Israel, diciendo,
 
 ## 1 Reyes 20:3
 
-“Así dice Ben-adad: ‘Tu plata y tu oro son míos. Lo mejor de tus esposas e hijos también me pertenecen.’”
+“Así dice Ben-adad: ‘Tu plata y tu oro son míos. Lo mejor de tus esposas e hijos también me pertenece.’”
 
 ## 1 Reyes 20:4
 
@@ -28,7 +28,7 @@ Pero ahora enviaré a mis siervos a ti mañana a esta hora, y registrarán tu ca
 
 ## 1 Reyes 20:7
 
-Entonces el rey de Israel convocó a todos los ancianos del país y dijo: “Por favor, notad cómo este hombre busca problemas. Envió por mis esposas, mis hijos, mi plata y mi oro, y no se lo negué.”
+Entonces el rey de Israel convocó a todos los ancianos del país y dijo: “Mirad cómo este hombre busca problemas. Envió por mis esposas, mis hijos, mi plata y mi oro, y no se lo negué.”
 
 ## 1 Reyes 20:8
 
@@ -80,7 +80,7 @@ Salieron al mediodía, mientras Ben-adad y los treinta y dos reyes que estaban c
 ## 1 Reyes 20:17
 
 Los jóvenes oficiales de los gobernadores de distrito salieron primero.  
- Ben-adad envió exploradores, quienes informaron: “Hombres están avanzando desde Samaria.”
+ Ben-adad envió exploradores, quienes informaron: “Unos hombres avanzan desde Samaria.”
 
 ## 1 Reyes 20:18
 
@@ -147,11 +147,11 @@ Entonces un hombre de Dios vino y dijo al rey de Israel,
 
 Acamparon uno frente al otro durante siete días.  
  En el séptimo día, se enfrentaron en batalla,  
- y los israelitas derribaron a 100,000 soldados de infantería de los arameos en un solo día.
+ y los israelitas derribaron a 100 000 soldados de infantería de los arameos en un solo día.
 
 ## 1 Reyes 20:30
 
-El resto huyó a la ciudad de Afec, donde el muro se derrumbó sobre 27,000 de ellos.  
+El resto huyó a la ciudad de Afec, donde el muro se derrumbó sobre 27 000 de ellos.  
  Ben-adad huyó y se escondió en una habitación interior dentro de la ciudad.
 
 ## 1 Reyes 20:31
@@ -184,7 +184,7 @@ Ben-adad dijo: “Devolveré las ciudades que mi padre tomó de tu padre.
 
 ## 1 Reyes 20:35
 
-Ahora un cierto hombre de los hijos de los profetas dijo a su vecino por la palabra del Señor,  
+Entonces cierto hombre de los hijos de los profetas dijo a su vecino por la palabra del Señor,  
  “Hiéreme, por favor.”  
  Pero el hombre se negó a herirlo.
 
@@ -207,9 +207,9 @@ Entonces el profeta fue y esperó al rey junto al camino,
 
 ## 1 Reyes 20:39
 
-Cuando el rey pasó, él clamó a él,  
+Cuando el rey pasó, le gritó:  
  “Tu siervo fue al medio de la batalla,  
- y alguien se desvió y trajo a un hombre a mí y dijo,  
+ y alguien se desvió y me trajo a un hombre y dijo,  
  ‘Guarda a este hombre; si falta, será tu vida por su vida,  
  o de lo contrario pagarás un talento de plata.’
 

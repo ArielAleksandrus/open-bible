@@ -16,7 +16,7 @@ a preguntarle: “¿Eres tú el que ha de venir, o debemos esperar a otro?”
 
 ## Mateo 11:4
 
-Jesús respondió: “Vayan y cuenten a Juan lo que oyen y ven:
+Jesús respondió: “Id y contad a Juan lo que oís y veis:
 
 ## Mateo 11:5
 
@@ -42,15 +42,15 @@ Pero ¿qué salisteis a ver? ¿Un profeta? Sí, os digo, y más que un profeta.
 
 ## Mateo 11:10
 
-Este es de quien está escrito: He aquí, envío mi mensajero delante de ti, quien preparará tu camino delante de ti.’
+Este es de quien está escrito: ‘He aquí, envío mi mensajero delante de ti, quien preparará tu camino delante de ti.’
 
 ## Mateo 11:11
 
-En verdad os digo, entre los nacidos de mujer no ha surgido nadie mayor que Juan el Bautista; sin embargo, el más pequeño en el reino de los cielos es mayor que él.
+En verdad os digo que, de todos los que han nacido de mujer, no ha aparecido nadie más grande que Juan el Bautista; y aun así, el más pequeño en el reino de los cielos es más grande que él.
 
 ## Mateo 11:12
 
-Desde los días de Juan el Bautista hasta ahora, el reino de los cielos ha sido sometido a violencia, y los violentos lo arrebatan.
+Desde los días de Juan el Bautista hasta ahora, el reino de los cielos es atacado con violencia, y los violentos se apoderan de él por la fuerza.
 
 ## Mateo 11:13
 
@@ -109,11 +109,11 @@ Pero os digo que será más tolerable para Sodoma en el día del juicio que para
 
 ## Mateo 11:25
 
-En ese momento Jesús dijo: “Te alabo, Padre, Señor del cielo y de la tierra, porque has ocultado estas cosas a los sabios e inteligentes, y las has revelado a los niños.
+En ese momento Jesús dijo: “Padre, Señor del cielo y de la tierra, te alabo porque escondiste estas cosas a los sabios e instruidos, y se las mostraste a los niños pequeños.
 
 ## Mateo 11:26
 
-Sí, Padre, porque así te agradó.
+Sí, Padre, porque eso es lo que a ti te agradó.
 
 ## Mateo 11:27
 
@@ -123,12 +123,12 @@ Todas las cosas me han sido entregadas por mi Padre. Nadie conoce al Hijo sino e
 
 ## Mateo 11:28
 
-“Venid a mí, todos los que estáis cansados y cargados, y yo os daré descanso.
+“Venid a mí todos los que estáis agotados y lleváis cargas pesadas, y yo os daré descanso.
 
 ## Mateo 11:29
 
-Tomad mi yugo sobre vosotros y aprended de mí, porque soy manso y humilde de corazón, y hallaréis descanso para vuestras almas.
+Cargad con mi yugo y aprended de mí, que soy apacible y de corazón humilde, y encontraréis descanso para vuestras almas.
 
 ## Mateo 11:30
 
-Porque mi yugo es fácil, mi carga es ligera.”
+Porque mi yugo es suave y mi carga es liviana.”

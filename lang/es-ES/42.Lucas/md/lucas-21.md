@@ -14,7 +14,7 @@ Y dijo: “En verdad os digo que esta viuda pobre ha echado más que todos los d
 
 ## Lucas 21:4
 
-porque todos ellos dieron de lo que les sobraba, pero ella, de su pobreza, echó todo lo que tenía para vivir.”
+porque todos ellos dieron de su abundancia, pero ella, en su pobreza, ha echado todo lo que tenía para vivir.”
 
 ---
 
@@ -42,7 +42,7 @@ Cuando oigáis de guerras y revueltas, no os alarméis. Estas cosas deben sucede
 
 ## Lucas 21:10
 
-Continuó, “Nación se levantará contra nación, y reino contra reino.
+Continuó, “Las naciones se levantarán unas contra otras, y los reinos se enfrentarán entre sí.
 
 ## Lucas 21:11
 
@@ -80,7 +80,7 @@ Sin embargo, no se perderá ni un solo cabello de vuestra cabeza.
 
 ## Lucas 21:19
 
-Con vuestra perseverancia ganaréis vuestras almas.
+Si os mantenéis firmes, pondréis a salvo vuestras almas.
 
 ---
 
@@ -112,7 +112,7 @@ Caerán a filo de espada y serán llevados cautivos a todas las naciones. Jerusa
 
 ## Lucas 21:26
 
-La gente se desmayará de terror, aprensiva por lo que vendrá sobre el mundo, porque los poderes de los cielos serán sacudidos.
+La gente se desmayará de terror, temerosa de lo que vendrá sobre el mundo, porque los poderes de los cielos serán sacudidos.
 
 ## Lucas 21:27
 
@@ -120,13 +120,13 @@ En ese momento, verán al Hijo del Hombre viniendo en una nube con poder y gran 
 
 ## Lucas 21:28
 
-Cuando estas cosas comiencen a suceder, levantad y alzad vuestras cabezas, porque vuestra redención está cerca.”
+Cuando empiece a pasar todo esto, poneos de pie y levantad la cabeza, porque ya está cerca vuestra redención.”
 
 ---
 
 ## Lucas 21:29
 
-Les compartió esta parábola: “Observad la higuera y todos los árboles.
+Les contó esta parábola: “Observad la higuera y todos los árboles.
 
 ## Lucas 21:30
 
@@ -148,7 +148,7 @@ El cielo y la tierra pasarán, pero mis palabras nunca pasarán.
 
 ## Lucas 21:34
 
-“Cuidaos, o vuestros corazones se verán agobiados por el libertinaje, la embriaguez y las preocupaciones de la vida, y ese día os sorprenderá de repente como una trampa.
+“Cuidaos, no sea que vuestros corazones se vean agobiados por el libertinaje, la embriaguez y las preocupaciones de la vida, y ese día os sorprenda de repente como una trampa.
 
 ## Lucas 21:35
 

@@ -20,7 +20,7 @@ Simón el Zelote, y Judas Iscariote, quien más tarde lo traicionó.
 
 ## Mateo 10:5
 
-A estos doce Jesús los envió con las siguientes instrucciones: “No vayáis por camino de gentiles, ni entréis en ciudad de samaritanos;
+Jesús envió a estos doce con estas instrucciones: “No toméis el camino que lleva a los gentiles ni entréis en ninguna ciudad de los samaritanos;
 
 ## Mateo 10:6
 
@@ -32,7 +32,7 @@ Y al ir, proclamad este mensaje: ‘El reino de los cielos está cerca.’
 
 ## Mateo 10:8
 
-Sanad a los enfermos, resucitad a los muertos, limpiad a los leprosos, expulsad demonios. De gracia habéis recibido, dad de gracia.
+Sanad a los enfermos, resucitad a los muertos, limpiad a los que tienen lepra, expulsad demonios. Gratis habéis recibido; dad también gratis.
 
 ## Mateo 10:9
 
@@ -68,7 +68,7 @@ En verdad os digo que el día del juicio será más tolerable para Sodoma y Gomo
 
 ## Mateo 10:16
 
-“He aquí, os envío como ovejas en medio de lobos; por tanto, sed astutos como serpientes e inocentes como palomas.
+“Mirad, os envío como ovejas en medio de lobos; por eso, sed sagaces como serpientes y sin malicia como palomas.
 
 ## Mateo 10:17
 
@@ -150,7 +150,7 @@ Pero a cualquiera que me niegue delante de los demás, yo también lo negaré de
 
 ## Mateo 10:34
 
-“No penséis que he venido a traer paz a la tierra; no he venido a traer paz, sino espada.
+“No creáis que vine a traer paz a la tierra; no vine a traer paz, sino espada.
 
 ## Mateo 10:35
 
@@ -167,11 +167,11 @@ Porque he venido a poner en conflicto a un hijo contra su padre,
 
 ## Mateo 10:37
 
-“El que ama a su padre o a su madre más que a mí, no es digno de mí; el que ama a su hijo o a su hija más que a mí, no es digno de mí.
+“Quien ama a su padre o a su madre más que a mí, no me merece; y quien ama a su hijo o a su hija más que a mí, no me merece.
 
 ## Mateo 10:38
 
-El que no toma su cruz y me sigue, no es digno de mí.
+Quien no carga con su cruz y me sigue, no merece estar conmigo.
 
 ## Mateo 10:39
 
@@ -181,11 +181,11 @@ El que busque preservar su vida, la perderá, y el que pierda su vida por mi cau
 
 ## Mateo 10:40
 
-“El que os recibe a vosotros, me recibe a mí, y el que me recibe a mí, recibe al que me envió.
+“Quien os recibe a vosotros me recibe a mí, y quien me recibe a mí recibe a aquel que me envió.
 
 ## Mateo 10:41
 
-El que recibe a un profeta porque es profeta, recibirá recompensa de profeta, y el que recibe a un justo porque es justo, recibirá recompensa de justo.
+Quien recibe a un profeta por ser profeta tendrá la recompensa que corresponde a un profeta, y quien recibe a un justo por ser justo tendrá la recompensa que corresponde a un justo.
 
 ## Mateo 10:42
 

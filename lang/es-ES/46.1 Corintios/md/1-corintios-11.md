@@ -18,7 +18,7 @@ Cualquier hombre que cubre su cabeza mientras ora o profetiza deshonra su cabeza
 
 ## 1 Corintios 11:5
 
-Pero cualquier mujer que ora o profetiza con su cabeza descubierta deshonra su cabeza, porque es como una cuya cabeza está rapada.
+Pero cualquier mujer que ora o profetiza con su cabeza descubierta deshonra su cabeza, porque es como si estuviera rapada.
 
 ## 1 Corintios 11:6
 
@@ -62,11 +62,11 @@ pero si una mujer tiene el cabello largo, es su gloria? Porque su cabello le es 
 
 ## 1 Corintios 11:16
 
-Pero si alguien desea ser argumentativo, no tenemos otra práctica, ni tampoco las iglesias de Dios.
+Pero si alguien quiere discutir, nosotros no tenemos otra costumbre, ni tampoco las iglesias de Dios.
 
 ## 1 Corintios 11:17
 
-Al dar esta siguiente instrucción, no puedo alabaros, porque vuestras reuniones hacen más daño que bien.
+Al daros la siguiente instrucción, no puedo alabaros, porque vuestras reuniones hacen más daño que bien.
 
 ## 1 Corintios 11:18
 
@@ -82,7 +82,7 @@ Cuando os reunís, no es realmente para comer la Cena del Señor,
 
 ## 1 Corintios 11:21
 
-porque cuando coméis, cada uno sigue adelante con su propia comida; uno queda hambriento mientras otro se embriaga.
+porque cuando coméis, cada uno se adelanta a tomar su propia comida; uno queda hambriento mientras otro se embriaga.
 
 ## 1 Corintios 11:22
 
@@ -122,7 +122,7 @@ Esta es la razón por la que muchos entre vosotros están débiles y enfermos, y
 
 ## 1 Corintios 11:31
 
-Pero si fuéramos más discernidos con respecto a nosotros mismos, no caeríamos bajo tal juicio.
+Pero si nos examináramos mejor a nosotros mismos, no caeríamos bajo tal juicio.
 
 ## 1 Corintios 11:32
 

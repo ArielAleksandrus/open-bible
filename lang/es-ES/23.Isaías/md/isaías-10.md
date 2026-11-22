@@ -2,11 +2,11 @@
 
 ## Isaías 10:1
 
-¡Ay de los que dictan leyes injustas y de los que continuamente escriben decretos dañinos,
+¡Ay de los que inventan leyes injustas y de los que no paran de escribir decretos que hacen daño,
 
 ## Isaías 10:2
 
-para negar justicia a los necesitados y robar a los pobres de mi pueblo de sus derechos, haciendo de las viudas su botín y saqueando a los huérfanos!
+para negar justicia a los necesitados y despojar de sus derechos a los pobres de mi pueblo, haciendo de las viudas su botín y saqueando a los huérfanos!
 
 ## Isaías 10:3
 
@@ -24,7 +24,7 @@ Todo lo que queda es agacharse entre los cautivos o caer entre los muertos. Sin 
 
 ## Isaías 10:6
 
-Lo envío contra una nación impía, y lo encargo contra el pueblo de mi ira, para capturar despojos y apoderarse del botín, y para pisotearlos como barro en las calles.
+Lo envío contra una nación impía, y lo mando contra el pueblo de mi ira, para capturar despojos y apoderarse del botín, y para pisotearlos como barro en las calles.
 
 ## Isaías 10:7
 
@@ -48,7 +48,7 @@ Como mi mano ha alcanzado los reinos de los ídolos, cuyas imágenes talladas er
 
 ## Isaías 10:12
 
-Cuando el Señor haya completado toda su obra contra el Monte Sión y Jerusalén, dirá: “Castigaré el fruto del corazón arrogante del rey de Asiria y la mirada orgullosa en sus ojos.”
+Cuando el Señor haya completado toda su obra contra el Monte Sion y Jerusalén, dirá: “Castigaré el fruto del corazón arrogante del rey de Asiria y la mirada orgullosa en sus ojos.”
 
 ## Isaías 10:13
 
@@ -56,7 +56,7 @@ Porque él ha dicho: “Con la fuerza de mi mano y con mi sabiduría he hecho es
 
 ## Isaías 10:14
 
-Mi mano alcanzó la riqueza de los pueblos como un nido, y como uno recoge huevos abandonados, recogí toda la tierra; ni uno aleteó un ala, abrió su pico, ni piado.”
+Mi mano alcanzó la riqueza de los pueblos como un nido, y como uno recoge huevos abandonados, recogí toda la tierra; ni uno aleteó un ala, abrió su pico, ni pió.”
 
 ## Isaías 10:15
 
@@ -98,7 +98,7 @@ El Señor, el Señor de los ejércitos, llevará a cabo la destrucción decretad
 
 ## Isaías 10:24
 
-Por lo tanto, esto es lo que dice el Señor, el Señor de los ejércitos: “Mi pueblo que habita en Sión, no temas al asirio, que te golpea con una vara y levanta su bastón contra ti, como lo hizo Egipto.
+Por lo tanto, esto es lo que dice el Señor, el Señor de los ejércitos: “Mi pueblo que habita en Sion, no temas al asirio, que te golpea con una vara y levanta su bastón contra ti, como lo hizo Egipto.
 
 ## Isaías 10:25
 
@@ -130,11 +130,11 @@ Madmena ha huido; el pueblo de Gebim ha encontrado refugio.
 
 ## Isaías 10:32
 
-Este mismo día se detendrán en Nob; agitan su puño al monte de la hija de Sión, la colina de Jerusalén.
+Este mismo día se detendrán en Nob; agitan su puño al monte de la hija de Sion, la colina de Jerusalén.
 
 ## Isaías 10:33
 
-He aquí, el Señor, el Señor de los ejércitos, cortará las ramas con gran poder; los árboles altos serán derribados, y los altivos serán abatidos.
+Mirad: el Señor, el Señor de los ejércitos, cortará las ramas con gran fuerza; los árboles más altos serán derribados, y los que se creen grandes serán abatidos.
 
 ## Isaías 10:34
 

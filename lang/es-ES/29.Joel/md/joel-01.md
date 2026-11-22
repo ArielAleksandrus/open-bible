@@ -47,7 +47,7 @@ La palabra del Señor vino a Joel, hijo de Petuel.
 
 ## Joel 1:9
 
-> Las ofrendas de grano y las libaciones han sido cortadas de la casa del Señor.
+> Las ofrendas de cereal y las libaciones han sido cortadas de la casa del Señor.
 >  Los sacerdotes están de luto,
 >  los que ministran delante del Señor.
 
@@ -57,7 +57,7 @@ La palabra del Señor vino a Joel, hijo de Petuel.
 >  la tierra llora;
 >  porque el grano está destruido,
 >  el vino nuevo se ha secado,
->  y el aceite de oliva falla.
+>  y el aceite de oliva se agota.
 
 ## Joel 1:11
 
@@ -80,7 +80,7 @@ La palabra del Señor vino a Joel, hijo de Petuel.
 >  gemid, los que ministráis en el altar.
 >  Venid, pasad la noche en cilicio,
 >  los que ministráis a mi Dios,
->  porque las ofrendas de grano y las libaciones se han retenido de la casa de vuestro Dios.
+>  porque las ofrendas de cereal y las libaciones se han retenido de la casa de vuestro Dios.
 
 ## Joel 1:14
 

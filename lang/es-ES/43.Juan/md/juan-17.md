@@ -10,7 +10,7 @@ Porque le has concedido autoridad sobre toda la humanidad, para que Él dé vida
 
 ## Juan 17:3
 
-Y esta es la vida eterna: que te conozcan a Ti, el único Dios verdadero, y a Jesucristo, a quien has enviado.
+Y la vida eterna consiste en esto: en conocerte a Ti, el único Dios verdadero, y a Jesucristo, a quien Tú has enviado.
 
 ## Juan 17:4
 
@@ -72,7 +72,7 @@ No pertenecen al mundo, como Yo no pertenezco al mundo.
 
 ## Juan 17:17
 
-Santifícalos en la verdad; Tu palabra es verdad.
+Hazlos santos por medio de la verdad; Tu palabra es la verdad.
 
 ## Juan 17:18
 
@@ -94,11 +94,11 @@ para que todos ellos sean uno, Padre, así como Tú estás en Mí y Yo en Ti. Qu
 
 ## Juan 17:22
 
-Les he dado la gloria que me diste, para que sean uno como Nosotros somos uno—
+Les he dado la gloria que me diste, para que sean uno como Nosotros somos uno:
 
 ## Juan 17:23
 
-Yo en ellos y Tú en Mí —para que sean llevados a la completa unidad. Entonces el mundo sabrá que Tú me enviaste y los has amado como me has amado a Mí—.
+Yo en ellos y Tú en Mí, para que sean llevados a la completa unidad. Entonces el mundo sabrá que Tú me enviaste y los has amado como me has amado a Mí.
 
 ---
 

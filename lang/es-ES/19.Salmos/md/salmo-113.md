@@ -6,17 +6,17 @@
 
 ---
 
->  Alabad, siervos del Señor,  
->  Alabad el nombre del Señor.
+>  Siervos del Señor, alabad;  
+>  alabad el nombre del Señor.
 
 ## Salmo 113:2
 
-> Sea honrado el nombre del Señor Desde este momento y para siempre.
+> Que el nombre del Señor reciba honra desde ahora y por todos los tiempos.
 
 ## Salmo 113:3
 
 > Desde el amanecer hasta el atardecer,  
->  El nombre del Señor es digno de alabanza.
+>  el nombre del Señor es digno de alabanza.
 
 ---
 
@@ -28,23 +28,23 @@
 ## Salmo 113:5
 
 > ¿Quién puede compararse con el Señor nuestro Dios,  
->  Que está sentado en lo alto,
+>  que está sentado en lo alto,
 
 ## Salmo 113:6
 
-> Que se humilla para contemplar Las cosas en el cielo y en la tierra?
+> que se inclina para mirar lo que pasa en el cielo y en la tierra?
 
 ---
 
 ## Salmo 113:7
 
-> Él levanta del polvo al pobre,  
->  Alza del muladar al necesitado,
+> Él saca al pobre del polvo,  
+>  levanta al necesitado del basurero,
 
 ## Salmo 113:8
 
 > Para colocarlos con príncipes,  
->  Con los líderes de su pueblo.
+>  con los líderes de su pueblo.
 
 ## Salmo 113:9
 

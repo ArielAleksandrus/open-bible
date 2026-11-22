@@ -28,7 +28,7 @@ Debajo de las alas de los querubines, parecía haber algo como manos humanas.
 Miré, y había cuatro ruedas junto a los querubines, una rueda junto a cada querubín; las ruedas brillaban como una piedra de Tarsis.
 
 ## Ezequiel 10:10
-En cuanto a su apariencia, los cuatro se veían iguales, como si una rueda estuviera dentro de otra rueda.
+En cuanto a su apariencia, las cuatro se veían iguales, como si una rueda estuviera dentro de otra rueda.
 
 ## Ezequiel 10:11
 Al moverse, iban en cualquiera de las cuatro direcciones sin girar al avanzar; se movían en la dirección que enfrentaban, sin girar.
@@ -37,7 +37,7 @@ Al moverse, iban en cualquiera de las cuatro direcciones sin girar al avanzar; s
 Sus cuerpos enteros, incluyendo sus espaldas, sus manos, sus alas, y las ruedas, estaban cubiertos de ojos por todas partes.
 
 ## Ezequiel 10:13
-Oí que las ruedas eran referidas como “las ruedas giratorias.”
+Oí que a las ruedas las llamaban “las ruedas giratorias.”
 
 ## Ezequiel 10:14
 Cada uno de los querubines tenía cuatro caras: la primera era la cara de un querubín, la segunda la cara de un humano, la tercera la cara de un león, y la cuarta la cara de un águila.

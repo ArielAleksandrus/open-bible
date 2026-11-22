@@ -11,21 +11,21 @@
 ## Salmo 17:2
 
 > Que mi vindicación venga de tu presencia;  
->  Que tus ojos miren con rectitud.
+>  que tus ojos miren con rectitud.
 
 ---
 
 ## Salmo 17:3
 
 > Has probado mi corazón;  
->  Me has visitado de noche;  
->  Me has examinado y no has hallado nada;  
+>  me has visitado de noche;  
+>  me has examinado y no has hallado nada;  
 >  Mi intención es no pecar con mi boca.
 
 ## Salmo 17:4
 
 > En cuanto a las obras de los hombres,  
->  Por la palabra de tus labios me he apartado de las sendas de los violentos.
+>  por la palabra de tus labios me he apartado de las sendas de los violentos.
 
 ## Salmo 17:5
 
@@ -46,20 +46,20 @@
 
 ## Salmo 17:8
 
-> Guárdame como a la niña de tus ojos;  
->  Escóndeme bajo la sombra de tus alas
+> Cuídame como a las pupilas de tus ojos;  
+>  protégeme bajo el abrigo de tus alas
 
 ## Salmo 17:9
 
 > De los malvados que me oprimen,  
->  De mis enemigos mortales que me rodean.
+>  de mis enemigos mortales que me rodean.
 
 ---
 
 ## Salmo 17:10
 
 > Han cerrado su insensible corazón,  
->  Con su boca hablan arrogantemente.
+>  con su boca hablan arrogantemente.
 
 ## Salmo 17:11
 
@@ -69,7 +69,7 @@
 ## Salmo 17:12
 
 > Es como un león ansioso de desgarrar,  
->  Y como un leoncillo que acecha en lugares secretos.
+>  y como un leoncillo que acecha en lugares secretos.
 
 ---
 
@@ -81,14 +81,14 @@
 ## Salmo 17:14
 
 > De los hombres con tu mano, Señor,  
->  De los hombres del mundo, cuya porción está en esta vida,  
->  Y cuyo vientre llenas con tu tesoro;  
->  Se sacian de hijos,  
->  Y dejan su abundancia a sus pequeños.
+>  de los hombres del mundo, cuya porción está en esta vida,  
+>  y cuyo vientre llenas con tu tesoro;  
+>  se sacian de hijos,  
+>  y dejan su abundancia a sus pequeños.
 
 ---
 
 ## Salmo 17:15
 
-> En cuanto a mí, contemplaré tu rostro en justicia;  
->  Me saciaré de tu semejanza cuando despierte.
+> Pero yo, por mi parte, veré tu rostro porque he obrado con justicia;  
+>  al despertar quedaré plenamente satisfecho con tu imagen.

@@ -42,7 +42,7 @@ Habla, juzga con justicia, y defiende los derechos de los pobres y necesitados.
 
 ## Proverbios 31:10
 
-Una esposa de carácter noble, ¿quién la encontrará? Su valor supera en mucho al de las rubíes.
+Una esposa de carácter noble, ¿quién la encontrará? Su valor supera en mucho al de los rubíes.
 
 ## Proverbios 31:11
 
@@ -98,7 +98,7 @@ Su esposo es respetado en las puertas de la ciudad, donde toma asiento entre los
 
 ## Proverbios 31:24
 
-Confecciona prendas de lino y las vende, y provee a los mercaderes con cinturones.
+Confecciona prendas de lino y las vende, y provee de cinturones a los mercaderes.
 
 ## Proverbios 31:25
 
@@ -106,7 +106,7 @@ La fuerza y la dignidad son su vestimenta, y puede reírse de los días venidero
 
 ## Proverbios 31:26
 
-Sus palabras están llenas de sabiduría, y enseña con bondad: siempre está presente en su lengua.
+Sus palabras están llenas de sabiduría, y la enseñanza de la bondad siempre está en su lengua.
 
 ## Proverbios 31:27
 

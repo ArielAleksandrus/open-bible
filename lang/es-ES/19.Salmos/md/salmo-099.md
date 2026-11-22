@@ -2,54 +2,54 @@
 
 ## Salmo 99:1
 
-> El Señor reina, tiemblen los pueblos;  
->  Él está entronizado sobre los querubines, tiemble la tierra.
+> ¡El Señor es Rey! Que tiemblen los pueblos;  
+>  Él tiene su trono sobre los querubines; que se estremezca la tierra.
 
 ## Salmo 99:2
 
-> El Señor es grande en Sion,  
->  Y Él es exaltado sobre todos los pueblos.
+> El Señor es grande en Sion;  
+>  está muy por encima de todos los pueblos.
 
 ## Salmo 99:3
 
-> Alaben su grande y temible nombre;  
->  Santo es Él.
+> Que alaben tu nombre, grande e imponente;  
+>  ¡Él es santo!
 
 ---
 
 ## Salmo 99:4
 
-> La fuerza del Rey ama la justicia;  
->  Has establecido la equidad;  
->  Has ejecutado justicia y rectitud en Jacob.
+> El Rey es poderoso y ama la justicia;  
+>  Tú has establecido lo que es recto;  
+>  Tú has hecho justicia y rectitud en Jacob.
 
 ## Salmo 99:5
 
-> Exaltad al Señor nuestro Dios Y adorad ante su escabel;  
->  Santo es Él.
+> Enalteced al Señor nuestro Dios y adorad ante el lugar donde Él apoya los pies;  
+>  ¡Él es santo!
 
 ---
 
 ## Salmo 99:6
 
-> Entre sus sacerdotes estaban Moisés y Aarón,  
->  Y Samuel entre los que invocaron su nombre;  
->  Clamaron al Señor, y Él les respondió.
+> Moisés y Aarón estaban entre sus sacerdotes,  
+>  y Samuel entre los que clamaban a su nombre;  
+>  llamaban al Señor, y Él les contestaba.
 
 ## Salmo 99:7
 
-> Les habló desde la columna de nube;  
->  Guardaron sus testimonios Y el estatuto que les dio.
+> Desde la columna de nube les hablaba;  
+>  ellos cumplían sus mandatos y las leyes que les dio.
 
 ---
 
 ## Salmo 99:8
 
-> Señor nuestro Dios, Tú les respondiste;  
->  Fuiste un Dios perdonador para ellos,  
->  Aunque vengador de sus obras.
+> Señor, Dios nuestro, Tú les contestabas;  
+>  para ellos fuiste un Dios que perdona,  
+>  aunque también castigaste sus malas acciones.
 
 ## Salmo 99:9
 
-> Exaltad al Señor nuestro Dios Y adorad en su santo monte,  
->  Porque santo es el Señor nuestro Dios.
+> Enalteced al Señor nuestro Dios y adorad en su monte santo,  
+>  porque el Señor nuestro Dios es santo.

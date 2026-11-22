@@ -2,7 +2,7 @@
 
 ## Jeremías 20:1
 
-Cuando Pasjur, el sacerdote, hijo de Imer, que era el principal supervisor en la casa del Señor, oyó a Jeremías profetizar estas cosas,
+Cuando Pasur, el sacerdote, hijo de Imer, que era el principal supervisor en la casa del Señor, oyó a Jeremías profetizar estas cosas,
 
 ## Jeremías 20:2
 
@@ -10,7 +10,7 @@ hizo que golpearan a Jeremías el profeta y lo pusieran en el cepo en la Puerta 
 
 ## Jeremías 20:3
 
-Al día siguiente, cuando Pasjur liberó a Jeremías del cepo, Jeremías le dijo: “El Señor no te llama Pasjur, sino Terror por Todas Partes.
+Al día siguiente, cuando Pasur liberó a Jeremías del cepo, Jeremías le dijo: “El Señor no te llama Pasur, sino Terror por Todas Partes.
 
 ## Jeremías 20:4
 
@@ -22,7 +22,7 @@ Entregaré toda la riqueza de esta ciudad, toda su producción y todos sus objet
 
 ## Jeremías 20:6
 
-Y tú, Pasjur, junto con todos los que habitan en tu casa, irás al exilio a Babilonia. Allí morirás y serás enterrado, tú y todos tus amigos a quienes has profetizado falsamente.’”
+Y tú, Pasur, junto con todos los que habitan en tu casa, irás al exilio a Babilonia. Allí morirás y serás enterrado, tú y todos tus amigos a quienes has profetizado falsamente.’”
 
 ---
 
@@ -40,7 +40,7 @@ Pero si digo: “No lo mencionaré ni hablaré más en su nombre”, su palabra 
 
 ## Jeremías 20:10
 
-Oigo a muchos susurrar, “¡Terror por todas partes! ¡Denúncienlo! ¡Denunciémoslo!” Todos mis amigos de confianza están esperando que resbale, diciendo: “Quizás sea engañado, y prevaleceremos sobre él y tomaremos nuestra venganza contra él.”
+Oigo a muchos susurrar, “¡Terror por todas partes! ¡Denunciadlo! ¡Denunciémoslo!” Todos mis amigos de confianza están esperando que resbale, diciendo: “Quizás sea engañado, y prevaleceremos sobre él y tomaremos nuestra venganza contra él.”
 
 ## Jeremías 20:11
 
@@ -52,7 +52,7 @@ Señor de los ejércitos, tú que pruebas al justo y ves el corazón y la mente,
 
 ## Jeremías 20:13
 
-¡Canten al Señor, alaben al Señor! Porque él rescata la vida del necesitado de las manos de los malvados.
+¡Cantad al Señor, alabad al Señor! Porque él rescata la vida del necesitado de las manos de los malvados.
 
 ## Jeremías 20:14
 

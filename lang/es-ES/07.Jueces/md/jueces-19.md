@@ -96,7 +96,7 @@ El dueño de la casa salió y dijo: “No, hermanos míos, no cometáis tal acto
 
 ## Jueces 19:24
 
-Miren, aquí está mi hija virgen y su concubina. Las sacaré ahora. Haced con ellas lo que os plazca, pero no cometáis este acto vil contra este hombre”.
+Mirad, aquí está mi hija virgen y su concubina. Las sacaré ahora. Haced con ellas lo que os plazca, pero no cometáis este acto vil contra este hombre”.
 
 ## Jueces 19:25
 

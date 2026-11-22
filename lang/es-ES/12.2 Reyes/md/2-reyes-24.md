@@ -112,7 +112,7 @@ Entonces el rey de Babilonia nombró a Matanías, tío de Joaquín, como rey,
 
 Sedequías tenía veintiún años cuando se convirtió en rey,  
  y reinó once años en Jerusalén.  
- Su madre era Hamutal, hija de Jeremías de Libná.
+ Su madre era Hamutal, hija de Jeremías de Libna.
 
 ## 2 Reyes 24:19
 

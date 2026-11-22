@@ -18,7 +18,7 @@ Apenas habían salido de la ciudad y no estaban lejos cuando José dijo a su may
 
 ## Génesis 44:5
 
-¿No es esta la copa de la que bebe mi señor y que usa para adivinación? Habéis cometido un error.’”
+¿No es esta la copa de la que bebe mi señor y que usa para adivinación? Habéis hecho mal.’”
 
 ## Génesis 44:6
 

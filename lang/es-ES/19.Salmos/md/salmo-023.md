@@ -5,7 +5,7 @@
 ## Salmo 23:1
 
 > El Señor es mi pastor,  
->  nada me faltará.
+>  no me falta nada.
 
 ## Salmo 23:2
 
@@ -14,24 +14,24 @@
 
 ## Salmo 23:3
 
-> Él restaura mi alma;  
->  Me guía por sendas de justicia Por amor de Su nombre.
+> Él me da nuevas fuerzas;  
+>  me lleva por los caminos correctos Para honrar Su nombre.
 
 ## Salmo 23:4
 
-> Aunque pase por el valle de la sombra de la muerte,  
->  No temeré mal alguno, porque Tú estás conmigo;  
->  Tu vara y Tu cayado me infunden aliento.
+> Aunque tenga que cruzar el valle más oscuro, el de la sombra de la muerte,  
+>  no tendré miedo de ningún mal, porque Tú estás a mi lado;  
+>  Tu vara y Tu cayado me dan consuelo.
 
 ---
 
 ## Salmo 23:5
 
-> Preparas una mesa delante de mí en presencia de mis enemigos;  
->  Has ungido mi cabeza con aceite;  
->  Mi copa está rebosando.
+> Me sirves un banquete en la mesa mientras mis enemigos me miran;  
+>  Has derramado aceite sobre mi cabeza como bendición;  
+>  Mi copa se desborda.
 
 ## Salmo 23:6
 
-> Ciertamente el bien y la misericordia me seguirán todos los días de mi vida,  
->  Y en la casa del Señor moraré para siempre.
+> Seguro que el bien y la misericordia me acompañarán todos los días de mi vida,  
+>  y viviré en la casa del Señor para siempre.

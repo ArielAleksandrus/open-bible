@@ -32,7 +32,7 @@ Dos cosas te pido, Señor; no me las niegues antes de que muera:
 
 ## Proverbios 30:8
 
-Mantén lejos de mí la falsedad y el engaño; no me des pobreza ni riqueza, sino provéeme con mi porción asignada.
+Mantén lejos de mí la falsedad y el engaño; no me des pobreza ni riqueza, sino dame la porción que me corresponde.
 
 ## Proverbios 30:9
 
@@ -144,4 +144,4 @@ Si has sido necio al exaltarte a ti mismo, o si has ideado el mal, pon tu mano s
 
 ## Proverbios 30:33
 
-Porque así como el batir de la leche produce mantequilla, y torcer la nariz produce sangre, así el provocar la ira produce contienda.
+Porque así como el batir de la leche produce mantequilla, y torcer la nariz produce sangre, así el provocar la ira produce contienda.”

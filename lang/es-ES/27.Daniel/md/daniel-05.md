@@ -90,7 +90,7 @@ Pero tú, Belsasar, su hijo, no has humillado tu corazón, aunque sabías todo e
 
 ## Daniel 5:23
 
-En cambio, te has levantado contra el Señor del cielo. Hiciste traer los vasos de Su templo, y tú y tus nobles, tus esposas y tus concubinas bebieron vino de ellos. Alabaste a los dioses de plata y oro, de bronce, hierro, madera y piedra, que no pueden ver ni oír ni entender. Pero no honraste al Dios que tiene en Su mano tu vida y todos tus caminos.
+En cambio, te has levantado contra el Señor del cielo. Hiciste traer los vasos de Su templo, y tú y tus nobles, tus esposas y tus concubinas bebisteis vino de ellos. Alabaste a los dioses de plata y oro, de bronce, hierro, madera y piedra, que no pueden ver ni oír ni entender. Pero no honraste al Dios que tiene en Su mano tu vida y todos tus caminos.
 
 ## Daniel 5:24
 
@@ -110,7 +110,7 @@ Tekel: Has sido pesado en la balanza y hallado falto.
 
 ## Daniel 5:28
 
-Peres: Tu reino está dividido y entregado a los medos y persas.
+Peres: Tu reino está dividido y entregado a los medos y persas.”
 
 ## Daniel 5:29
 

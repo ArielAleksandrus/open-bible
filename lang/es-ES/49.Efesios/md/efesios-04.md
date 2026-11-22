@@ -6,15 +6,15 @@ Como prisionero del Señor, os ruego que os comportéis de una manera digna de l
 
 ## Efesios 4:2
 
-con toda humildad y mansedumbre, con paciencia, soportándoos unos a otros en amor.
+Sed siempre humildes y amables, tened paciencia y aguantaos unos a otros con amor.
 
 ## Efesios 4:3
 
-Esforzaos por mantener la unidad del Espíritu mediante el vínculo de la paz.
+Haced todo lo posible por mantener la unidad que da el Espíritu, unidos por la paz.
 
 ## Efesios 4:4
 
-Hay un solo cuerpo y un solo Espíritu, así como fuisteis llamados a una sola esperanza en el momento de vuestra vocación;
+Hay un solo cuerpo y un solo Espíritu, así como Dios os llamó a una sola esperanza cuando os llamó;
 
 ## Efesios 4:5
 
@@ -26,14 +26,14 @@ un solo Dios y Padre de todos, que reina sobre todos, actúa a través de todos 
 
 ## Efesios 4:7
 
-Pero a cada uno de nosotros se nos ha dado la gracia según la medida del don de Cristo.
+Pero a cada uno de nosotros se nos ha dado la gracia en la medida en que Cristo ha querido darla.
 
 ## Efesios 4:8
 
 Por eso dice:
 
 >  “Cuando ascendió a lo alto,
->  llevó cautivos en su tren y dio dones a los hombres.
+>  llevó cautivos en su séquito y dio dones a los hombres.
 > ”
 
 ## Efesios 4:9
@@ -42,7 +42,7 @@ Por eso dice:
 
 ## Efesios 4:10
 
-El que descendió es el mismo que ascendió por encima de todos los cielos, para llenarlo todo.)
+El que bajó es el mismo que subió muy por encima de todos los cielos, para llenarlo todo con su presencia.)
 
 ## Efesios 4:11
 
@@ -54,31 +54,31 @@ para preparar al pueblo de Dios para el servicio, para la edificación del cuerp
 
 ## Efesios 4:13
 
-hasta que todos alcancemos la unidad en la fe y en el conocimiento del Hijo de Dios, a la madurez, a la medida completa de la estatura de Cristo.
+hasta que todos lleguemos a estar unidos en la fe y en el conocimiento del Hijo de Dios, hasta llegar a ser adultos maduros y alcanzar la plena estatura de Cristo.
 
 ## Efesios 4:14
 
-Entonces ya no seremos niños, zarandeados por las olas y llevados de aquí para allá por todo viento de doctrina, por la astucia de los hombres, por las artimañas engañosas.
+Así ya no seremos como niños, llevados de un lado a otro por las olas y arrastrados por cualquier viento de enseñanza, por los trucos de la gente y por la astucia de los que tienden trampas para engañar.
 
 ## Efesios 4:15
 
-Más bien, hablando la verdad en amor, creceremos en todo hacia aquel que es la cabeza, es decir, Cristo.
+Al contrario, diciendo la verdad con amor, creceremos en todo hasta parecernos a Cristo, que es la cabeza.
 
 ## Efesios 4:16
 
-De él, todo el cuerpo, bien concertado y unido entre sí por todas las coyunturas que se ayudan mutuamente, crece y se edifica en amor, según la actividad propia de cada miembro.
+Gracias a Él, todo el cuerpo, bien unido y sostenido por cada uno de sus ligamentos, crece y se va fortaleciendo en amor, a medida que cada parte cumple su función.
 
 ## Efesios 4:17
 
-Así que digo esto, y afirmo en el Señor, que ya no viváis como los gentiles, en la vanidad de sus pensamientos.
+Por eso os digo esto, y os lo pido en el nombre del Señor: no viváis más como viven los gentiles, que tienen la cabeza llena de cosas inútiles.
 
 ## Efesios 4:18
 
-Tienen oscurecido el entendimiento y están alejados de la vida de Dios por la ignorancia que hay en ellos, debido a la dureza de sus corazones.
+Su manera de pensar está a oscuras, y están lejos de la vida que viene de Dios por la ignorancia en la que viven, a causa de lo duro que es su corazón.
 
 ## Efesios 4:19
 
-Habiendo perdido toda sensibilidad, se han entregado a la sensualidad, para cometer con avidez toda clase de impureza.
+Se han vuelto insensibles y se han entregado al vicio, practicando con ansia toda clase de impurezas.
 
 ## Efesios 4:20
 
@@ -86,11 +86,11 @@ Pero esto no es lo que vosotros aprendisteis de Cristo,
 
 ## Efesios 4:21
 
-si es que de veras le oísteis y fuisteis enseñados en él, conforme a la verdad que está en Jesús.
+si es que de verdad habéis oído hablar de Él y se os ha enseñado conforme a la verdad que está en Jesús.
 
 ## Efesios 4:22
 
-Se os enseñó, respecto a vuestra antigua manera de vivir, a despojaros del viejo hombre, que está corrompido por los deseos engañosos;
+Se os enseñó que debíais abandonar vuestra antigua manera de vivir, dejar atrás lo que antes erais, que se va echando a perder por sus deseos engañosos;
 
 ## Efesios 4:23
 
@@ -98,11 +98,11 @@ a renovar la actitud de vuestra mente;
 
 ## Efesios 4:24
 
-y a revestiros del nuevo hombre, creado para ser semejante a Dios en verdadera justicia y santidad.
+y que debíais adoptar la nueva manera de ser, creada para reflejar la verdadera justicia y santidad de Dios.
 
 ## Efesios 4:25
 
-Por lo tanto, desechando la mentira, hable cada uno con su prójimo con la verdad, porque todos somos miembros los unos de los otros.
+Por eso, dejad de mentir y decid cada uno la verdad a su prójimo, porque todos formamos parte del mismo cuerpo.
 
 ## Efesios 4:26
 
@@ -110,11 +110,11 @@ Por lo tanto, desechando la mentira, hable cada uno con su prójimo con la verda
 
 ## Efesios 4:27
 
-y no deis lugar al diablo.
+ni le deis al diablo la oportunidad de actuar.
 
 ## Efesios 4:28
 
-El que robaba, no robe más, sino que trabaje, haciendo algo útil con sus propias manos, para que tenga algo que compartir con los necesitados.
+El que robaba, que deje de robar y que se ponga a trabajar, haciendo algo útil con sus propias manos, para que tenga algo que compartir con los que pasan necesidad.
 
 ## Efesios 4:29
 
@@ -122,11 +122,11 @@ No salga de vuestra boca ninguna palabra dañina, sino sólo la que sea buena pa
 
 ## Efesios 4:30
 
-Y no entristezcáis al Espíritu Santo de Dios, con el cual fuisteis sellados para el día de la redención.
+Y no causéis tristeza al Espíritu Santo de Dios, que es el sello que Dios os ha puesto para el día de la redención.
 
 ## Efesios 4:31
 
-Quítense de vosotros toda amargura, ira, enojo, gritería y calumnia, junto con toda malicia.
+Echad fuera de vuestra vida toda amargura, enfado, ira, gritos e insultos, y también toda clase de maldad.
 
 ## Efesios 4:32
 

@@ -1,7 +1,7 @@
 # Jeremías Capítulo 12
 
 ## Jeremías 12:1
-Tú eres justo, oh Señor, cuando presento mi caso ante ti; sin embargo, deseo discutir asuntos de justicia contigo: ¿Por qué prospera el camino de los impíos? ¿Por qué viven en paz los que actúan con traición?
+Tú eres justo, oh Señor, cuando presento mi caso ante ti; sin embargo, quiero plantearte cuestiones de justicia: ¿Por qué prospera el camino de los impíos? ¿Por qué viven en paz los que actúan con traición?
 
 ## Jeremías 12:2
 Tú los has plantado, y han echado raíces; crecen y producen fruto. Estás cerca de sus labios pero lejos de sus corazones.
@@ -10,7 +10,7 @@ Tú los has plantado, y han echado raíces; crecen y producen fruto. Estás cerc
 Pero tú me conoces, Señor; me ves y examinas la actitud de mi corazón hacia ti. Arrástralos como ovejas al matadero, y sepáralos para el día de la matanza.
 
 ## Jeremías 12:4
-¿Hasta cuándo estará de luto la tierra y se marchitará la hierba de todo campo? Por la maldad de los que habitan en ella, los animales y las aves han perecido. Porque la gente dice: “Él no verá nuestro fin final.”
+¿Hasta cuándo estará de luto la tierra y se marchitará la hierba de todo campo? Por la maldad de los que habitan en ella, los animales y las aves han perecido. Porque la gente dice: “Él no verá nuestro final.”
 
 ## Jeremías 12:5
 “Si has corrido con hombres a pie y te han cansado, ¿cómo podrás competir con caballos? Si tropiezas en una tierra de paz, ¿cómo te las arreglarás en los matorrales junto al Jordán?
@@ -37,7 +37,7 @@ Se ha convertido en un páramo, seco y desolado ante mí; toda la tierra está d
 En todas las alturas áridas del desierto han venido destructores, porque la espada del Señor devora de un extremo al otro de la tierra; no hay paz para nadie.
 
 ## Jeremías 12:13
-Han sembrado trigo pero han cosechado espinas; se han fatigado pero no han ganado nada. Avergüéncense de su cosecha por la feroz ira del Señor.”
+Han sembrado trigo pero han cosechado espinas; se han fatigado pero no han ganado nada. Avergonzaos de vuestra cosecha por la feroz ira del Señor.”
 
 ## Jeremías 12:14
 Esto es lo que dice el Señor concerniente a todos mis vecinos malvados que dañan la herencia que he dado a mi pueblo Israel: “He aquí, los arrancaré de su tierra, y arrancaré la casa de Judá de entre ellos.

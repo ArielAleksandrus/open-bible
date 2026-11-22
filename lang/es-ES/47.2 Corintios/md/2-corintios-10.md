@@ -54,7 +54,7 @@ Nosotros, sin embargo, no nos jactaremos más allá de lo que es apropiado, limi
 
 ## 2 Corintios 10:14
 
-No estamos sobrepasando en nuestra jactancia, como sería el caso si no hubiéramos llegado a vosotros, porque os alcanzamos con el evangelio de Cristo.
+No nos estamos excediendo en nuestra jactancia, como sería el caso si no hubiéramos llegado a vosotros, porque os alcanzamos con el evangelio de Cristo.
 
 ## 2 Corintios 10:15
 
@@ -66,8 +66,8 @@ para que podamos predicar el evangelio en las regiones más allá de vosotros. P
 
 ## 2 Corintios 10:17
 
-Pero, “El que se gloría, gloríese en el Señor.”
+Pero, “Si alguien quiere sentirse orgulloso, que se sienta orgulloso del Señor.”
 
 ## 2 Corintios 10:18
 
-Porque no es aprobado el que se alaba a sí mismo, sino aquel a quien el Señor alaba.
+Porque el que vale no es el que habla bien de sí mismo, sino aquel de quien el Señor habla bien.

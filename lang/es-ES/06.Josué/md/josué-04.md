@@ -10,7 +10,7 @@ Cuando toda la nación terminó de cruzar el Jordán, el Señor habló a Josué,
 
 ## Josué 4:3
 
-y ordénales que tomen doce piedras del medio del Jordán, del lugar donde los sacerdotes están firmes, y llévenlas con ustedes para colocarlas en el lugar donde pasarán la noche.”
+y ordénales que tomen doce piedras del medio del Jordán, del lugar donde los sacerdotes están firmes, y que las lleven consigo para colocarlas en el lugar donde pasaréis la noche.”
 
 ## Josué 4:4
 
@@ -18,15 +18,15 @@ Entonces Josué llamó a los doce hombres que había designado de entre los hijo
 
 ## Josué 4:5
 
-y les dijo: “Pasen delante del arca del Señor su Dios hacia el medio del Jordán, y cada uno de ustedes levante una piedra sobre su hombro, conforme al número de las tribus de los israelitas.
+y les dijo: “Pasad delante del arca del Señor vuestro Dios hacia el medio del Jordán, y que cada uno de vosotros levante una piedra sobre su hombro, conforme al número de las tribus de los israelitas.
 
 ## Josué 4:6
 
-Esto servirá como una señal entre ustedes. En el futuro, cuando sus hijos pregunten, ‘¿Qué significan estas piedras?’
+Esto servirá como una señal entre vosotros. En el futuro, cuando vuestros hijos pregunten, ‘¿Qué significan estas piedras?’
 
 ## Josué 4:7
 
-ustedes les explicarán, ‘Las aguas del Jordán se detuvieron ante el arca del pacto del Señor. Cuando cruzó el Jordán, las aguas se cortaron.’ Estas piedras serán un memorial perpetuo para el pueblo de Israel.”
+vosotros les explicaréis, ‘Las aguas del Jordán se detuvieron ante el arca del pacto del Señor. Cuando cruzó el Jordán, las aguas se cortaron.’ Estas piedras serán un memorial perpetuo para el pueblo de Israel.”
 
 ## Josué 4:8
 
@@ -58,7 +58,7 @@ Ese día, el Señor exaltó a Josué a la vista de todo Israel, y lo reverenciar
 
 ## Josué 4:15
 
-Entonces el Señor habló a Josué, y dijo
+Entonces el Señor habló a Josué, y dijo:
 
 ## Josué 4:16
 
@@ -66,7 +66,7 @@ Entonces el Señor habló a Josué, y dijo
 
 ## Josué 4:17
 
-Así que Josué instruyó a los sacerdotes, “Suban del Jordán.”
+Así que Josué instruyó a los sacerdotes, “Subid del Jordán.”
 
 ## Josué 4:18
 
@@ -82,16 +82,16 @@ En Gilgal, Josué erigió las doce piedras que habían tomado del Jordán.
 
 ## Josué 4:21
 
-Se dirigió a los israelitas, “En el futuro, cuando sus descendientes pregunten a sus padres, ‘¿Qué significan estas piedras?’
+Se dirigió a los israelitas, “En el futuro, cuando vuestros descendientes pregunten a sus padres, ‘¿Qué significan estas piedras?’
 
 ## Josué 4:22
 
-ustedes les informarán, ‘Israel cruzó el Jordán en suelo seco.’
+vosotros les informaréis, ‘Israel cruzó el Jordán en suelo seco.’
 
 ## Josué 4:23
 
-Porque el Señor su Dios secó las aguas del Jordán delante de ustedes hasta que cruzaron, tal como el Señor su Dios hizo con el Mar Rojo, que secó delante de nosotros hasta que cruzamos.
+Porque el Señor vuestro Dios secó las aguas del Jordán delante de vosotros hasta que cruzasteis, tal como el Señor vuestro Dios hizo con el Mar Rojo, que secó delante de nosotros hasta que cruzamos.
 
 ## Josué 4:24
 
-Él hizo esto para que todos los pueblos de la tierra reconozcan que la mano del Señor es poderosa, y para que ustedes siempre reverencien al Señor su Dios.”
+Él hizo esto para que todos los pueblos de la tierra reconozcan que la mano del Señor es poderosa, y para que vosotros siempre reverenciéis al Señor vuestro Dios.”

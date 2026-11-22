@@ -2,7 +2,7 @@
 
 ## Job 8:1
 
-Bildad el suhita respondió,
+Bildad el suhita respondió:
 
 ## Job 8:2
 
@@ -68,7 +68,7 @@ Bildad el suhita respondió,
 ## Job 8:14
 
 > Su confianza es frágil,
->  y su confianza es como una telaraña.
+>  y su seguridad es como una telaraña.
 
 ## Job 8:15
 
@@ -88,7 +88,7 @@ Bildad el suhita respondió,
 ## Job 8:18
 
 > Pero si es arrancada de su lugar,
->  ese lugar lo negará, diciendo: ‘Nunca te vi.’
+>  ese lugar la negará, diciendo: ‘Nunca te vi.’
 
 ## Job 8:19
 

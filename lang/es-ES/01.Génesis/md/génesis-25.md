@@ -10,7 +10,7 @@ Ella dio a luz a sus hijos Zimrán, Jocsán, Medán, Madián, Isbac y Súah.
 
 ## Génesis 25:3
 
-Jocsán fue el padre de Seba y Dedán. Los descendientes de Dedán fueron los ashuritas, letusitas y leumitas.
+Jocsán fue el padre de Sabá y Dedán. Los descendientes de Dedán fueron los ashuritas, letusitas y leumitas.
 
 ## Génesis 25:4
 
@@ -90,7 +90,7 @@ Los niños luchaban dentro de ella, y ella dijo: “Si es así, ¿por qué estoy
 
 ## Génesis 25:23
 
-El Señor le dijo: “Dos naciones hay en tu vientre, y dos pueblos se separarán de tu cuerpo; un pueblo será más fuerte que el otro, y el mayor servirá al menor.”
+El Señor le dijo: “Llevas en el vientre dos naciones, y de tu cuerpo saldrán dos pueblos divididos; uno será más fuerte que el otro, y el mayor servirá al menor.”
 
 ## Génesis 25:24
 
@@ -118,7 +118,7 @@ Una vez, cuando Jacob estaba cocinando un guiso, Esaú llegó del campo, exhaust
 
 ## Génesis 25:30
 
-Él dijo a Jacob: “Por favor, déjame un poco de ese guiso rojo, porque estoy exhausto.” Por eso fue llamado Edom.
+Él dijo a Jacob: “Por favor, dame un poco de ese guiso rojo, porque estoy exhausto.” Por eso fue llamado Edom.
 
 ## Génesis 25:31
 
@@ -130,7 +130,7 @@ Esaú dijo: “Estoy al borde de la muerte; ¿de qué me sirve la primogenitura?
 
 ## Génesis 25:33
 
-Jacob dijo: “Júramelo primero.” Así que le juró un juramento, vendiendo su primogenitura a Jacob.
+Jacob dijo: “Júramelo primero.” Así que se lo juró, vendiendo su primogenitura a Jacob.
 
 ## Génesis 25:34
 

@@ -10,52 +10,52 @@ que no hablen mal de nadie, que eviten las peleas, que sean amables, mostrando p
 
 ## Tito 3:3
 
-Porque nosotros también éramos en otro tiempo insensatos, desobedientes, engañados, esclavos de diversas pasiones y placeres, viviendo en malicia y envidia, odiosos, detestándonos unos a otros.
+Porque también nosotros éramos antes necios y desobedientes; vivíamos engañados, esclavos de toda clase de pasiones y placeres, llenos de maldad y de envidia; nos hacíamos odiar y nos odiábamos unos a otros.
 
 ## Tito 3:4
 
-Pero cuando se manifestó la bondad y el amor de Dios nuestro Salvador,
+Pero cuando se dio a conocer la bondad y el amor de Dios nuestro Salvador,
 
 ## Tito 3:5
 
-nos salvó, no por obras de justicia que nosotros hubiéramos hecho, sino conforme a su misericordia, por el lavamiento de la regeneración y la renovación por el Espíritu Santo,
+Él nos salvó, no por las cosas justas que nosotros hubiéramos hecho, sino por su misericordia, por medio del lavamiento del nuevo nacimiento y de la renovación que da el Espíritu Santo,
 
 ## Tito 3:6
 
-que derramó en nosotros abundantemente por medio de Jesucristo nuestro Salvador,
+el cual derramó con abundancia sobre nosotros por medio de Jesucristo nuestro Salvador,
 
 ## Tito 3:7
 
-para que, justificados por su gracia, viniésemos a ser herederos conforme a la esperanza de la vida eterna.
+para que, declarados justos por su gracia, llegáramos a ser herederos y tuviéramos la esperanza de la vida eterna.
 
 ## Tito 3:8
 
-Palabra fiel es esta, y quiero que insistas en estas cosas, para que los que han creído en Dios procuren ocuparse en buenas obras. Estas cosas son excelentes y útiles para los hombres.
+Este mensaje es digno de confianza, y quiero que insistas en estas cosas, para que los que han creído en Dios se preocupen de dedicarse a hacer el bien. Esto es excelente y provechoso para todos.
 
 ## Tito 3:9
 
-Pero evita las controversias necias, genealogías, disensiones y disputas sobre la ley, porque son inútiles y vanas.
+Pero evita las discusiones tontas, las genealogías, las peleas y las disputas sobre la ley, porque no sirven para nada y no llevan a ninguna parte.
 
 ## Tito 3:10
 
-Al hombre que cause divisiones, después de una y otra amonestación, deséchalo,
+A la persona que causa divisiones, llámale la atención una vez, y luego una segunda vez. Después de eso, no tengas nada más que ver con ella,
 
 ## Tito 3:11
 
-sabiendo que el tal se ha pervertido y peca, siendo condenado por su propio juicio.
+pues ya sabes que alguien así se ha desviado y está pecando, y él mismo se condena.
 
 ## Tito 3:12
 
-Cuando envíe a Artemas o a Tíquico a ti, procura venir a mí a Nicópolis, porque allí he decidido pasar el invierno.
+Cuando te mande a Artemas o a Tíquico, haz todo lo posible por venir a verme a Nicópolis, porque he decidido pasar allí el invierno.
 
 ## Tito 3:13
 
-Encamina con diligencia a Zenas, intérprete de la ley, y a Apolos, para que nada les falte.
+Ayuda en todo lo que puedas a Zenas, el experto en la ley, y a Apolos para que sigan su viaje, y procura que no les falte nada.
 
 ## Tito 3:14
 
-Y aprendan también los nuestros a ocuparse en buenas obras para los casos de necesidad urgente, para que no sean sin fruto.
+Que los nuestros aprendan a dedicarse a hacer el bien, para atender las necesidades urgentes, y así no lleven una vida sin fruto.
 
 ## Tito 3:15
 
-Todos los que están conmigo te saludan. Saluda a los que nos aman en la fe. La gracia sea con todos vosotros.
+Te mandan saludos todos los que están conmigo. Saluda a los que nos quieren en la fe. Que la gracia esté con todos vosotros.

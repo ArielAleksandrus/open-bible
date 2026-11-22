@@ -17,12 +17,12 @@
 ## Salmo 7:3
 
 > Señor mi Dios, si he hecho esto,  
->  Si hay injusticia en mis manos,
+>  si hay injusticia en mis manos,
 
 ## Salmo 7:4
 
 > Si he hecho mal a mi aliado,  
->  O he saqueado a mi enemigo sin razón,
+>  o he saqueado a mi enemigo sin razón,
 
 ## Salmo 7:5
 
@@ -38,13 +38,13 @@
 
 > Levántate, Señor, en Tu ira;  
 >  Enfréntate a la furia de mis enemigos,  
->  Y despierta por mí;  
+>  y despierta por mí;  
 >  Has designado juicio.
 
 ## Salmo 7:7
 
 > Que la asamblea de los pueblos te rodee,  
->  Y regresa a Tu lugar en lo alto.
+>  y regresa a Tu lugar en lo alto.
 
 ## Salmo 7:8
 
@@ -54,19 +54,19 @@
 ## Salmo 7:9
 
 > Que la maldad de los malvados llegue a su fin, pero establece al justo;  
->  Porque el Dios justo examina corazones y mentes.
+>  porque el Dios justo examina corazones y mentes.
 
 ---
 
 ## Salmo 7:10
 
 > Mi protección está con Dios,  
->  Quien libra a los rectos de corazón.
+>  quien libra a los rectos de corazón.
 
 ## Salmo 7:11
 
 > Dios es un juez justo,  
->  Y un Dios que expresa desagrado cada día.
+>  y un Dios que expresa desagrado cada día.
 
 ## Salmo 7:12
 
@@ -83,17 +83,17 @@
 ## Salmo 7:14
 
 > He aquí, una persona malvada está llena de injusticia,  
->  Y concibe daño y da a luz falsedad.
+>  y concibe daño y da a luz falsedad.
 
 ## Salmo 7:15
 
 > Ha cavado un hoyo y lo ha hecho profundo,  
->  Y ha caído en el hoyo que creó.
+>  y ha caído en el hoyo que creó.
 
 ## Salmo 7:16
 
 > Su daño volverá sobre su propia cabeza,  
->  Y su violencia caerá sobre su propia coronilla.
+>  y su violencia caerá sobre su propia coronilla.
 
 ---
 

@@ -62,7 +62,7 @@ Entonces ella le dijo: “¿Cómo puedes decir, ‘Te amo,’ cuando no confías
 
 ## Jueces 16:16
 
-Con insistente insistencia, ella lo presionó día tras día hasta que él estaba cansado de la muerte.
+Como ella lo presionaba día tras día con su insistencia, él terminó harto hasta la muerte.
 
 ## Jueces 16:17
 
@@ -70,7 +70,7 @@ Así que él le reveló todo. “Nunca ha pasado una navaja por mi cabeza,” di
 
 ## Jueces 16:18
 
-Cuando Dalila se dio cuenta de que él le había contado todo, envió un mensaje a los líderes de los filisteos: “Regresen una vez más; él me ha revelado todo.” Así que los líderes regresaron con la plata en sus manos.
+Cuando Dalila se dio cuenta de que él le había contado todo, envió un mensaje a los líderes de los filisteos: “Regresad una vez más; él me ha revelado todo.” Así que los líderes regresaron con la plata en sus manos.
 
 ## Jueces 16:19
 
@@ -112,7 +112,7 @@ El templo estaba lleno de hombres y mujeres, y todos los líderes de los filiste
 
 ## Jueces 16:28
 
-Entonces Sansón oró al Señor: “Señor Soberano, recuérdame. Por favor, Dios, fortaléceme una vez más, para que con un solo golpe pueda vengarme de los filisteos por mis dos ojos.”
+Entonces Sansón oró al Señor: “Señor Dios, recuérdame. Por favor, Dios, fortaléceme una vez más, para que con un solo golpe pueda vengarme de los filisteos por mis dos ojos.”
 
 ## Jueces 16:29
 

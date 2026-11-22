@@ -2,7 +2,7 @@
 
 ## Marcos 16:1
 
-Cuando terminó el sábado, María Magdalena, María la madre de Jacobo, y Salomé compraron especias para ir a ungirlo.
+Cuando terminó el sábado, María Magdalena, María la madre de Santiago, y Salomé compraron especias para ir a ungirlo.
 
 ## Marcos 16:2
 
@@ -22,11 +22,11 @@ Al entrar en el sepulcro, vieron a un joven vestido con una túnica blanca senta
 
 ## Marcos 16:6
 
-Él les dijo, “No se asombren. Buscan a Jesús el Nazareno, que fue crucificado. Ha resucitado; no está aquí. Miren el lugar donde lo pusieron.
+Él les dijo, “No os asombréis. Buscáis a Jesús el Nazareno, que fue crucificado. Ha resucitado; no está aquí. Mirad el lugar donde lo pusieron.
 
 ## Marcos 16:7
 
-Pero vayan, digan a sus discípulos y a Pedro, ‘Él va delante de ustedes a Galilea; allí lo verán, tal como les dijo.’”
+Pero id, decid a sus discípulos y a Pedro, ‘Él va delante de vosotros a Galilea; allí lo veréis, tal como os dijo.’”
 
 ## Marcos 16:8
 
@@ -38,7 +38,7 @@ Salieron y huyeron del sepulcro, porque el temblor y el asombro se habían apode
 
 ## Marcos 16:9
 
-[Los manuscritos más antiguos y algunos otros testigos antiguos no tienen los versículos 9–20.] Ahora bien, después de haber resucitado temprano el primer día de la semana, se apareció primero a María Magdalena, de quien había expulsado siete demonios.
+Ahora bien, después de haber resucitado temprano el primer día de la semana, se apareció primero a María Magdalena, de quien había expulsado siete demonios.
 
 ## Marcos 16:10
 
@@ -66,7 +66,7 @@ Más tarde, se apareció a los once discípulos mientras estaban reclinados a la
 
 ## Marcos 16:15
 
-Y les dijo, “Vayan por todo el mundo y proclamen el evangelio a toda la creación.
+Y les dijo, “Id por todo el mundo y proclamad el evangelio a toda la creación.
 
 ## Marcos 16:16
 

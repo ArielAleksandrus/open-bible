@@ -155,7 +155,7 @@ Ahora de los demás hijos de Leví:
 
 ## 1 Crónicas 24:21
 
-> De Rejabías, Isías fue el primero de sus hijos.
+> De Rehabías, Isías fue el primero de sus hijos.
 
 ---
 

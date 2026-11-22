@@ -78,7 +78,7 @@ Ellas respondieron: “Un egipcio nos rescató de los pastores; incluso sacó ag
 
 ## Éxodo 2:20
 
-“¿Dónde está él?” preguntó Reuel a sus hijas. “¿Por qué lo habéis dejado? Invitadlo a unirse a nosotros para una comida.”
+“¿Dónde está?” preguntó Reuel a sus hijas. “¿Por qué lo habéis dejado? Invitadlo a comer con nosotros.”
 
 ## Éxodo 2:21
 
@@ -98,4 +98,4 @@ Dios escuchó sus gemidos y se acordó de su pacto con Abraham, Isaac y Jacob.
 
 ## Éxodo 2:25
 
-Dios miró a los israelitas y se dio cuenta de ellos.
+Dios miró a los israelitas y se ocupó de ellos.

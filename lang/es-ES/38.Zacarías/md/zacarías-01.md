@@ -10,11 +10,11 @@ En el octavo mes del segundo año de Darío, la palabra del Señor vino al profe
 
 ## Zacarías 1:3
 
-Por lo tanto, diles: Esto es lo que dice el Señor de los Ejércitos: ‘Regresad a Mí,’ declara el Señor de los Ejércitos, ‘y Yo regresaré a vosotros,’ dice el Señor de los Ejércitos.
+Por lo tanto, diles: Esto es lo que dice el Señor de los ejércitos: ‘Regresad a Mí,’ declara el Señor de los ejércitos, ‘y Yo regresaré a vosotros,’ dice el Señor de los ejércitos.
 
 ## Zacarías 1:4
 
-No seáis como vuestros antepasados, a quienes los antiguos profetas proclamaron: Esto es lo que dice el Señor de los Ejércitos: ‘Apartaos de vuestros malos caminos y de vuestras malas obras.’ Pero no escucharon ni me prestaron atención,” declara el Señor.
+No seáis como vuestros antepasados, a quienes los antiguos profetas proclamaron: Esto es lo que dice el Señor de los ejércitos: ‘Apartaos de vuestros malos caminos y de vuestras malas obras.’ Pero no escucharon ni me prestaron atención,” declara el Señor.
 
 ## Zacarías 1:5
 
@@ -22,7 +22,7 @@ No seáis como vuestros antepasados, a quienes los antiguos profetas proclamaron
 
 ## Zacarías 1:6
 
-¿Pero no alcanzaron mis palabras y mis estatutos, que ordené a mis siervos los profetas, a vuestros antepasados? Entonces se arrepintieron y dijeron: ‘Como el Señor de los Ejércitos ha determinado hacernos según nuestros caminos y obras, así ha hecho con nosotros.’”
+¿Pero no alcanzaron mis palabras y mis estatutos, que ordené a mis siervos los profetas, a vuestros antepasados? Entonces se arrepintieron y dijeron: ‘Como el Señor de los ejércitos ha determinado hacernos según nuestros caminos y obras, así ha hecho con nosotros.’”
 
 ## Zacarías 1:7
 
@@ -46,7 +46,7 @@ Y reportaron al ángel del Señor que estaba entre los mirtos, “Hemos recorrid
 
 ## Zacarías 1:12
 
-Entonces el ángel del Señor dijo, “Señor de los Ejércitos, ¿hasta cuándo retendrás la misericordia de Jerusalén y de las ciudades de Judá, con las cuales has estado enojado estos setenta años?”
+Entonces el ángel del Señor dijo, “Señor de los ejércitos, ¿hasta cuándo retendrás la misericordia de Jerusalén y de las ciudades de Judá, con las cuales has estado enojado estos setenta años?”
 
 ## Zacarías 1:13
 
@@ -54,7 +54,7 @@ Y el Señor respondió al ángel que hablaba conmigo con palabras amables y cons
 
 ## Zacarías 1:14
 
-Así que el ángel que hablaba conmigo dijo, “Proclama, diciendo: Esto es lo que dice el Señor de los Ejércitos: ‘Estoy muy celoso por Jerusalén y Sion,
+Así que el ángel que hablaba conmigo dijo, “Proclama, diciendo: Esto es lo que dice el Señor de los ejércitos: ‘Estoy muy celoso por Jerusalén y Sion,
 
 ## Zacarías 1:15
 
@@ -62,11 +62,11 @@ y estoy extremadamente enojado con las naciones que están tranquilas; porque mi
 
 ## Zacarías 1:16
 
-Por lo tanto, esto es lo que dice el Señor: ‘Regresaré a Jerusalén con compasión; mi casa será reconstruida en ella,’ declara el Señor de los Ejércitos, ‘y una línea de medición será tendida sobre Jerusalén.’
+Por lo tanto, esto es lo que dice el Señor: ‘Regresaré a Jerusalén con compasión; mi casa será reconstruida en ella,’ declara el Señor de los ejércitos, ‘y una línea de medición será tendida sobre Jerusalén.’
 
 ## Zacarías 1:17
 
-Proclama además, diciendo: Esto es lo que dice el Señor de los Ejércitos: ‘Mis ciudades volverán a desbordarse de prosperidad, y el Señor volverá a consolar a Sion y elegir a Jerusalén.’”
+Proclama además, diciendo: Esto es lo que dice el Señor de los ejércitos: ‘Mis ciudades volverán a desbordarse de prosperidad, y el Señor volverá a consolar a Sion y elegir a Jerusalén.’”
 
 ## Zacarías 1:18
 

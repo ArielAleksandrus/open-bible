@@ -31,7 +31,7 @@ Pero por el bien de mi nombre, actué para evitar que fuera profanado a la vista
 Así que los saqué de Egipto y los llevé al desierto.
 
 ## Ezequiel 20:11
-Les di mis estatutos y les informé de mis ordenanzas, por las cuales vivirá una persona si las obedece.
+Les di mis estatutos y les di a conocer mis ordenanzas, por las cuales vivirá una persona si las obedece.
 
 ## Ezequiel 20:12
 También les di mis sábados como una señal entre nosotros, para que supieran que yo, el Señor, los santifico.
@@ -73,10 +73,10 @@ También, les juré en el desierto que los dispersaría entre las naciones y los
 porque no habían obedecido mis ordenanzas sino que habían rechazado mis estatutos y profanado mis sábados, y sus ojos codiciaban los ídolos de sus padres.
 
 ## Ezequiel 20:25
-Así que les permití seguir estatutos que no eran beneficiosos y ordenanzas por las cuales no podían prosperar;
+Así que también les di estatutos que no eran beneficiosos y ordenanzas por las cuales no podían prosperar;
 
 ## Ezequiel 20:26
-los dejé ser contaminados a través de sus ofrendas —el sacrificio de cada primogénito— para que se llenaran de horror y supieran que yo soy el Señor.’
+los contaminé con sus propias ofrendas —el sacrificio de cada primogénito— para que se llenaran de horror y supieran que yo soy el Señor.’
 
 ## Ezequiel 20:27
 “Por lo tanto, hijo de hombre, habla a la casa de Israel y diles: ‘Esto es lo que dice el Señor Dios: En esto también vuestros antepasados me blasfemaron siendo infieles a mí:

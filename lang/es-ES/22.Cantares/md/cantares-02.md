@@ -3,117 +3,114 @@
 ## Cantar de los Cantares 2:1
 
 Soy como la rosa de Sarón,  
- Y el lirio de los valles.
+ y el lirio de los valles.
 
 ## Cantar de los Cantares 2:2
 
 Como un lirio entre los espinos,  
- Así es mi amada entre las jóvenes.
+ así es mi amada entre las jóvenes.
 
 ---
 
 ## Cantar de los Cantares 2:3
 
-Como un manzano se destaca entre los árboles del bosque,  
- Así es mi amado entre los jóvenes.  
- En su sombra, encontré gran deleite y me senté,  
- Y su fruto era dulce a mi paladar.
+Como sobresale un manzano entre los árboles del bosque,  
+ así sobresale mi amado entre los muchachos.  
+ Me encantó sentarme a su sombra,  
+ y su fruta me supo dulce.
 
 ## Cantar de los Cantares 2:4
 
-Me ha llevado al lugar de banquete,  
- Y su bandera sobre mí es amor.
+Me ha llevado a la sala del banquete,  
+ y sobre mí ondea su bandera, que es el amor.
 
 ## Cantar de los Cantares 2:5
 
-Revíveme con tortas de pasas,  
- Susténtame con manzanas,  
- Porque estoy enferma de amor.
+Dadme fuerzas con tortas de pasas,  
+ reanimadme con manzanas,  
+ porque me muero de amor.
 
 ## Cantar de los Cantares 2:6
 
 Su mano izquierda sostiene mi cabeza,  
- Y su mano derecha me abraza.
+ y su mano derecha me abraza.
 
 ---
 
 ## Cantar de los Cantares 2:7
 
-Os conjuro,  
- Oh hijas de Jerusalén,  
- Por las gacelas o por las ciervas del campo,  
- Que no despertéis ni provoquéis el amor Hasta que le plazca.
+Mujeres de Jerusalén,  
+ os ruego por las gacelas y por las ciervas del campo que no despertéis ni provoquéis el amor hasta que él mismo lo quiera.
 
 ---
 
 ## Cantar de los Cantares 2:8
 
-¡La voz de mi amado!  
- He aquí, él viene,  
- Saltando sobre los montes,  
- Brincando sobre las colinas.
+¡Es la voz de mi amado!  
+ Miradlo, ya viene,  
+ saltando por los montes,  
+ brincando por las colinas.
 
 ## Cantar de los Cantares 2:9
 
-Mi amado se asemeja a una gacela o a un cervatillo.  
- He aquí, él está de pie detrás de nuestro muro,  
- Mira por las ventanas,  
- Atisba por las celosías.
+Mi amado es como una gacela o un ciervo joven.  
+ Miradlo, está ahí detrás de nuestra pared,  
+ mirando por las ventanas,  
+ espiando por entre las rejas.
 
 ---
 
 ## Cantar de los Cantares 2:10
 
-Mi amado habló y me dijo:  
- “Levántate, amada mía, hermosa mía,  
- Y ven.
+Mi amado me habló y me dijo:  
+ “Levántate, amor mío, preciosa mía,  
+ y vente conmigo.
 
 ## Cantar de los Cantares 2:11
 
-Porque, en verdad, el invierno ha pasado,  
- La lluvia ha cesado y se ha ido.
+Porque ya se acabó el invierno;  
+ ya pasaron las lluvias y se fueron.
 
 ## Cantar de los Cantares 2:12
 
-Las flores han aparecido en la tierra;  
- Ha llegado el tiempo de podar las vides,  
- Y la voz de la tórtola se ha oído en nuestra tierra.
+Ya han salido las flores en el campo;  
+ ha llegado el tiempo de podar las viñas,  
+ y por toda nuestra tierra se oye el canto de la tórtola.
 
 ## Cantar de los Cantares 2:13
 
-La higuera ha madurado su fruto,  
- Y las vides en flor han dado su fragancia.  
- Levántate, amada mía, hermosa mía,  
- Y ven.”
+La higuera ya tiene maduros sus higos,  
+ y las viñas en flor despiden su perfume.  
+ Levántate, amor mío, preciosa mía, y vente conmigo.  
+”
 
 ---
 
 ## Cantar de los Cantares 2:14
 
-Paloma mía, en las hendiduras de la roca,  
- En el escondite del sendero montañoso,  
- Déjame ver tu figura,  
- Déjame oír tu voz;  
- Porque tu voz es dulce,  
- Y tu figura es hermosa.
+Paloma mía, que te escondes entre las grietas de las rocas,  
+ en los rincones del sendero de la montaña,  
+ déjame verte,  
+ déjame oír tu voz;  
+ porque tu voz es dulce y tu figura es preciosa.
 
 ---
 
 ## Cantar de los Cantares 2:15
 
-Atrapen las zorras para nosotros,  
- Las zorras pequeñas que arruinan las viñas,  
- Mientras nuestras viñas están en flor.
+Cazad las zorras,  
+ esas zorras pequeñas que estropean las viñas,  
+ ahora que nuestras viñas están en flor.
 
 ---
 
 ## Cantar de los Cantares 2:16
 
-Mi amado es mío, y yo soy suya;  
- Él apacienta su rebaño entre los lirios.
+Mi amado es mío y yo soy de él;  
+ él lleva a pastar su rebaño entre los lirios.
 
 ## Cantar de los Cantares 2:17
 
-Hasta que el día respire y las sombras huyan,  
- Vuelve, amado mío,  
- y sé como una gacela O un cervatillo sobre las colinas escarpadas.
+Antes de que sople la brisa del día y se vayan las sombras,  
+ vuelve,  
+ amado mío, y sé como una gacela o un ciervo joven por las colinas escarpadas.

@@ -82,11 +82,11 @@ Más bien, tenían algunos puntos de disputa con él sobre sus propias creencias
 
 ## Hechos 25:20
 
-Estando perdido sobre cómo investigar tales asuntos, le pregunté si estaba dispuesto a ir a Jerusalén y ser juzgado allí.
+No sabiendo cómo investigar tales asuntos, le pregunté si estaba dispuesto a ir a Jerusalén y ser juzgado allí.
 
 ## Hechos 25:21
 
-Pero cuando Pablo apeló para ser retenido para la decisión del Emperador, ordené que lo mantuvieran en custodia hasta que pudiera enviarlo a César.”
+Pero cuando Pablo pidió que se le mantuviera bajo custodia hasta la decisión del Emperador, ordené que siguiera detenido hasta que pudiera enviarlo a César.”
 
 ## Hechos 25:22
 
@@ -100,7 +100,7 @@ Al día siguiente, Agripa y Berenice llegaron con gran pompa y entraron en la sa
 
 ## Hechos 25:24
 
-Festo dijo: “Rey Agripa, y todos los presentes con nosotros, veis a este hombre sobre quien toda la comunidad judía ha apelado a mí, tanto en Jerusalén como aquí, gritando que no debería vivir más tiempo.
+Festo dijo: “Rey Agripa, y todos los presentes con nosotros, veis a este hombre por quien toda la comunidad judía ha acudido a mí, tanto en Jerusalén como aquí, gritando que no debería vivir más tiempo.
 
 ## Hechos 25:25
 

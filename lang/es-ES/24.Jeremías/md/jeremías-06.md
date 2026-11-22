@@ -4,7 +4,7 @@
 “¡Huid a un lugar seguro, pueblo de Benjamín, de en medio de Jerusalén! Tocad la trompeta en Tecoa y levantad una señal sobre Bet Haquerem, porque el desastre se cierne desde el norte, junto con gran destrucción.
 
 ## Jeremías 6:2
-La hermosa y delicada Hija de Sión, yo la destruiré.
+La hermosa y delicada Hija de Sion, yo la destruiré.
 
 ## Jeremías 6:3
 Vendrán contra ella pastores con sus rebaños; plantarán sus tiendas alrededor de ella, cada uno cuidando su propia porción.
@@ -13,19 +13,19 @@ Vendrán contra ella pastores con sus rebaños; plantarán sus tiendas alrededor
 ‘¡Preparaos para la batalla contra ella! ¡Levantaos, ataquemos al mediodía! ¡Ay de nosotros, porque el día se desvanece, y las sombras de la tarde se alargan!
 
 ## Jeremías 6:5
-Así que levantaos, ataquemos de noche y destruyamos sus fortalezas!’
+¡Levantaos, pues, ataquemos de noche y destruyamos sus fortalezas!’
 
 ## Jeremías 6:6
-Porque así dice el Señor de los Ejércitos: ‘Cortad los árboles y construid rampas de asedio contra Jerusalén. Esta ciudad debe ser castigada; está llena de opresión.
+Porque así dice el Señor de los ejércitos: ‘Cortad los árboles y construid rampas de asedio contra Jerusalén. Esta ciudad debe ser castigada; está llena de opresión.
 
 ## Jeremías 6:7
 Como un pozo mantiene frescas sus aguas, así ella derrama su maldad. La violencia y la destrucción resuenan en ella; la enfermedad y las heridas están siempre ante mí.
 
 ## Jeremías 6:8
-Sé advertida, Jerusalén, o me apartaré de ti y haré tu tierra desolada, deshabitada.
+Escarmienta, Jerusalén, o me apartaré de ti y haré tu tierra desolada, deshabitada.
 
 ## Jeremías 6:9
-Así dice el Señor de los Ejércitos: ‘Dejad que rebusquen el remanente de Israel tan minuciosamente como una vid; pasa tu mano sobre las ramas de nuevo, como quien recoge uvas.’
+Así dice el Señor de los ejércitos: ‘Que rebusquen el remanente de Israel como se rebusca una vid; pasa tu mano sobre las ramas de nuevo, como quien recoge uvas.’
 
 ## Jeremías 6:10
 ¿A quién puedo hablar y advertir, para que escuchen? Sus oídos están cerrados y no pueden escuchar. La palabra del Señor les es ofensiva; no se deleitan en ella.
@@ -58,7 +58,7 @@ Por lo tanto, escuchad, naciones, y entended, congregación, lo que hay entre el
 Escucha, tierra: Estoy trayendo desastre sobre este pueblo, el fruto de sus planes, porque no han escuchado mis palabras y han rechazado mi ley.
 
 ## Jeremías 6:20
-¿Qué me importa el incienso de Sabá o la caña dulce de una tierra lejana? Vuestras ofrendas quemadas no son aceptables; vuestros sacrificios no me agradan.
+¿Qué me importa el incienso de Sabá o la caña dulce de una tierra lejana? Vuestros holocaustos no son aceptables; vuestros sacrificios no me agradan.
 
 ## Jeremías 6:21
 Por lo tanto, esto es lo que dice el Señor: ‘Pondré obstáculos ante este pueblo. Padres e hijos por igual tropezarán con ellos; vecinos y amigos perecerán.’
@@ -67,7 +67,7 @@ Por lo tanto, esto es lo que dice el Señor: ‘Pondré obstáculos ante este pu
 Esto es lo que dice el Señor: ‘He aquí, un ejército viene de la tierra del norte; una gran nación se está levantando desde las partes remotas de la tierra.
 
 ## Jeremías 6:23
-Están armados con arco y lanza; son crueles y no muestran misericordia. Su voz ruge como el mar mientras cabalgan en caballos, dispuestos como un hombre para la batalla contra ti, Hija de Sión.’
+Están armados con arco y lanza; son crueles y no muestran misericordia. Su voz ruge como el mar mientras cabalgan en caballos, dispuestos como un hombre para la batalla contra ti, Hija de Sion.’
 
 ## Jeremías 6:24
 Hemos oído informes sobre ellos, y nuestras manos están débiles. La angustia nos ha atrapado, dolor como el de una mujer en trabajo de parto.

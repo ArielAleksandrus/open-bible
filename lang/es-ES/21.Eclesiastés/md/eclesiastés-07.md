@@ -1,88 +1,88 @@
 # Eclesiastés Capítulo 7
 
 ## Eclesiastés 7:1
-Más vale el buen nombre que el buen perfume, y el día de la muerte que el día del nacimiento.
+Vale más tener buena fama que un buen perfume, y es mejor el día en que uno muere que el día en que nace.
 
 ## Eclesiastés 7:2
-Más vale ir a una casa de duelo que a una casa de banquete, porque aquél es el fin de todos los hombres, y el que vive lo tomará a pecho.
+Es preferible ir a una casa donde hay luto que a una donde hay fiesta, porque la muerte nos espera a todos, y los que viven deberían pensarlo en serio.
 
 ## Eclesiastés 7:3
-Mejor es el pesar que la risa, porque con la tristeza del rostro se enmienda el corazón.
+Es mejor la tristeza que la risa, porque un rostro triste puede llevar a un corazón alegre.
 
 ## Eclesiastés 7:4
-El corazón de los sabios está en la casa de luto, pero el corazón de los necios en la casa del placer.
+El sabio piensa en la casa donde hay luto, pero el necio solo piensa en la casa donde hay diversión.
 
 ## Eclesiastés 7:5
-Mejor es escuchar la reprensión del sabio que oír la canción de los necios.
+Más vale que te reprenda un sabio que escuchar la canción de los necios.
 
 ## Eclesiastés 7:6
-Porque como el crepitar de los espinos bajo la olla, así es la risa del necio. También esto es vanidad.
+La risa del necio es como el chisporroteo de las espinas cuando arden debajo de la olla. También esto es vanidad.
 
 ## Eclesiastés 7:7
-Ciertamente la opresión hace que el sabio enloquezca, y el soborno corrompe el corazón.
+La opresión puede hacer que el sabio actúe como un necio, y el soborno echa a perder el corazón.
 
 ## Eclesiastés 7:8
-Mejor es el fin de un asunto que su principio; mejor es la paciencia de espíritu que la altivez de espíritu.
+Es mejor acabar algo que empezarlo, y vale más ser paciente que orgulloso.
 
 ## Eclesiastés 7:9
-No te apresures en tu espíritu a enojarte, porque el enojo reposa en el seno de los necios.
+No te enojes enseguida, porque el enojo vive en el pecho de los necios.
 
 ## Eclesiastés 7:10
-No digas: “¿Por qué los tiempos pasados fueron mejores que éstos?” Porque no es de sabios preguntar esto.
+No preguntes: “¿Cómo es que antes todo era mejor que ahora?” Porque esa pregunta no sale de la sabiduría.
 
 ## Eclesiastés 7:11
-Buena es la sabiduría con herencia, y provechosa para los que ven el sol.
+La sabiduría, igual que una herencia, es algo bueno y de provecho para todos los que viven bajo el sol.
 
 ## Eclesiastés 7:12
-Porque la sabiduría es una defensa, y el dinero es una defensa; pero la excelencia del conocimiento es que la sabiduría da vida a sus poseedores.
+La sabiduría protege igual que protege el dinero, pero el saber tiene esta ventaja: la sabiduría mantiene con vida al que la tiene.
 
 ## Eclesiastés 7:13
-Considera la obra de Dios: ¿Quién podrá enderezar lo que él torció?
+Fíjate en lo que Dios hace: ¿quién podrá enderezar lo que Él ha torcido?
 
 ## Eclesiastés 7:14
-En el día del bien goza del bien, y en el día de la adversidad considera: Dios hizo tanto lo uno como lo otro, a fin de que el hombre no descubra nada de lo que vendrá después de él.
+Cuando las cosas vayan bien, disfrútalo; cuando vayan mal, piensa en esto: Dios hizo tanto lo uno como lo otro, para que nadie pueda adivinar lo que vendrá después.
 
 ## Eclesiastés 7:15
-En los días de mi vanidad he visto de todo: hay justo que perece en su justicia, y hay impío que prolonga sus días en su maldad.
+En esta vida tan pasajera lo he visto todo: justos que mueren a pesar de ser justos, y malvados que viven muchos años a pesar de su maldad.
 
 ## Eclesiastés 7:16
-No seas demasiado justo, ni seas sabio en exceso —¿por qué habrás de destruirte—?
+No te pases de justo ni te creas demasiado sabio: ¿para qué buscarte problemas?
 
 ## Eclesiastés 7:17
-No seas demasiado impío, ni seas insensato —¿por qué habrás de morir antes de tu tiempo—?
+No te pases de malvado ni seas necio: ¿para qué morirte antes de tiempo?
 
 ## Eclesiastés 7:18
-Bueno es que tomes esto, y también de aquello no apartes tu mano; porque el que teme a Dios saldrá bien en todo.
+Lo bueno es agarrarse a lo uno sin soltar lo otro. El que teme a Dios evitará los extremos.
 
 ## Eclesiastés 7:19
-La sabiduría fortalece al sabio más que diez poderosos que haya en una ciudad.
+La sabiduría hace más fuerte al sabio que diez gobernantes juntos en una ciudad.
 
 ## Eclesiastés 7:20
-Ciertamente no hay hombre justo en la tierra, que haga el bien y nunca peque.
+La verdad es que en este mundo no hay nadie tan justo que haga siempre el bien y nunca peque.
 
 ## Eclesiastés 7:21
-Tampoco apliques tu corazón a todas las palabras que se hablan, no sea que oigas a tu siervo maldecirte—
+No hagas caso de todo lo que dice la gente, o puede que oigas a tu siervo hablar mal de ti—
 
 ## Eclesiastés 7:22
-porque tu corazón sabe que tú también has maldecido a otros muchas veces.
+porque bien sabes que tú también has hablado mal de otros muchas veces.
 
 ## Eclesiastés 7:23
-Todo esto probé con sabiduría. Dije: “Seré sabio” —pero la sabiduría estaba lejos de mí—.
+Todo esto lo examiné con sabiduría y me dije: “Voy a ser sabio” —pero eso estaba fuera de mi alcance—.
 
 ## Eclesiastés 7:24
-Lo que existe es remoto y muy profundo —¿quién lo descubrirá—?
+Lo que existe queda lejos y es muy hondo; ¿quién podrá llegar a entenderlo?
 
 ## Eclesiastés 7:25
-Me volví y dirigí mi corazón a saber, a investigar y a buscar la sabiduría y la razón de las cosas, y a conocer la maldad de la insensatez y la locura del error.
+Así que me propuse comprender, investigar y buscar la sabiduría y la explicación de las cosas, y entender que la maldad es una necedad y la necedad una locura.
 
 ## Eclesiastés 7:26
-Y he hallado más amarga que la muerte a la mujer cuyo corazón es lazos y redes, y cuyas manos son cadenas. El que agrada a Dios escapará de ella, pero el pecador quedará atrapado por ella.
+Encontré algo más amargo que la muerte: la mujer que atrapa a los hombres, cuyo corazón es una trampa y cuyos brazos son cadenas. El que agrada a Dios se librará de ella, pero el pecador caerá en sus redes.
 
 ## Eclesiastés 7:27
-He aquí, dice el Predicador, esto he hallado, añadiendo una cosa a otra para hallar la razón—
+Esto es lo que he descubierto, dice el Maestro, juntando una cosa con otra para encontrar una explicación—
 
 ## Eclesiastés 7:28
-lo que aún busca mi alma, pero no lo he hallado: he hallado un hombre entre mil, pero mujer entre todas éstas no la he hallado.
+mientras seguía buscando sin encontrar: entre mil hombres encontré a uno recto, pero entre todas ellas no encontré ni una sola mujer recta.
 
 ## Eclesiastés 7:29
-Solamente esto he hallado: que Dios hizo al hombre recto, pero ellos buscaron muchas perversiones.
+Solo he descubierto esto: que Dios hizo recto al ser humano, pero ellos se han buscado muchas complicaciones.

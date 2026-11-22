@@ -14,7 +14,7 @@ Pablo entonces preguntó: “¿En qué, pues, fuisteis bautizados?” Ellos resp
 
 ## Hechos 19:4
 
-Pablo explicó: “Juan realizó un bautismo de arrepentimiento, instruyendo al pueblo a creer en aquel que vendría después de él, es decir, en Jesús.”
+Pablo explicó: “Juan realizó un bautismo de arrepentimiento, diciendo al pueblo que creyera en aquel que vendría después de él, es decir, en Jesús.”
 
 ## Hechos 19:5
 
@@ -36,7 +36,7 @@ Pablo entró en la sinagoga y habló con valentía durante tres meses, participa
 
 ## Hechos 19:9
 
-Sin embargo, cuando algunos se volvieron obstinados y se negaron a creer, hablando mal del Camino ante la asamblea, se apartó de ellos y llevó consigo a los discípulos, realizando discusiones diarias en la escuela de Tirano.
+Sin embargo, cuando algunos se volvieron obstinados y se negaron a creer, hablando mal del Camino ante la asamblea, se apartó de ellos y llevó consigo a los discípulos, y discutía cada día en la escuela de Tirano.
 
 ## Hechos 19:10
 
@@ -100,7 +100,7 @@ Envió a dos de sus ayudantes, Timoteo y Erasto, a Macedonia, mientras él perma
 
 ## Hechos 19:23
 
-Por aquel tiempo, surgió un disturbio significativo en torno al Camino.
+Por aquel tiempo, surgió un gran alboroto en torno al Camino.
 
 ## Hechos 19:24
 
@@ -134,7 +134,7 @@ Pablo quiso entrar en la asamblea, pero los discípulos no se lo permitieron.
 
 ## Hechos 19:31
 
-Incluso algunos de los asiárquicos, que eran amigos de Pablo, le enviaron un mensaje, instándole a no aventurarse en el teatro.
+Incluso algunos de los asiarcas, que eran amigos de Pablo, le enviaron un mensaje, instándole a no aventurarse en el teatro.
 
 ## Hechos 19:32
 

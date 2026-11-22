@@ -148,7 +148,7 @@ Un nuevo mandamiento os doy: Amaos los unos a los otros. Como yo os he amado, as
 
 ## Juan 13:35
 
-Es por esto, por lo tanto, que todos sabrán que sois mis discípulos: que tenéis amor los unos por los otros.”
+Por esto sabrán todos que sois mis discípulos: si tenéis amor los unos por los otros.”
 
 ---
 

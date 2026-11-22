@@ -19,16 +19,16 @@ El rey les asignó una porción diaria de la comida y del vino del rey. Debían 
 Entre ellos estaban algunos de los hijos de Judá: Daniel, Ananías, Misael y Azarías.
 
 ## Daniel 1:7
-El jefe de los oficiales les asignó nuevos nombres: a Daniel, Beltsasar; a Ananías, Sadrac; a Misael, Mesac; y a Azarías, Abednego.
+El jefe de los oficiales les asignó nuevos nombres: a Daniel, Beltsasar; a Ananías, Sadrac; a Misael, Mesac; y a Azarías, Abed-nego.
 
 ## Daniel 1:8
 Pero Daniel se propuso no contaminarse con la comida y el vino del rey, y pidió permiso al jefe de los oficiales para no contaminarse de esta manera.
 
 ## Daniel 1:9
-Ahora Dios concedió a Daniel favor y compasión ante el jefe de los oficiales.
+Y Dios concedió a Daniel favor y compasión ante el jefe de los oficiales.
 
 ## Daniel 1:10
-El oficial dijo a Daniel: “Tengo miedo de mi señor el rey, quien ha asignado tu comida y bebida. ¿Por qué habría de verte más desmejorado que los otros jóvenes de tu edad? El rey me quitaría la cabeza por causa de vosotros.”
+El oficial dijo a Daniel: “Tengo miedo de mi señor el rey, quien ha asignado tu comida y bebida. ¿Por qué habría de verte más desmejorado que los otros jóvenes de tu edad? El rey me quitaría la cabeza por tu causa.”
 
 ## Daniel 1:11
 Daniel entonces habló al guardia que el jefe de los oficiales había asignado sobre Daniel, Ananías, Misael y Azarías,

@@ -10,7 +10,7 @@ El pueblo clamó a Moisés, y cuando Moisés oró al Señor, el fuego se apagó.
 Aquel lugar fue llamado Tabera, porque el fuego del Señor había ardido entre ellos.
 
 ## Números 11:4
-La multitud mezclada que estaba entre ellos comenzó a sentir un deseo insaciable, y los israelitas también empezaron a llorar de nuevo, diciendo: “¿Quién nos dará carne para comer?
+La multitud mezclada que estaba entre ellos comenzó a desear con ansia otra comida, y los israelitas también empezaron a llorar de nuevo, diciendo: “¿Quién nos dará carne para comer?
 
 ## Números 11:5
 Recordamos el pescado que comíamos gratis en Egipto, los pepinos, melones, puerros, cebollas y ajos.
@@ -37,7 +37,7 @@ Moisés dijo al Señor: “¿Por qué has traído este problema sobre tu siervo?
 ¿Concebí yo a todo este pueblo? ¿Lo di a luz, para que me digas: ‘Llévalos en tus brazos como lleva la nodriza al niño de pecho, a la tierra que prometiste a sus padres’?
 
 ## Números 11:13
-¿De dónde voy a sacar carne para dar a todo este pueblo? Siguen llorando a mí, ‘¡Danos carne para comer!’
+¿De dónde voy a sacar carne para dar a todo este pueblo? No dejan de clamar ante mí: ‘¡Danos carne para comer!’
 
 ## Números 11:14
 No puedo llevar yo solo a todo este pueblo; es una carga demasiado pesada para mí.
@@ -52,13 +52,13 @@ El Señor dijo a Moisés: “Reúne para mí setenta hombres de los ancianos de 
 Yo descenderé y hablaré contigo allí, y tomaré del Espíritu que está sobre ti y lo pondré sobre ellos. Ellos llevarán contigo la carga del pueblo, para que no la lleves tú solo.
 
 ## Números 11:18
-Dile al pueblo: ‘Conságrense para mañana, y comerán carne, porque han llorado a oídos del Señor, diciendo: “¿Quién nos dará carne para comer? ¡Estábamos mejor en Egipto!” Por tanto, el Señor les dará carne, y comerán.
+Dile al pueblo: ‘Consagraos para mañana, y comeréis carne, porque habéis llorado a oídos del Señor, diciendo: “¿Quién nos dará carne para comer? ¡Estábamos mejor en Egipto!” Por tanto, el Señor os dará carne, y comeréis.
 
 ## Números 11:19
-No comerán solo un día, ni dos días, ni cinco, diez, o veinte días,
+No comeréis solo un día, ni dos días, ni cinco, diez, o veinte días,
 
 ## Números 11:20
-sino un mes entero, hasta que les salga por las narices y les sea repugnante, porque han rechazado al Señor que está entre ustedes, y han llorado ante él, diciendo: “¿Por qué salimos de Egipto?”’”
+sino un mes entero, hasta que os salga por las narices y os sea repugnante, porque habéis rechazado al Señor que está entre vosotros, y habéis llorado ante él, diciendo: “¿Por qué salimos de Egipto?”’”
 
 ## Números 11:21
 Moisés dijo: “Aquí estoy yo entre seiscientos mil hombres de a pie, y tú dices: ‘Les daré carne para comer durante un mes entero.’
@@ -100,7 +100,7 @@ El pueblo estuvo todo aquel día, toda la noche, y todo el día siguiente recogi
 Pero mientras la carne aún estaba entre sus dientes, antes de ser consumida, la ira del Señor se encendió contra el pueblo, y el Señor los hirió con una plaga severa.
 
 ## Números 11:34
-Por eso, el lugar fue llamado Kibrot-hataavá, porque allí enterraron al pueblo que había sentido un deseo insaciable.
+Por eso, el lugar fue llamado Kibrot-hataavá, porque allí enterraron al pueblo que había ansiado otra comida.
 
 ## Números 11:35
 Desde Kibrot-hataavá el pueblo viajó a Hazerot, donde se quedaron.

@@ -4,24 +4,23 @@
 
 ## Salmo 123:1
 
-> A ti he levantado mis ojos,  
->  ¡Tú que estás entronizado en los cielos!
+> Hacia ti levanto la mirada,  
+>  a ti, que reinas en el cielo.
 
 ## Salmo 123:2
 
-> Observa, así como los ojos de los siervos están fijos en la mano de su señor,  
->  Y como los ojos de una doncella miran a la mano de su señora,  
->  Así nuestros ojos están dirigidos al Señor nuestro Dios,  
->  Hasta que nos muestre su favor.
+> Fijaos: así como los esclavos tienen la vista puesta en la mano de su amo,  
+>  y la criada mira atenta la mano de su ama,  
+>  así nosotros tenemos los ojos puestos en el Señor nuestro Dios,  
+>  hasta que nos muestre su favor.
 
 ---
 
 ## Salmo 123:3
 
-> Muéstranos tu bondad, Señor, muéstranos tu bondad,  
->  Porque hemos soportado más que suficiente desprecio.
+> Señor, sé bondadoso con nosotros, sé bondadoso con nosotros,  
+>  porque ya hemos soportado demasiado desprecio.
 
 ## Salmo 123:4
 
-> Nuestra alma ha soportado más que suficiente De las burlas de los que están a sus anchas,  
->  Y del desprecio de los orgullosos.
+> Ya hemos soportado demasiado las burlas de los que viven tranquilos y el desprecio de los orgullosos.

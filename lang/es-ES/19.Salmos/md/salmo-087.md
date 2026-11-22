@@ -8,36 +8,36 @@
 
 ## Salmo 87:2
 
-> El Señor ama las puertas de Sión Más que todas las moradas de Jacob.
+> El Señor quiere a las puertas de Sion más que a todas las demás casas de Jacob.
 
 ---
 
 ## Salmo 87:3
 
-> Cosas maravillosas se dicen de ti,  
->  Ciudad de Dios.
+> Se cuentan cosas maravillosas de ti,  
+>  ciudad de Dios.
 
 >  Selah
 
 ## Salmo 87:4
 
-> “Mencionaré a Rahab y Babilonia entre los que me conocen;  
->  He aquí, Filistea y Tiro con Cus:  
+> “Contaré a Rahab y a Babilonia entre los que me conocen;  
+>  mirad a Filistea y a Tiro, junto con Cus:  
 >  ‘Este nació allí.’”
 
 ## Salmo 87:5
 
-> Pero de Sión se dirá: “Este y aquel nacieron en ella”;  
->  Y el Altísimo mismo la sostendrá.
+> Pero de Sion se dirá: “Este y aquel nacieron en ella”;  
+>  y el Altísimo mismo la sostendrá.
 
 ## Salmo 87:6
 
-> El Señor contará al inscribir a los pueblos:  
->  “Este nació allí.”
+> Cuando el Señor haga la lista de los pueblos, anotará:  
+>  “Este nació allí.
 
->  Selah
+> ” Selah
 
 ## Salmo 87:7
 
-> Entonces los que cantan, junto con los que tocan flautas, proclamarán,  
->  “Todas mis fuentes de alegría están en ti.”
+> Y los que cantan, junto con los que tocan la flauta, dirán:  
+>  “En ti están todas mis fuentes de alegría.”

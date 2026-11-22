@@ -32,7 +32,7 @@ Llamó a los doce y comenzó a enviarlos de dos en dos, dándoles autoridad sobr
 
 ## Marcos 6:8
 
-Les instruyó que no llevaran nada para el camino, excepto un bastón: ni pan, ni bolsa, ni dinero en sus cinturones—
+Les instruyó que no llevaran nada para el camino, excepto un bastón: ni pan, ni bolsa, ni dinero en sus cinturones;
 
 ## Marcos 6:9
 
@@ -40,15 +40,15 @@ se les permitió llevar sandalias pero no ponerse dos túnicas.
 
 ## Marcos 6:10
 
-Les dijo: “Dondequiera que entren en una casa, quédense allí hasta que se vayan de ese lugar.
+Les dijo: “Dondequiera que entréis en una casa, quedaos allí hasta que os vayáis de ese lugar.
 
 ## Marcos 6:11
 
-Si en algún lugar no los reciben ni los escuchan, al salir, sacudan el polvo de sus pies como testimonio contra ellos.”
+Si en algún lugar no os reciben ni os escuchan, al salir, sacudid el polvo de vuestros pies como testimonio contra ellos.”
 
 ## Marcos 6:12
 
-Salieron y proclamaron que la gente debía cambiar sus caminos.
+Salieron y proclamaron que la gente debía cambiar de vida.
 
 ## Marcos 6:13
 
@@ -132,7 +132,7 @@ Los apóstoles se reunieron alrededor de Jesús y le contaron todo lo que había
 
 ## Marcos 6:31
 
-Entonces, porque tanta gente iba y venía que ni siquiera tenían tiempo para comer, les dijo: “Vengan ustedes solos a un lugar tranquilo y descansen un poco.”
+Entonces, porque tanta gente iba y venía que ni siquiera tenían tiempo para comer, les dijo: “Venid vosotros solos a un lugar tranquilo y descansad un poco.”
 
 ## Marcos 6:32
 
@@ -158,11 +158,11 @@ Despide a la gente para que vayan a los campos y aldeas cercanas a comprar algo 
 
 ## Marcos 6:37
 
-Pero él respondió: “Denles ustedes algo de comer.” Ellos le dijeron: “¿Debemos ir y gastar doscientos denarios en pan y darles de comer?”
+Pero él respondió: “Dadles vosotros algo de comer.” Ellos le dijeron: “¿Debemos ir y gastar doscientos denarios en pan y darles de comer?”
 
 ## Marcos 6:38
 
-Él les preguntó: “¿Cuántos panes tienen? Vayan y averigüen.” Cuando lo supieron, dijeron: “Cinco, y dos peces.”
+Él les preguntó: “¿Cuántos panes tenéis? Id y averiguadlo.” Cuando lo supieron, dijeron: “Cinco, y dos peces.”
 
 ## Marcos 6:39
 
@@ -212,7 +212,7 @@ Pero cuando lo vieron caminando sobre el mar, pensaron que era un fantasma y gri
 
 ## Marcos 6:50
 
-porque todos lo vieron y se aterrorizaron. Inmediatamente les habló y les dijo: “Tengan ánimo; soy yo. No tengan miedo.”
+porque todos lo vieron y se aterrorizaron. Inmediatamente les habló y les dijo: “Tened ánimo; soy yo. No tengáis miedo.”
 
 ## Marcos 6:51
 

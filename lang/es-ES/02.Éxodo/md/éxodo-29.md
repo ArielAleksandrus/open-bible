@@ -16,7 +16,7 @@ Luego lleva a Aarón y a sus hijos a la entrada de la tienda de reunión y láva
 Toma las vestiduras y viste a Aarón con la túnica, el manto del efod, el efod mismo, y el pectoral, y ciñe el efod sobre él con su banda hábilmente tejida.
 
 ## Éxodo 29:6
-Pon la mitra en su cabeza y coloca la diadema sagrada sobre la mitra.
+Pon el turbante en su cabeza y coloca la diadema sagrada sobre el turbante.
 
 ## Éxodo 29:7
 Toma el aceite de la unción y aplícalo sobre su cabeza para consagrarlo.
@@ -25,7 +25,7 @@ Toma el aceite de la unción y aplícalo sobre su cabeza para consagrarlo.
 Lleva a sus hijos y vístelos con túnicas.
 
 ## Éxodo 29:9
-Ciñe a Aarón y a sus hijos con cinturones y ponles tiaras. El sacerdocio será suyo por estatuto perpetuo. Así consagrarás a Aarón y a sus hijos.
+Ciñe a Aarón y a sus hijos con cinturones y ponles gorros. El sacerdocio será suyo por estatuto perpetuo. Así consagrarás a Aarón y a sus hijos.
 
 ## Éxodo 29:10
 “Lleva el becerro delante de la tienda de reunión, y Aarón y sus hijos pondrán sus manos sobre su cabeza.
@@ -52,7 +52,7 @@ Sacrifica el carnero y toma su sangre y rocíala alrededor sobre el altar.
 Corta el carnero en pedazos y lava las entrañas y las piernas, poniéndolas con su cabeza y los otros pedazos.
 
 ## Éxodo 29:18
-Luego quema todo el carnero sobre el altar. Es una ofrenda quemada al Señor, un aroma agradable, una ofrenda por fuego al Señor.
+Luego quema todo el carnero sobre el altar. Es un holocausto al Señor, un aroma agradable, una ofrenda por fuego al Señor.
 
 ## Éxodo 29:19
 “Toma el otro carnero, y Aarón y sus hijos pondrán sus manos sobre su cabeza.
@@ -70,13 +70,13 @@ Toma parte de la sangre del altar y parte del aceite de la unción y rocíalo so
 De la cesta de pan sin levadura que está delante del Señor, toma un pan, una torta de pan mezclada con aceite, y una oblea.
 
 ## Éxodo 29:24
-Pon todo esto en las manos de Aarón y sus hijos y mece una ofrenda mecida delante del Señor.
+Pon todo esto en las manos de Aarón y sus hijos y mécelo como ofrenda mecida delante del Señor.
 
 ## Éxodo 29:25
-Luego tómalo de sus manos y quémalo sobre el altar sobre la ofrenda quemada como un aroma agradable delante del Señor, una ofrenda por fuego al Señor.
+Luego tómalo de sus manos y quémalo sobre el altar, sobre el holocausto, como un aroma agradable delante del Señor, una ofrenda por fuego al Señor.
 
 ## Éxodo 29:26
-Toma el pecho del carnero de consagración de Aarón y mece una ofrenda mecida delante del Señor; será tu porción.
+Toma el pecho del carnero de consagración de Aarón y mécelo como ofrenda mecida delante del Señor; será tu porción.
 
 ## Éxodo 29:27
 Consagra el pecho de la ofrenda mecida y el muslo de la contribución que fue mecido y ofrecido del carnero de consagración, del que es para Aarón y del que es para sus hijos.
@@ -124,7 +124,7 @@ Con el primer cordero ofrece una décima parte de un efa de la mejor harina mezc
 Ofrece el otro cordero al atardecer con la misma ofrenda de cereal y la misma libación que por la mañana, como un aroma agradable, una ofrenda por fuego al Señor.
 
 ## Éxodo 29:42
-Será una ofrenda quemada continua a través de tus generaciones a la entrada de la tienda de reunión delante del Señor, donde me encontraré contigo para hablarte allí.
+Será un holocausto continuo a través de tus generaciones a la entrada de la tienda de reunión delante del Señor, donde me encontraré contigo para hablarte allí.
 
 ## Éxodo 29:43
 Me encontraré allí con los israelitas, y será consagrado por mi gloria.

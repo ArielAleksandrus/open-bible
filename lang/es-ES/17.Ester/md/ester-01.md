@@ -64,7 +64,7 @@ y que estaban más cerca de él: Carsena, Setar, Admata, Tarsis, Meres, Marsena 
 
 ## Ester 1:15
 
-“¿Qué se debe hacer según la ley a la reina Vasti,” preguntó, “porque no ha cumplido la orden del rey Asuero transmitida por los eunucos?”
+“¿Qué se debe hacer según la ley con la reina Vasti —preguntó—, por no haber cumplido la orden del rey Asuero transmitida por los eunucos?”
 
 ## Ester 1:16
 
@@ -84,7 +84,7 @@ Si le place al rey, que se emita un decreto real y se registre en las leyes de P
 
 ## Ester 1:20
 
-Cuando el decreto del rey sea proclamado en todo su vasto reino, todas las mujeres darán honor a sus maridos, desde el mayor hasta el menor.”
+Cuando el decreto del rey sea proclamado en todo su vasto reino, todas las mujeres darán honor a sus maridos, desde la mayor hasta la menor.”
 
 ## Ester 1:21
 

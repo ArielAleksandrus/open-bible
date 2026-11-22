@@ -13,7 +13,7 @@ Si una joven, que aún vive en la casa de su padre, hace un voto al Señor o se 
 y su padre oye su voto pero no le dice nada, entonces todos sus votos y promesas serán válidos.
 
 ## Números 30:5
-Pero si su padre la prohíbe el día que lo oye, ninguno de sus votos o promesas será válido. El Señor la liberará porque su padre la ha anulado.
+Pero si su padre se lo prohíbe el día que lo oye, ninguno de sus votos o promesas será válido. El Señor la liberará porque su padre se lo ha impedido.
 
 ## Números 30:6
 Si se casa después de hacer un voto o una promesa precipitada,
@@ -43,7 +43,7 @@ Su marido puede confirmar o anular cualquier voto o juramento que ella haga para
 Si él permanece en silencio día tras día, confirma todos sus votos y promesas. Los ha confirmado, porque no le dijo nada el día en que se enteró de ellos.
 
 ## Números 30:15
-Pero si los anula más tarde, él asume la responsabilidad por su culpa.
+Pero si los anula más tarde, él asume la responsabilidad por su culpa.”
 
 ## Números 30:16
 Estas son las regulaciones que el Señor dio a Moisés concernientes a un hombre y su esposa, y entre un padre y su hija mientras ella aún vive en su casa.

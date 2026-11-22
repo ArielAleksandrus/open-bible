@@ -8,7 +8,7 @@ El Espíritu de Dios descendió sobre Azarías, hijo de Oded,
 
 ## 2 Crónicas 15:2
 
-Se acercó a Asa y le dijo: “Escúchame, Asa, y todo Judá y Benjamín: el Señor está con vosotros cuando vosotros estáis con Él. Si lo buscáis, Él os permitirá encontrarlo; pero si lo abandonáis, Él os abandonará.
+Se acercó a Asa y le dijo: “Escuchadme, Asa y todo Judá y Benjamín: el Señor está con vosotros cuando vosotros estáis con Él. Si lo buscáis, Él se dejará encontrar por vosotros; pero si lo abandonáis, Él os abandonará.
 
 ---
 
@@ -20,7 +20,7 @@ Durante mucho tiempo, Israel estuvo sin el verdadero Dios, sin un sacerdote que 
 
 ## 2 Crónicas 15:4
 
-Sin embargo, en su angustia, se volvieron al Señor Dios de Israel, y lo buscaron, y Él les permitió encontrarlo.
+Sin embargo, en su angustia, se volvieron al Señor Dios de Israel, y lo buscaron, y Él se dejó encontrar por ellos.
 
 ---
 
@@ -86,7 +86,7 @@ Además, hicieron un juramento solemne al Señor con fuerte voz, acompañados de
 
 ## 2 Crónicas 15:15
 
-Todo Judá se regocijó por el juramento, porque habían jurado con todo su corazón y lo habían buscado sinceramente, y Él les permitió encontrarlo. Así que el Señor les dio descanso por todos lados.
+Todo Judá se regocijó por el juramento, porque habían jurado con todo su corazón y lo habían buscado sinceramente, y Él se dejó encontrar por ellos. Así que el Señor les dio descanso por todos lados.
 
 ---
 

@@ -26,7 +26,7 @@ Los descendientes de Cam incluyeron a Cus, Egipto, Fut y Canaán.
 
 ## Génesis 10:7
 
-Los descendientes de Cus fueron Seba, Havila, Sabta, Raama y Sabteca; y los hijos de Raama fueron Seba y Dedán.
+Los descendientes de Cus fueron Seba, Havila, Sabta, Raama y Sabteca; y los hijos de Raama fueron Sabá y Dedán.
 
 ## Génesis 10:8
 
@@ -110,7 +110,7 @@ Hadoram, Uzal y Dicla,
 
 ## Génesis 10:28
 
-Obal, Abimael y Seba,
+Obal, Abimael y Sabá,
 
 ## Génesis 10:29
 

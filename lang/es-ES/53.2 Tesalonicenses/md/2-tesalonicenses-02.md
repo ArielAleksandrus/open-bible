@@ -6,19 +6,19 @@ Os rogamos, queridos hermanos y hermanas, en cuanto a la venida de nuestro Seño
 
 ## 2 Tesalonicenses 2:2
 
-que no os dejéis perturbar fácilmente ni alarmar por un espíritu, un mensaje o una carta que se diga ser de nosotros, sugiriendo que el día del Señor ya ha llegado.
+que no os dejéis perturbar fácilmente ni alarmar por un espíritu, un mensaje o una carta supuestamente nuestra, sugiriendo que el día del Señor ya ha llegado.
 
 ## 2 Tesalonicenses 2:3
 
-¡Que nadie os engañe de ninguna manera! Porque ese día no llegará a menos que primero ocurra la rebelión y se revele el hombre de la iniquidad, el hijo de la perdición,
+¡Que nadie os engañe de ninguna manera! Porque ese día no llegará sin que antes venga la rebelión y aparezca el hombre sin ley, el que está condenado a la destrucción,
 
 ## 2 Tesalonicenses 2:4
 
-que se opone y se eleva sobre todo lo que se llama dios u objeto de culto, tanto que se sienta en el templo de Dios, presentándose a sí mismo como Dios.
+que se enfrenta a todo lo que se llama dios o se adora, y se pone por encima de todo ello, hasta el punto de instalarse en el templo de Dios presentándose como si fuera Dios.
 
 ## 2 Tesalonicenses 2:5
 
-¿No recordáis que cuando aún estaba con vosotros, os decía estas cosas?
+¿No os acordáis de que ya os hablaba de esto cuando todavía estaba con vosotros?
 
 ## 2 Tesalonicenses 2:6
 
@@ -26,19 +26,19 @@ Y sabéis lo que actualmente lo detiene, para que se revele a su debido tiempo.
 
 ## 2 Tesalonicenses 2:7
 
-Porque el poder secreto de la iniquidad ya está en acción; solo que aquel que ahora lo retiene continuará haciéndolo hasta que sea quitado de en medio.
+Porque ese poder oculto de la maldad ya está actuando; solo que el que ahora lo frena seguirá haciéndolo hasta que sea quitado de en medio.
 
 ## 2 Tesalonicenses 2:8
 
-Entonces se revelará el inicuo, a quien el Señor Jesús eliminará con el aliento de su boca y pondrá fin con el esplendor de su venida;
+Entonces aparecerá ese hombre sin ley, a quien el Señor Jesús eliminará con el soplo de su boca y destruirá con el resplandor de su venida;
 
 ## 2 Tesalonicenses 2:9
 
-es decir, aquel cuya llegada está en línea con la obra de Satanás, acompañado de todo poder y señales y maravillas engañosas,
+es decir, aquel que llegará con la ayuda de Satanás, con toda clase de poderes y con señales y prodigios para engañar,
 
 ## 2 Tesalonicenses 2:10
 
-y con todo el engaño de la maldad para aquellos que están pereciendo, porque no acogieron el amor de la verdad que los habría salvado.
+y con todas las trampas de la maldad para los que se pierden, porque no aceptaron amar la verdad que los habría salvado.
 
 ## 2 Tesalonicenses 2:11
 
@@ -46,7 +46,7 @@ Por eso, Dios les enviará un fuerte engaño, para que crean lo que es falso,
 
 ## 2 Tesalonicenses 2:12
 
-para que sean juzgados todos los que no creyeron la verdad, sino que se deleitaron en la maldad.
+y así serán juzgados todos los que no creyeron en la verdad, sino que disfrutaron haciendo el mal.
 
 ## 2 Tesalonicenses 2:13
 
@@ -58,12 +58,12 @@ Fue para este propósito que os llamó a través de nuestro evangelio, para que 
 
 ## 2 Tesalonicenses 2:15
 
-Por lo tanto, queridos hermanos y hermanas, manteneos firmes y retened las enseñanzas que os transmitimos, ya sea de palabra o por carta.
+Así que, queridos hermanos y hermanas, manteneos firmes y aferraos a las enseñanzas que os transmitimos, ya sea de palabra o por carta.
 
 ## 2 Tesalonicenses 2:16
 
-Ahora bien, que nuestro Señor Jesucristo mismo y Dios nuestro Padre, que nos amó y por su gracia nos dio eterno consuelo y buena esperanza,
+Que nuestro Señor Jesucristo mismo y Dios nuestro Padre, que nos amó y que por su gracia nos dio un ánimo que nunca se acaba y una buena esperanza,
 
 ## 2 Tesalonicenses 2:17
 
-anime y fortalezca vuestros corazones en toda buena obra y palabra.
+os den ánimo y fuerza en el corazón para hacer y decir siempre lo que es bueno.

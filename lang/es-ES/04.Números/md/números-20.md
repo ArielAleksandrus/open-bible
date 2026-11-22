@@ -10,7 +10,7 @@ No había agua para la comunidad, y se reunieron contra Moisés y Aarón.
 
 ## Números 20:3
 
-El pueblo contenció con Moisés y dijo: “¡Ojalá hubiéramos perecido cuando nuestros hermanos perecieron ante el Señor!
+El pueblo contendió con Moisés y dijo: “¡Ojalá hubiéramos perecido cuando nuestros hermanos perecieron ante el Señor!
 
 ## Números 20:4
 

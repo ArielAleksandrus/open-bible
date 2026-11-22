@@ -6,7 +6,7 @@ En la iglesia de Antioquía había profetas y maestros: Bernabé, Simeón llamad
 
 ## Hechos 13:2
 
-Mientras adoraban y ayunaban, sirviendo al Señor, el Espíritu Santo habló: “Apartadme a Bernabé y a Saulo para la obra a la que los he llamado.”
+Mientras adoraban y ayunaban, sirviendo al Señor, el Espíritu Santo dijo: “Separad para mí a Bernabé y a Saulo, para que hagan el trabajo al que los he llamado.”
 
 ## Hechos 13:3
 
@@ -199,7 +199,7 @@ El siguiente día de reposo, casi toda la ciudad se reunió para escuchar la pal
 
 ## Hechos 13:45
 
-Cuando los líderes judíos vieron a las multitudes, se llenaron de celos. Comenzaron a contradecir lo que Pablo decía y hablaron abusivamente contra él.
+Cuando los líderes judíos vieron a las multitudes, se llenaron de celos. Comenzaron a contradecir lo que Pablo decía y lo insultaban.
 
 ## Hechos 13:46
 
@@ -207,7 +207,7 @@ Entonces Pablo y Bernabé hablaron con valentía: “Era necesario hablaros prim
 
 ## Hechos 13:47
 
-Porque el Señor nos ha instruido:
+Porque el Señor nos ha mandado:
 
 >  ‘Te he puesto como luz para los gentiles,
 >  para que lleves la salvación hasta los confines de la tierra.’”

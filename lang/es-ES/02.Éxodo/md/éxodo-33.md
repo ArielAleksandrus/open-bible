@@ -54,7 +54,7 @@ Si realmente he hallado favor ante Tus ojos, enséñame Tus caminos para que pue
 
 ## Éxodo 33:14
 
-El Señor respondió: “Mi presencia irá contigo, y te daré descanso.”
+El Señor respondió: “Mi presencia te acompañará, y te concederé descanso.”
 
 ## Éxodo 33:15
 
@@ -74,7 +74,7 @@ Moisés entonces dijo: “Por favor, muéstrame Tu gloria.”
 
 ## Éxodo 33:19
 
-Y el Señor dijo: “Haré que toda Mi bondad pase delante de ti, y proclamaré el nombre del Señor delante de ti. Seré misericordioso con quien seré misericordioso, y mostraré compasión con quien mostraré compasión.”
+Y el Señor dijo: “Haré pasar ante ti toda Mi bondad y pronunciaré ante ti el nombre del Señor. Seré bondadoso con quien Yo decida, y tendré compasión de quien Yo decida.”
 
 ## Éxodo 33:20
 

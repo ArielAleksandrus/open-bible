@@ -26,7 +26,7 @@ Tomaron su ganado y sus posesiones, que habían adquirido en Canaán, y fueron a
 
 ## Génesis 46:7
 
-Sus hijos y nietos, sus hijas y nietas —todos sus descendientes los llevó consigo a Egipto—.
+Sus hijos y nietos, sus hijas y nietas: a todos sus descendientes los llevó consigo a Egipto.
 
 ## Génesis 46:8
 
@@ -110,7 +110,7 @@ Con los dos hijos nacidos a José en Egipto, todos los miembros de la casa de Ja
 
 ## Génesis 46:28
 
-Jacob envió a Judá por delante a José para obtener direcciones hacia Gosén. Cuando llegaron a la región de Gosén,
+Jacob envió a Judá por delante a José para que le indicara el camino a Gosén. Cuando llegaron a la región de Gosén,
 
 ## Génesis 46:29
 

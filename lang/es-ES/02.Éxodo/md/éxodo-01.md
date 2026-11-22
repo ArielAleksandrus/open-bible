@@ -19,7 +19,7 @@ Los descendientes de Jacob eran setenta en total, pero José ya estaba en Egipto
 Luego murió José, junto con todos sus hermanos y toda aquella generación.
 
 ## Éxodo 1:7
-Los israelitas fueron fecundos y se multiplicaron mucho; se multiplicaron y crecieron en gran manera, y la tierra se llenó de ellos.
+Los israelitas fueron fecundos y aumentaron mucho; se multiplicaron, se hicieron fortísimos y el país se llenó de ellos.
 
 ## Éxodo 1:8
 Entonces se levantó un nuevo rey sobre Egipto, que no conocía a José.

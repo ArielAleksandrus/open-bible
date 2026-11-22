@@ -26,7 +26,7 @@ Luego la cubrirán con un cuero resistente y extenderán sobre ella un paño de 
 
 ## Números 4:7
 
-Sobre la mesa de la Presencia extenderán un paño de color violeta y colocarán sobre ella los platos, cacerolas, tazones para las ofrendas y las jarras para la ofrenda de bebida; el pan continuo permanecerá sobre ella.
+Sobre la mesa de la Presencia extenderán un paño de color violeta y colocarán sobre ella los platos, cacerolas, tazones para las ofrendas y las jarras para la libación; el pan continuo permanecerá sobre ella.
 
 ## Números 4:8
 
@@ -62,7 +62,7 @@ Después de que Aarón y sus hijos hayan terminado de cubrir los objetos sagrado
 
 ## Números 4:16
 
-Eleazar, hijo de Aarón el sacerdote, estará a cargo del aceite para la luz, el incienso aromático, la ofrenda regular de grano y el aceite de la unción. Él supervisará todo el tabernáculo y todo lo que hay en él, incluyendo sus muebles sagrados y artículos.”
+Eleazar, hijo de Aarón el sacerdote, estará a cargo del aceite para la luz, el incienso aromático, la ofrenda regular de cereal y el aceite de la unción. Él supervisará todo el tabernáculo y todo lo que hay en él, incluyendo sus muebles sagrados y artículos.”
 
 ## Números 4:17
 
@@ -142,7 +142,7 @@ Todos los hombres de treinta a cincuenta años que podían entrar al servicio pa
 
 ## Números 4:36
 
-numerados por sus familias eran 2,750.
+numerados por sus familias eran 2 750.
 
 ## Números 4:37
 
@@ -158,7 +158,7 @@ Todos los hombres de treinta a cincuenta años que podían entrar al servicio pa
 
 ## Números 4:40
 
-numerados por sus familias y por las casas de sus padres, eran 2,630.
+numerados por sus familias y por las casas de sus padres, eran 2 630.
 
 ## Números 4:41
 
@@ -174,7 +174,7 @@ Todos los hombres de treinta a cincuenta años que podían entrar al servicio pa
 
 ## Números 4:44
 
-numerados por sus familias eran 3,200.
+numerados por sus familias eran 3 200.
 
 ## Números 4:45
 
@@ -190,7 +190,7 @@ Todos los hombres de treinta a cincuenta años que podían entrar para hacer el 
 
 ## Números 4:48
 
-fueron numerados 8,580.
+sumaban 8 580.
 
 ## Números 4:49
 

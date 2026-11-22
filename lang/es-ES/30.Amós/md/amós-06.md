@@ -21,7 +21,7 @@
 
 ## Amós 6:4
 
-> Los que se acuestan en camas incrustadas de marfil y se extienden en sus divanes,
+> Los que se acuestan en camas incrustadas de marfil y se tumban en sus divanes,
 >  que comen corderos del rebaño y terneros del medio del establo,
 
 ## Amós 6:5
@@ -36,7 +36,7 @@
 ## Amós 6:7
 
 > Por tanto, ellos serán los primeros en ir al exilio,
->  y cesará la algarabía de los que se extienden.
+>  y cesará la algarabía de los que se tumban.
 
 ## Amós 6:8
 
@@ -69,7 +69,7 @@ Y cuando un pariente o enterrador venga a sacar los huesos de la casa, y diga a 
 ## Amós 6:13
 
 > vosotros que os regocijáis en Lo Debar y decís,
->  “¿No capturamos Karnaim con nuestra propia fuerza?”
+>  “¿No capturamos Carnaim con nuestra propia fuerza?”
 
 ## Amós 6:14
 

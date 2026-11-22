@@ -10,7 +10,7 @@
 
 ## Juan 15:3
 
-Ya estáis limpios por la palabra que os he hablado.
+Vosotros ya estáis limpios gracias a la palabra que os he dicho.
 
 ## Juan 15:4
 
@@ -26,11 +26,11 @@ Si alguien no permanece en mí, es como una rama que se tira y se seca; tales ra
 
 ## Juan 15:7
 
-Si permanecéis en mí y mis palabras permanecen en vosotros, pedid lo que queráis, y os será hecho.
+Si seguís en mí y mis palabras siguen en vosotros, pedid lo que queráis, y se os concederá.
 
 ## Juan 15:8
 
-En esto es glorificado mi Padre, que llevéis mucho fruto y así probéis ser mis discípulos.
+Lo que da gloria a mi Padre es que deis mucho fruto; así demostraréis que sois mis discípulos.
 
 ---
 
@@ -66,7 +66,7 @@ Ya no os llamo siervos, porque el siervo no sabe lo que hace su señor. En cambi
 
 ## Juan 15:16
 
-No me elegisteis vosotros a mí, sino que yo os elegí a vosotros y os designé para que vayáis y llevéis fruto —fruto que perdure— para que todo lo que pidáis al Padre en mi nombre, él os lo dé.
+No fuisteis vosotros los que me escogisteis a mí; fui yo quien os escogió a vosotros, y os he encargado que vayáis y deis fruto, un fruto que dure, para que el Padre os conceda todo lo que le pidáis en mi nombre.
 
 ## Juan 15:17
 

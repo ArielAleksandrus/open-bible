@@ -70,7 +70,7 @@ Dios los sacó de Egipto; poseen la fuerza de un buey poderoso.
 No hay encantamiento contra Jacob, ni adivinación contra Israel. Ahora se dirá de Jacob e Israel: ‘¡Mira lo que Dios ha hecho!’
 
 ## Números 23:24
-El pueblo se levanta como una leona; se despiertan como un león que no descansa hasta devorar su presa y beber la sangre de los muertos.”
+El pueblo se levanta como una leona; se despierta como un león que no descansa hasta devorar su presa y beber la sangre de los muertos.”
 
 ## Números 23:25
 Balac dijo a Balaam: “¡Refrénate de maldecirlos o bendecirlos!”

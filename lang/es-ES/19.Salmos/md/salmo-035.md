@@ -4,159 +4,159 @@
 
 ## Salmo 35:1
 
-> Oh Señor, pelea contra los que pelean contra mí;  
->  Lucha contra los que luchan contra mí.
+> Señor, enfréntate a los que se enfrentan conmigo;  
+>  lucha contra los que luchan contra mí.
 
 ## Salmo 35:2
 
 > Empuña el escudo y la armadura,  
->  Y levántate para ayudarme.
+>  y levántate para ayudarme.
 
 ## Salmo 35:3
 
-> Saca la lanza y el dardo para enfrentar a los que me persiguen;  
->  Asegura a mi alma: “Yo soy tu salvación.”
+> Saca la lanza y la jabalina para hacer frente a los que me persiguen;  
+>  Dime a mí mismo: “Yo soy tu salvación.”
 
 ---
 
 ## Salmo 35:4
 
-> Sean avergonzados y deshonrados los que buscan mi vida;  
->  Sean vueltos atrás y humillados los que traman mal contra mí.
+> Que pasen vergüenza y deshonra los que quieren quitarme la vida;  
+>  Que tengan que retroceder humillados los que planean hacerme daño.
 
 ## Salmo 35:5
 
-> Sean como paja ante el viento,  
->  Con el ángel del Señor empujándolos.
+> Que sean como la paja que se lleva el viento,  
+>  y que el ángel del Señor los vaya empujando.
 
 ## Salmo 35:6
 
-> Sea su camino oscuro y resbaladizo,  
->  Con el ángel del Señor persiguiéndolos.
+> Que su camino se vuelva oscuro y resbaladizo,  
+>  y que el ángel del Señor los vaya persiguiendo.
 
 ---
 
 ## Salmo 35:7
 
-> Porque sin causa tendieron su red para mí;  
->  Sin causa cavaron una fosa para mi alma.
+> Porque sin ningún motivo me tendieron una red;  
+>  sin ningún motivo me cavaron una fosa para matarme.
 
 ## Salmo 35:8
 
-> Venga sobre él la destrucción sin que lo sepa,  
->  Y que la red que escondió lo atrape;  
->  Caiga en esa misma destrucción.
+> Que la ruina le llegue cuando menos lo espere,  
+>  y que lo atrape la misma red que él escondió;  
+>  Que caiga en esa misma ruina.
 
 ## Salmo 35:9
 
-> Y mi alma se regocijará en el Señor;  
->  Se alegrará en Su salvación.
+> Entonces me llenaré de alegría por el Señor;  
+>  me pondré feliz porque Él me salva.
 
 ## Salmo 35:10
 
-> Todos mis huesos dirán: “Señor, ¿quién como Tú,  
->  Que libras al afligido de uno más fuerte que él,  
->  Y al afligido y al pobre del que lo despoja?”
+> Diré con todo mi ser: “Señor, ¿quién hay como Tú?  
+>  Tú pones a salvo al débil del que es más fuerte que él,  
+>  y al débil y al pobre del que los roba.”
 
 ---
 
 ## Salmo 35:11
 
-> Se levantan testigos falsos;  
->  Me preguntan sobre cosas que no sé.
+> Se presentan testigos falsos;  
+>  me hacen preguntas sobre cosas de las que no sé nada.
 
 ## Salmo 35:12
 
-> Me devuelven mal por bien,  
->  Trayendo tristeza a mi alma.
+> Me pagan con mal el bien que hago,  
+>  Y me llenan el alma de tristeza.
 
 ## Salmo 35:13
 
-> Pero en cuanto a mí, cuando ellos estaban enfermos, vestía de cilicio;  
->  Humillaba mi alma con ayuno,  
->  Pero mi oración regresaba sin respuesta.
+> Pero yo, cuando ellos estaban enfermos, me vestía de luto;  
+>  Me humillaba ayunando,  
+>  pero mi oración volvía sin respuesta.
 
 ## Salmo 35:14
 
-> Me comportaba como si fuera mi amigo o hermano;  
->  Me inclinaba en duelo, como quien llora por una madre.
+> Iba de un lado a otro como si se tratara de mi amigo o de mi hermano;  
+>  andaba cabizbajo y de luto, como quien llora a su madre.
 
 ## Salmo 35:15
 
-> Pero en mi tropiezo se alegraron y se reunieron;  
->  Los afligidos que no conocía se juntaron contra mí,  
->  Me calumniaron sin cesar.
+> Pero cuando tropecé, se alegraron y se juntaron;  
+>  gente miserable que yo no conocía se juntó contra mí,  
+>  y hablaban mal de mí sin parar.
 
 ## Salmo 35:16
 
-> Como bufones irreverentes en un banquete,  
->  Crujían los dientes contra mí.
+> Como bufones irrespetuosos en un banquete,  
+>  Me enseñaban los dientes con rabia.
 
 ---
 
 ## Salmo 35:17
 
-> Señor, ¿hasta cuándo mirarás?  
->  Rescata mi alma de sus estragos,  
->  Mi preciosa vida de los leones.
+> Señor, ¿hasta cuándo vas a quedarte mirando?  
+>  Rescata mi alma del daño que me hacen,  
+>  Rescata de los leones mi vida, lo único que tengo.
 
 ## Salmo 35:18
 
-> Te daré gracias en la gran congregación;  
->  Te alabaré entre una vasta asamblea.
+> Te daré gracias delante de todo el pueblo reunido;  
+>  te alabaré ante una multitud.
 
 ## Salmo 35:19
 
-> No dejes que se alegren sobre mí los que son injustamente mis enemigos;  
->  Ni dejes que los que me odian sin causa guiñen maliciosamente.
+> No dejes que se rían de mí los que son mis enemigos sin razón;  
+>  ni que los que me odian sin motivo se guiñen el ojo con malicia.
 
 ## Salmo 35:20
 
 > Porque no hablan de paz,  
->  Sino que traman palabras engañosas contra los que viven tranquilos en la tierra.
+>  sino que inventan mentiras contra la gente tranquila del país.
 
 ## Salmo 35:21
 
-> Abrieron su boca de par en par contra mí;  
->  Exclamaron: “¡Ajá, ajá! ¡Nuestros ojos lo han visto!”
+> Abren la boca de par en par contra mí; Gritan:  
+>  “¡Ajá, ajá! ¡Lo hemos visto con nuestros propios ojos!”
 
 ---
 
 ## Salmo 35:22
 
-> Tú lo has visto, Señor, no guardes silencio;  
->  Señor, no te alejes de mí.
+> Tú lo has visto, Señor, no te quedes callado;  
+>  Señor, no te quedes lejos de mí.
 
 ## Salmo 35:23
 
-> Despiértate, y levántate para mi derecho Y para mi causa,  
+> Despierta, ponte en pie para defender mi derecho Y mi causa,  
 >  Dios mío y Señor mío.
 
 ## Salmo 35:24
 
-> Júzgame, Señor mi Dios, conforme a Tu justicia,  
->  Y evita que se alegren sobre mí.
+> Señor mi Dios, Tú que eres justo, hazme justicia,  
+>  y no dejes que se rían de mí.
 
 ---
 
 ## Salmo 35:25
 
-> No dejes que digan en su corazón: “¡Ajá, nuestro deseo!”  
->  No dejes que digan: “¡Lo hemos consumido!”
+> No dejes que piensen: “¡Ajá, justo lo que queríamos!”  
+>  No dejes que digan: “¡Hemos acabado con él!”
 
 ## Salmo 35:26
 
-> Sean avergonzados y completamente humillados los que se alegran de mi angustia;  
->  Sean vestidos de vergüenza y deshonra los que se exaltan sobre mí.
+> Que pasen vergüenza y humillación todos juntos los que se alegran de mi desgracia;  
+>  Que se cubran de vergüenza y deshonra los que se creen más que yo.
 
 ## Salmo 35:27
 
-> Griten de alegría y regocíjense, los que se deleitan en mi vindicación;  
->  Y que continuamente digan: “Sea exaltado el Señor,  
->  Que se deleita en la prosperidad de Su siervo.”
+> Que griten de alegría y se pongan felices los que desean que se me haga justicia;  
+>  y que digan siempre: “¡Grande es el Señor,  
+>  que se alegra cuando a Su siervo le va bien!”
 
 ---
 
 ## Salmo 35:28
 
-> Y mi lengua proclamará Tu justicia Y Tu alabanza durante todo el día.
+> Y mi lengua hablará de Tu justicia Y de Tu alabanza a lo largo de todo el día.

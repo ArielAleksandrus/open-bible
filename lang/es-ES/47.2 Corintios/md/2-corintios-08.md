@@ -22,15 +22,15 @@ Y esto, más allá de lo que habíamos anticipado, pues primero se dedicaron al 
 
 ## 2 Corintios 8:6
 
-Así que animamos a Tito que, como había iniciado esto anteriormente, también llevara a término esta obra de gracia entre vosotros.
+Así que animamos a Tito a que, como había iniciado esto anteriormente, también llevara a término esta obra de gracia entre vosotros.
 
 ## 2 Corintios 8:7
 
-Pero así como sobresalís en todo —en fe, palabra, conocimiento, en toda diligencia, y en el amor que inspiramos en vosotros— aseguraos de que también sobresalís en esta obra de gracia.
+Pero así como sobresalís en todo —en fe, palabra, conocimiento, en toda diligencia, y en el amor que inspiramos en vosotros— aseguraos de que también sobresalgáis en esta obra de gracia.
 
 ## 2 Corintios 8:8
 
-No estoy emitiendo esto como un mandato, sino como un medio para probar la sinceridad de vuestro amor a través de la diligencia de otros.
+No lo digo como un mandato, sino como un medio para probar la sinceridad de vuestro amor a través de la diligencia de otros.
 
 ## 2 Corintios 8:9
 
@@ -42,7 +42,7 @@ Ofrezco mi opinión en este asunto, porque es para vuestro beneficio, vosotros q
 
 ## 2 Corintios 8:11
 
-Pero ahora terminad de hacerlo también, para que así como hubo la disposición de hacerlo, también haya la finalización de ello según vuestra capacidad.
+Pero ahora terminad de hacerlo también, para que así como hubo la disposición de hacerlo, también lo llevéis a cabo según vuestra capacidad.
 
 ## 2 Corintios 8:12
 
@@ -50,7 +50,7 @@ Porque si hay disposición, es aceptable según lo que una persona tiene, no seg
 
 ## 2 Corintios 8:13
 
-Porque esto no está destinado a aliviar a otros y cargaros a vosotros, sino como una cuestión de equidad—
+Porque esto no está destinado a aliviar a otros y cargaros a vosotros, sino como una cuestión de equidad.
 
 ## 2 Corintios 8:14
 
@@ -58,7 +58,7 @@ En este momento presente vuestra abundancia cubrirá su necesidad, para que su a
 
 ## 2 Corintios 8:15
 
-Como dice la escritura: “El que recogió mucho no tuvo demasiado, y el que recogió poco no tuvo demasiado poco.”
+Como dice la escritura: “El que recogió mucho no tuvo demasiado, y el que recogió poco no tuvo de menos.”
 
 ## 2 Corintios 8:16
 

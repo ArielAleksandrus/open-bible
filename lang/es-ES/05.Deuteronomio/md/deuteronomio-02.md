@@ -30,7 +30,7 @@ Porque el Señor vuestro Dios os ha bendecido en toda la obra de vuestras manos.
 
 ## Deuteronomio 2:8
 
-Así que pasamos por nuestros hermanos, los descendientes de Esaú, que viven en Seir, alejándonos del camino del Arabá, lejos de Elat y Ezión-geber, y nos volvimos y viajamos por el camino del desierto de Moab.
+Así que pasamos de largo junto a nuestros hermanos, los descendientes de Esaú, que viven en Seir, alejándonos del camino del Arabá, lejos de Elat y Ezión-geber, y nos volvimos y viajamos por el camino del desierto de Moab.
 
 ## Deuteronomio 2:9
 
@@ -90,7 +90,7 @@ El Señor hizo lo mismo por los descendientes de Esaú, que viven en Seir, cuand
 
 ## Deuteronomio 2:23
 
-Respecto a los avitas que vivían en aldeas hasta Gaza, los caftoritas que salieron de Caftor los vencieron y se establecieron en su lugar.
+Respecto a los avitas que vivían en aldeas hasta Gaza, los caftoritas que salieron de Caftor los vencieron y se establecieron en su lugar.)
 
 ## Deuteronomio 2:24
 

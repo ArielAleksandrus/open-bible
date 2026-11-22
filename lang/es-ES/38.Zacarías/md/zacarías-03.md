@@ -4,10 +4,10 @@
 Entonces me mostró a Josué, el sumo sacerdote, de pie delante del ángel del Señor, con Satanás a su derecha para acusarlo.
 
 ## Zacarías 3:2
-El Señor dijo a Satanás: “¡El Señor te reprenda, Satanás! ¡El Señor, que ha escogido a Jerusalén, te reprenda! ¿No es este un tizón arrebatado del fuego?”
+El Señor dijo a Satanás: “¡Que el Señor te reprenda, Satanás! ¡Que te reprenda el Señor, que ha escogido a Jerusalén! ¿No es este un leño encendido sacado del fuego?”
 
 ## Zacarías 3:3
-Ahora Josué estaba vestido con vestiduras sucias mientras estaba de pie delante del ángel.
+Josué estaba vestido con vestiduras sucias mientras estaba de pie delante del ángel.
 
 ## Zacarías 3:4
 El ángel dijo a los que estaban delante de él: “Quitadle las vestiduras sucias.” Luego dijo a Josué: “Mira, he quitado tu iniquidad, y te vestiré con ropas ricas.”

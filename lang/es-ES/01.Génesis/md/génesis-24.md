@@ -19,7 +19,7 @@ El siervo le preguntó: “¿Y si la mujer no quiere volver conmigo a esta tierr
 “Ten cuidado de no llevar a mi hijo allá,” respondió Abraham.
 
 ## Génesis 24:7
-“El Señor, el Dios del cielo, que me sacó de la casa de mi padre y de mi tierra natal, y que me habló y me juró, diciendo: ‘A tus descendientes daré esta tierra’ —Él enviará Su ángel delante de ti, y tomarás una esposa para mi hijo de allí—.
+“El Señor, el Dios del cielo, que me sacó de la casa de mi padre y de mi tierra natal, y que me habló y me juró, diciendo: ‘A tus descendientes daré esta tierra’, Él enviará Su ángel delante de ti, y de allí tomarás una esposa para mi hijo.
 
 ## Génesis 24:8
 Pero si la mujer no quiere seguirte, quedarás libre de este juramento mío; solo no lleves a mi hijo allá.”
@@ -40,7 +40,7 @@ Y oró: “Señor, Dios de mi señor Abraham, por favor concédeme éxito hoy, y
 Mira, estoy junto al manantial, y las hijas de los habitantes de la ciudad están saliendo a sacar agua.
 
 ## Génesis 24:14
-Que sea la joven a quien yo diga: ‘Por favor, baja tu cántaro para que yo beba,’ y que responda: ‘Bebe, y también daré de beber a tus camellos’ —que sea ella la que Tú has designado para Tu siervo Isaac. Por esto sabré que has mostrado bondad a mi señor—.”
+Que sea la joven a quien yo diga: ‘Por favor, baja tu cántaro para que yo beba,’ y que responda: ‘Bebe, y también daré de beber a tus camellos’, que sea ella la que Tú has designado para Tu siervo Isaac. Por esto sabré que has mostrado bondad a mi señor.”
 
 ## Génesis 24:15
 Antes de que terminara de orar, Rebeca salió con su cántaro sobre su hombro. Era hija de Betuel, hijo de Milca, la esposa del hermano de Abraham, Nacor.
@@ -97,7 +97,7 @@ Tan pronto como vio el anillo en la nariz y los brazaletes en los brazos de su h
 Así que el hombre fue a la casa, y descargaron los camellos. Trajeron paja y forraje para los camellos, y agua para lavar sus pies y los pies de los hombres que estaban con él.
 
 ## Génesis 24:33
-Le sirvieron comida, pero él dijo: “No comeré hasta que les haya dicho lo que tengo que decir.” “Habla,” dijo Labán.
+Le sirvieron comida, pero él dijo: “No comeré hasta que os haya dicho lo que tengo que decir.” “Habla,” dijo Labán.
 
 ## Génesis 24:34
 Él comenzó, “Soy el siervo de Abraham.
@@ -121,13 +121,13 @@ Entonces pregunté a mi señor, ‘¿Y si la mujer no me sigue?’
 Él respondió, ‘El Señor, ante quien he caminado, enviará Su ángel contigo y hará exitoso tu viaje, para que puedas encontrar una esposa para mi hijo de mi propio clan y de la familia de mi padre.
 
 ## Génesis 24:41
-Quedarás libre de mi juramento si, cuando vayas a mi familia, ellos se niegan a dártela —entonces quedarás libre de mi juramento—.’
+Quedarás libre de mi juramento si, cuando vayas a mi familia, ellos se niegan a dártela, entonces quedarás libre de mi juramento.’
 
 ## Génesis 24:42
 “Cuando llegué hoy al manantial, oré, ‘Señor, Dios de mi señor Abraham, si es Tu voluntad, por favor concede éxito al viaje en el que he venido.
 
 ## Génesis 24:43
-He aquí, estoy junto al manantial. Si una joven sale a sacar agua y yo le digo, “Por favor, déjame beber un poco de agua de tu cántaro,”
+Aquí estoy, junto al manantial. Si una joven sale a sacar agua y yo le digo, “Por favor, déjame beber un poco de agua de tu cántaro,”
 
 ## Génesis 24:44
 y ella responde, “Bebe, y también sacaré agua para tus camellos,” que sea ella la que el Señor ha elegido para el hijo de mi señor.’
@@ -145,7 +145,7 @@ Le pregunté, ‘¿De quién eres hija?’ Ella dijo, ‘Hija de Betuel, hijo de
 Me incliné y adoré al Señor. Alabé al Señor, el Dios de mi señor Abraham, que me había guiado por el camino correcto para tomar a la hija del hermano de mi señor para su hijo.
 
 ## Génesis 24:49
-Ahora bien, si mostraréis bondad y fidelidad a mi señor, decidme; y si no, hacédmelo saber, para que sepa a qué camino dirigirme.”
+Ahora bien, si queréis mostrar bondad y fidelidad a mi señor, decídmelo; y si no, hacédmelo saber, para que sepa a qué camino dirigirme.”
 
 ## Génesis 24:50
 Labán y Betuel respondieron, “Este asunto es del Señor; no podemos hablarte ni bien ni mal.
@@ -160,13 +160,13 @@ Cuando el siervo de Abraham oyó sus palabras, se inclinó al suelo ante el Señ
 Luego el siervo sacó joyas de plata y oro y vestidos y se los dio a Rebeca; también dio regalos preciosos a su hermano y a su madre.
 
 ## Génesis 24:54
-Luego él y los hombres que estaban con él comieron y bebieron y pasaron la noche allí. Cuando se levantaron por la mañana, dijo, “Envíame en mi camino a mi señor.”
+Luego él y los hombres que estaban con él comieron y bebieron y pasaron la noche allí. Cuando se levantaron por la mañana, dijo, “Dejadme volver a mi señor.”
 
 ## Génesis 24:55
 Pero su hermano y su madre dijeron, “Que la joven se quede con nosotros unos días, digamos diez; luego podrá irse.”
 
 ## Génesis 24:56
-Pero él les dijo, “No me detengáis, ahora que el Señor ha concedido éxito a mi viaje. Enviadme en mi camino para que pueda ir a mi señor.”
+Pero él les dijo, “No me detengáis, ahora que el Señor ha concedido éxito a mi viaje. Dejadme partir para que vuelva a mi señor.”
 
 ## Génesis 24:57
 Entonces dijeron, “Llamemos a la joven y preguntémosle.”
@@ -178,7 +178,7 @@ Así que llamaron a Rebeca y le preguntaron, “¿Irás con este hombre?” Ella
 Así que enviaron a Rebeca, su hermana, en su viaje, junto con su nodriza y el siervo de Abraham y sus hombres.
 
 ## Génesis 24:60
-Y bendijeron a Rebeca y le dijeron, “Nuestra hermana, que te conviertas en miles de diez miles; que tus descendientes posean las puertas de aquellos que los odian.”
+Y bendijeron a Rebeca y le dijeron, “Hermana nuestra, que llegues a ser millares de millares; que tus descendientes posean las puertas de aquellos que los odian.”
 
 ## Génesis 24:61
 Entonces Rebeca y sus doncellas se prepararon y montaron los camellos y siguieron al hombre. Así que el siervo tomó a Rebeca y partió.

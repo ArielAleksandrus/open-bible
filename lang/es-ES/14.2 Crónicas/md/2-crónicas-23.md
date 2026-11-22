@@ -90,7 +90,7 @@ Entonces sacaron al hijo del rey y le pusieron la corona, y le entregaron el tes
 ## 2 Crónicas 23:12
 
 Cuando Atalía oyó el ruido del pueblo corriendo y celebrando al rey,  
- entró en la casa del Señor hacia el pueblo.
+ fue hacia el pueblo, a la casa del Señor.
 
 ---
 

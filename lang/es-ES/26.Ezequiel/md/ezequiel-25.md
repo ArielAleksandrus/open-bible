@@ -22,7 +22,7 @@ Haré de Rabá un pastizal para camellos y de Amón un lugar de descanso para re
 
 ## Ezequiel 25:6
 
-Porque esto es lo que dice el Señor Dios: Porque habéis aplaudido con las manos y golpeado con los pies, y os habéis regocijado con toda la malicia en vuestro corazón contra la tierra de Israel,
+Porque esto es lo que dice el Señor Dios: Porque habéis batido las palmas y golpeado el suelo con los pies, y os habéis regocijado con toda la malicia en vuestro corazón contra la tierra de Israel,
 
 ## Ezequiel 25:7
 

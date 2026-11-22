@@ -211,7 +211,7 @@ Pero por la mañana, cuando el vino había salido de Nabal, su esposa le contó 
 
 ## 1 Samuel 25:38
 
-Unos diez días después, el Señor hizo que Nabal falleciera.
+Unos diez días después, el Señor hirió a Nabal, y murió.
 
 ---
 
@@ -219,9 +219,9 @@ Unos diez días después, el Señor hizo que Nabal falleciera.
 
 Cuando David oyó que Nabal había muerto, dijo,  
  “Bendito sea el Señor, que ha defendido la causa del insulto dirigido a mí por la mano de Nabal,  
- y ha mantenido a Su siervo del mal.  
- El Señor también ha devuelto el mal de Nabal sobre su propia cabeza.”  
- Entonces David envió una propuesta a Abigail, para tomarla como su esposa.
+ y ha guardado a Su siervo de hacer el mal.  
+ El Señor también ha devuelto el mal de Nabal sobre su propia cabeza.  
+” Entonces David envió una propuesta a Abigail, para tomarla como su esposa.
 
 ## 1 Samuel 25:40
 

@@ -13,7 +13,7 @@ En las visiones de Dios, Él me llevó a la tierra de Israel y me puso sobre un 
 El hombre me dijo: “Hijo de hombre, observa con tus ojos, escucha con tus oídos, y presta atención a todo lo que te voy a mostrar, porque has sido traído aquí para que te lo muestre. Informa a la casa de Israel todo lo que veas.”
 
 ## Ezequiel 40:5
-Y he aquí, había un muro que rodeaba el área del templo, y la vara de medir en la mano del hombre era de seis codos de largo, cada codo siendo un codo y un palmo. Midió el muro; era una vara de espesor y una vara de altura.
+Y he aquí, había un muro que rodeaba el área del templo, y la vara de medir en la mano del hombre era de seis codos de largo, cada codo de un codo y un palmo. Midió el muro; era una vara de espesor y una vara de altura.
 
 ## Ezequiel 40:6
 Luego fue a la puerta que daba al este, subió sus escalones, y midió el umbral de la puerta; tenía una vara de profundidad.
@@ -67,7 +67,7 @@ Sus cámaras de guardia —tres a cada lado—, sus pilares laterales y su pórt
 Sus ventanas, su pórtico, y sus decoraciones de palmeras tenían las mismas medidas que las de la puerta que daba al este. Siete escalones llevaban a ella, con su pórtico frente a ellos.
 
 ## Ezequiel 40:23
-Una puerta al atrio interior daba al norte, similar a la del este. Midió de una puerta a la opuesta; era de cien codos.
+Frente a la puerta norte había una puerta del atrio interior, similar a la del este. Midió de una puerta a la opuesta; era de cien codos.
 
 ## Ezequiel 40:24
 Luego me llevó al lado sur, y he aquí, había una puerta que daba al sur. Midió sus pilares laterales y su pórtico, y tenían las mismas medidas que los otros.
@@ -112,10 +112,10 @@ al igual que sus cámaras de guardia, sus pilares laterales, y su pórtico, y te
 Su pórtico daba al atrio exterior; palmeras decoraban los pilares laterales a cada lado, y ocho escalones llevaban a él.
 
 ## Ezequiel 40:38
-Una cámara con una puerta estaba junto a los pilares laterales en las puertas, donde lavaban las ofrendas quemadas.
+Una cámara con una puerta estaba junto a los pilares laterales en las puertas, donde lavaban los holocaustos.
 
 ## Ezequiel 40:39
-En el pórtico de la puerta había dos mesas a cada lado, usadas para el sacrificio de ofrendas quemadas, ofrendas por el pecado, y ofrendas por la culpa.
+En el pórtico de la puerta había dos mesas a cada lado, usadas para el sacrificio de holocaustos, ofrendas por el pecado, y ofrendas por la culpa.
 
 ## Ezequiel 40:40
 En el lado exterior, al subir a la entrada de la puerta norte, había dos mesas, y en el otro lado del pórtico de la puerta había dos mesas.
@@ -124,7 +124,7 @@ En el lado exterior, al subir a la entrada de la puerta norte, había dos mesas,
 Así que había cuatro mesas a un lado de la puerta y cuatro al otro —ocho mesas en total— en las que se sacrificaban las ofrendas.
 
 ## Ezequiel 40:42
-También había cuatro mesas de piedra labrada para las ofrendas quemadas, cada una de un codo y medio de largo, un codo y medio de ancho, y un codo de alto. En ellas se colocaban los utensilios para preparar las ofrendas quemadas y los otros sacrificios.
+También había cuatro mesas de piedra labrada para los holocaustos, cada una de un codo y medio de largo, un codo y medio de ancho, y un codo de alto. En ellas se colocaban los utensilios para preparar los holocaustos y los otros sacrificios.
 
 ## Ezequiel 40:43
 Los ganchos de doble punta, cada uno de un palmo de largo, estaban sujetos a la pared alrededor. Las mesas eran para la carne de las ofrendas.

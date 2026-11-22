@@ -54,11 +54,11 @@ Apliqué mi mente para buscar y explorar con sabiduría todo lo que se hace bajo
 
 ## Eclesiastés 1:14
 
-He visto todo lo que se hace bajo el sol; todos ellos son sin sentido y una mera persecución del viento.
+He visto todo lo que se hace bajo el sol; todo ello carece de sentido y es correr tras el viento.
 
 ## Eclesiastés 1:15
 
-Lo torcido no se puede enderezar; lo que falta no se puede contar.
+Lo que está torcido nadie lo puede poner derecho, y lo que falta ni siquiera se puede contar.
 
 ## Eclesiastés 1:16
 

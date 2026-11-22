@@ -4,8 +4,8 @@
 
 ## Salmo 140:1
 
-> Rescátame, Señor, de la gente malvada;  
->  Protégeme de los hombres violentos
+> Señor, rescátame de la gente mala;  
+>  protégeme de los violentos,
 
 ## Salmo 140:2
 
@@ -14,8 +14,8 @@
 
 ## Salmo 140:3
 
-> Afilan su lengua como una serpiente;  
->  El veneno de una víbora está bajo sus labios.
+> Tienen la lengua afilada como una serpiente;  
+>  esconden veneno de víbora detrás de los labios.
 
 >  Selah
 
@@ -23,14 +23,14 @@
 
 ## Salmo 140:4
 
-> Guárdame, Señor, de las manos de los malvados;  
->  Protégeme de los hombres violentos Que intentan hacerme tropezar.
+> Señor, líbrame de las manos de los malvados;  
+>  protégeme de los violentos, que quieren hacerme caer.
 
 ## Salmo 140:5
 
-> Los orgullosos han tendido una trampa para mí, con lazos;  
->  Han extendido una red junto al camino;  
->  Han puesto trampas para mí.
+> Los orgullosos me han escondido una trampa con cuerdas;  
+>  han tendido una red al borde del camino;  
+>  me han preparado trampas.
 
 >  Selah
 
@@ -38,18 +38,18 @@
 
 ## Salmo 140:6
 
-> Declaré al Señor: “Tú eres mi Dios;  
->  Escucha, Señor, el sonido de mi súplica.”
+> Yo le dije al Señor: “Tú eres mi Dios;  
+>  Señor, oye mi voz cuando te suplico.”
 
 ## Salmo 140:7
 
-> Señor soberano, la fuerza de mi salvación,  
->  Has protegido mi cabeza en el día de la batalla.
+> Señor Dios, Tú que me salvas con Tu poder,  
+>  Tú me protegiste la cabeza el día de la batalla.
 
 ## Salmo 140:8
 
-> No concedas, Señor, los deseos de los malvados;  
->  No dejes que sus planes malvados tengan éxito, para que no se exalten.
+> Señor, no dejes que los malvados consigan lo que quieren;  
+>  no permitas que sus malos planes salgan bien, para que no se llenen de orgullo.
 
 >  Selah
 
@@ -57,28 +57,26 @@
 
 ## Salmo 140:9
 
-> En cuanto a los que me rodean,  
->  Que sus propias palabras les causen daño.
+> Que a los que me rodean les caiga encima el daño de sus propias palabras.
 
 ## Salmo 140:10
 
-> Que caigan sobre ellos carbones encendidos;  
->  Que sean arrojados al fuego,  
->  A pozos profundos de los que no puedan escapar.
+> Que les lluevan brasas encendidas;  
+>  que caigan al fuego,  
+>  a pozos profundos de los que no puedan salir.
 
 ## Salmo 140:11
 
 > Que un calumniador no perdure en la tierra;  
->  Que el mal persiga al hombre violento hasta su ruina.
+>  que el mal persiga al hombre violento hasta su ruina.
 
 ---
 
 ## Salmo 140:12
 
-> Estoy seguro de que el Señor defenderá la causa de los afligidos,  
->  Y hará justicia a los pobres.
+> Sé que el Señor defenderá la causa del que sufre y hará justicia a los pobres.
 
 ## Salmo 140:13
 
-> Ciertamente los justos darán gracias a Tu nombre;  
->  Los rectos habitarán en Tu presencia.
+> Es seguro que los justos darán gracias a Tu nombre;  
+>  los rectos vivirán en Tu presencia.

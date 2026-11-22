@@ -100,7 +100,7 @@ Así que el Señor envió una peste sobre Israel desde la mañana hasta el tiemp
 Cuando el ángel extendió su mano hacia Jerusalén para destruirla,  
  el Señor se arrepintió del desastre,  
  y dijo al ángel que destruía al pueblo:  
- “¡Basta! Ahora relaja tu mano.”  
+ “¡Basta! Retira ya tu mano.”  
  Y el ángel del Señor estaba junto a la era de Arauna el jebuseo.
 
 ## 2 Samuel 24:17
@@ -130,11 +130,11 @@ Arauna miró hacia abajo y vio al rey y a sus siervos que cruzaban hacia él,
 ## 2 Samuel 24:21
 
 Entonces Arauna dijo:  
- “¿Por qué ha venido mi señor el rey a su siervo?”  
- David dijo:  
+ “¿Por qué ha venido mi señor el rey a su siervo?  
+” David dijo:  
  “Para comprar de ti la era,  
  para edificar un altar al Señor,  
- para que la peste sea detenida del pueblo.”
+ para que cese la peste sobre el pueblo.”
 
 ## 2 Samuel 24:22
 

@@ -10,7 +10,7 @@ Esaú tomó sus esposas de las hijas de Canaán: Ada, hija de Elón el hitita, y
 
 ## Génesis 36:3
 
-y Basemat, hija de Ismael, hermana de Nebayot.
+y Basemat, hija de Ismael, hermana de Nebaiot.
 
 ## Génesis 36:4
 

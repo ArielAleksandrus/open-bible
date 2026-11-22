@@ -28,7 +28,7 @@ La joven era muy hermosa,
 
 ## 1 Reyes 1:5
 
-Adonías, hijo de Haguit, se propuso a sí mismo declarar,  
+Adonías, hijo de Haguit, se enalteció diciendo:  
  “Yo seré rey.”  
  Y se preparó carros y jinetes y cincuenta hombres que corrieran delante de él.
 
@@ -174,8 +174,8 @@ Pero a mí, incluso a mí tu siervo,
 ## 1 Reyes 1:28
 
 El rey David respondió,  
- “Llamen a Betsabé.”  
- Así que ella vino a la presencia del rey y se paró delante del rey.
+ “Llamadme a Betsabé.  
+” Así que ella vino a la presencia del rey y se paró delante del rey.
 
 ## 1 Reyes 1:29
 
@@ -200,15 +200,15 @@ Entonces Betsabé se inclinó con su rostro en tierra,
 ## 1 Reyes 1:32
 
 Entonces el rey David dijo,  
- “Llamen a Sadoc el sacerdote, a Natán el profeta, y a Benaía hijo de Joiada.”  
- Así que ellos vinieron a la presencia del rey.
+ “Llamadme a Sadoc el sacerdote, a Natán el profeta, y a Benaía hijo de Joiada.  
+” Así que ellos vinieron a la presencia del rey.
 
 ## 1 Reyes 1:33
 
 Y el rey les instruyó,  
- “Tomen con ustedes a los siervos de su señor,  
- y hagan que mi hijo Salomón monte en mi propia mula,  
- y llévenlo a Gihón.
+ “Tomad con vosotros a los siervos de vuestro señor,  
+ y haced que mi hijo Salomón monte en mi propia mula,  
+ y llevadlo a Gihón.
 
 ## 1 Reyes 1:34
 
@@ -217,7 +217,7 @@ Y que Sadoc el sacerdote y Natán el profeta lo unjan allí como rey sobre Israe
 
 ## 1 Reyes 1:35
 
-Luego lo seguirán,  
+Luego lo seguiréis,  
  y él vendrá y se sentará en mi trono y será rey en mi lugar;  
  porque lo he designado para ser gobernante sobre Israel y Judá.”
 
@@ -256,7 +256,7 @@ Y todo el pueblo subió tras él,
 
 ## 1 Reyes 1:41
 
-Ahora Adonías y todos los invitados que estaban con él lo oyeron mientras terminaban de banquete.  
+Ahora Adonías y todos los invitados que estaban con él lo oyeron cuando terminaban el banquete.  
  Cuando Joab oyó el sonido de la trompeta, dijo,  
  “¿Por qué está la ciudad en tal alboroto?”
 
@@ -296,9 +296,9 @@ Además, los siervos del rey vinieron a bendecir a nuestro señor el rey David, 
 
 ## 1 Reyes 1:48
 
-El rey también dijo,  
- “Bendito sea el Señor, el Dios de Israel,  
- que ha concedido que uno se siente en mi trono hoy mientras mis ojos lo ven.”
+El rey también dijo:  
+ ‘Bendito sea el Señor, el Dios de Israel,  
+ que ha concedido que uno se siente en mi trono hoy mientras mis ojos lo ven.’”
 
 ---
 

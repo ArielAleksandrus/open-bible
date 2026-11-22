@@ -18,7 +18,7 @@ Esta es la seguridad que tenemos en Dios a través de Cristo.
 
 ## 2 Corintios 3:5
 
-No que seamos suficientes en nosotros mismos para reclamar algo como originado de nosotros, sino que nuestra suficiencia es de Dios,
+No es que seamos suficientes en nosotros mismos para reclamar algo como originado de nosotros, sino que nuestra suficiencia es de Dios,
 
 ## 2 Corintios 3:6
 
@@ -54,7 +54,7 @@ Y no somos como Moisés, que se ponía un velo sobre el rostro para que los hijo
 
 ## 2 Corintios 3:14
 
-Pero sus mentes se endurecieron; porque hasta el día de hoy, en la lectura del antiguo pacto, el mismo velo permanece sin levantarse, porque se quita en Cristo.
+Pero ellos se cerraron en su manera de pensar; porque hasta el día de hoy, cuando leen el antiguo pacto, sigue puesto el mismo velo, sin que nadie lo levante, porque solo en Cristo se quita.
 
 ## 2 Corintios 3:15
 
@@ -66,8 +66,8 @@ Pero cuando alguien se vuelve al Señor, el velo es quitado.
 
 ## 2 Corintios 3:17
 
-El Señor es el Espíritu, y donde reside el Espíritu del Señor, allí hay libertad.
+El Señor es el Espíritu, y donde está el Espíritu del Señor, hay libertad.
 
 ## 2 Corintios 3:18
 
-Pero todos nosotros, con el rostro descubierto, contemplando como en un espejo la gloria del Señor, estamos siendo transformados en la misma imagen de gloria en gloria, así como del Señor, el Espíritu.
+Y todos nosotros, con la cara sin velo, reflejamos como un espejo la gloria del Señor, y así vamos siendo transformados a su misma imagen, con una gloria cada vez mayor, gracias a la acción del Señor, que es el Espíritu.

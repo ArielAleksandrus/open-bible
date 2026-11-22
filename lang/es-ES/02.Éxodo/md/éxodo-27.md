@@ -55,7 +55,7 @@ Todas las columnas alrededor del atrio tendrán bandas y ganchos de plata, con b
 El atrio tendrá cien codos de largo y cincuenta codos de ancho, con una altura de cinco codos de lino fino torcido, y con bases de bronce.
 
 ## Éxodo 27:19
-Todos los artículos usados en el servicio del tabernáculo, incluidos todas sus estacas y todas las estacas del atrio, serán de bronce.
+Todos los artículos usados en el servicio del tabernáculo, incluidas todas sus estacas y todas las estacas del atrio, serán de bronce.
 
 ## Éxodo 27:20
 “Ordena a los israelitas que te traigan aceite puro de oliva prensada para la luz, para mantener la lámpara encendida continuamente.

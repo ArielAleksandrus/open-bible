@@ -42,7 +42,7 @@ David preguntó a Ahimelec, “¿Hay aquí una lanza o espada disponible?
 
 ## 1 Samuel 21:9
 
-El sacerdote respondió, “La espada de Goliat el filisteo, a quien derrotaste en el Valle de Elah, está aquí, envuelta en un paño detrás del efod.  
+El sacerdote respondió: “La espada de Goliat el filisteo, a quien derrotaste en el valle de Ela, está aquí, envuelta en un paño detrás del efod.  
  Si deseas tomarla, hazlo, porque no hay otra aquí.”  
  Y David dijo, “No hay ninguna como ella; dámela.”
 
@@ -58,7 +58,7 @@ Pero los siervos de Aquis le dijeron,
  “¿No es este David el rey de la tierra? ¿No cantaban de él mientras danzaban, diciendo,
 
 >  ‘Saúl mató a sus miles,  
->  Y David a sus diez miles’?”
+>  y David a sus decenas de miles’?”
 
 ## 1 Samuel 21:12
 

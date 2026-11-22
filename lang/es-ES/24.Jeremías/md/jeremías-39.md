@@ -46,7 +46,7 @@ enviaron a sacar a Jeremías del patio de la guardia. Lo confiaron a Gedalías, 
 Mientras Jeremías estaba confinado en el patio de la guardia, la palabra del Señor vino a él:
 
 ## Jeremías 39:16
-“Ve y dile a Ebed-Melec el cusita: ‘Esto dice el Señor Todopoderoso, el Dios de Israel: Estoy a punto de traer mis palabras sobre esta ciudad, palabras de desastre, no de prosperidad. Se cumplirán ante tus ojos.
+“Ve y dile a Ebed-Melec el cusita: ‘Esto dice el Señor de los ejércitos, el Dios de Israel: Estoy a punto de traer mis palabras sobre esta ciudad, palabras de desastre, no de prosperidad. Se cumplirán ante tus ojos.
 
 ## Jeremías 39:17
 Pero te rescataré en ese día, declara el Señor; no serás entregado a aquellos a quienes temes.

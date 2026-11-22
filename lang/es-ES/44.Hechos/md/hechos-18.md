@@ -10,7 +10,7 @@ Allí encontró a un judío llamado Aquila, natural de Ponto, que había llegado
 
 ## Hechos 18:3
 
-y como compartía su oficio, se quedó con ellos, y trabajaron juntos, pues eran fabricantes de tiendas de campaña de profesión.
+y como era del mismo oficio, se quedó con ellos, y trabajaron juntos, pues eran fabricantes de tiendas de campaña de profesión.
 
 ## Hechos 18:4
 
@@ -52,7 +52,7 @@ Así que Pablo permaneció en Corinto durante un año y seis meses, enseñándol
 
 ## Hechos 18:12
 
-Mientras Galión era procónsul de Acaya, los judíos hicieron un ataque concertado contra Pablo y lo llevaron ante el tribunal,
+Mientras Galión era procónsul de Acaya, los judíos se pusieron de acuerdo para atacar a Pablo y lo llevaron ante el tribunal,
 
 ## Hechos 18:13
 

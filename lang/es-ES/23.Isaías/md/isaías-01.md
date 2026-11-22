@@ -6,120 +6,120 @@ La visión de Isaías, hijo de Amoz, acerca de Judá y Jerusalén, que él vio d
 
 ## Isaías 1:2
 
-Oíd, cielos, y escucha, tierra; porque el Señor ha hablado: “He criado hijos y los he engrandecido, pero ellos se han rebelado contra Mí.
+¡Escuchad, cielos! ¡Presta atención, tierra! Porque el Señor ha hablado: “Crié a unos hijos y los saqué adelante, pero ellos se han puesto en contra de Mí.
 
 ## Isaías 1:3
 
-El buey conoce a su dueño, y el asno el pesebre de su amo, pero Israel no entiende; Mi pueblo no comprende.”
+El buey reconoce a su dueño, y el burro sabe dónde come en casa de su amo, pero Israel no me reconoce; Mi pueblo no entiende nada.”
 
 ## Isaías 1:4
 
-¡Ay, nación pecadora, pueblo cargado de iniquidad, descendencia de malhechores, hijos que obran corruptamente! Han abandonado al Señor, han despreciado al Santo de Israel, se han apartado de Él.
+¡Ay de esta nación pecadora, de este pueblo cargado de culpa, de esta raza de malhechores, de estos hijos que viven en la corrupción! Han dejado al Señor, han despreciado al Santo de Israel, le han dado la espalda.
 
 ## Isaías 1:5
 
-¿Por qué habéis de ser castigados aún, si continuáis en vuestra rebelión? Toda cabeza está enferma, y todo corazón desfallecido.
+¿Para qué seguir recibiendo golpes, si seguís empeñados en rebelaros? Tenéis toda la cabeza enferma y el corazón sin fuerzas.
 
 ## Isaías 1:6
 
-Desde la planta del pie hasta la cabeza no hay en él cosa sana, sino heridas, hinchazones y llagas purulentas; no han sido curadas, ni vendadas, ni suavizadas con aceite.
+De los pies a la cabeza no os queda nada sano: todo son golpes, moretones y heridas abiertas, sin limpiar, sin vendar y sin aliviar con aceite.
 
 ## Isaías 1:7
 
-Vuestra tierra está desolada, vuestras ciudades quemadas por el fuego; vuestros campos los devoran extranjeros delante de vosotros; está desolada, como destruida por extraños.
+Vuestra tierra ha quedado arrasada y vuestras ciudades, quemadas; ante vuestros propios ojos los extranjeros se comen vuestros campos; todo ha quedado arrasado, como cuando destruyen los enemigos de fuera.
 
 ## Isaías 1:8
 
-La hija de Sion ha quedado como cobertizo en una viña, como choza en un campo de pepinos, como ciudad sitiada.
+La hija de Sion ha quedado abandonada como una caseta en medio de una viña, como una choza en un campo de pepinos, como una ciudad rodeada por el enemigo.
 
 ## Isaías 1:9
 
-Si el Señor de los Ejércitos no nos hubiera dejado algunos sobrevivientes, habríamos sido como Sodoma, nos habríamos parecido a Gomorra.
+Si el Señor de los ejércitos no nos hubiera dejado unos pocos con vida, habríamos acabado como Sodoma, igual que Gomorra.
 
 ## Isaías 1:10
 
-Escuchad la palabra del Señor, gobernantes de Sodoma; prestad atención a la enseñanza de nuestro Dios, pueblo semejante al de Gomorra.
+Escuchad el mensaje del Señor, gobernantes que parecéis de Sodoma; prestad oído a lo que os enseña nuestro Dios, pueblo que os portáis como los de Gomorra.
 
 ## Isaías 1:11
 
-“¿Para qué me sirve la multitud de vuestros sacrificios?” dice el Señor. “Estoy harto de holocaustos de carneros y de la grasa de animales cebados; no me agrada la sangre de toros, ni de corderos, ni de machos cabríos.
+“¿Qué me importan a Mí todos vuestros sacrificios?” dice el Señor. “Ya estoy cansado de que me quemen carneros y la grasa de los animales bien cebados; no me gusta la sangre de los toros, ni la de los corderos, ni la de los chivos.
 
 ## Isaías 1:12
 
-Cuando venís a presentaros delante de Mí, ¿quién demanda esto de vosotros, este pisoteo de mis atrios?
+Cuando venís a presentaros ante Mí, ¿quién os ha pedido que vengáis a pisotear mis atrios?
 
 ## Isaías 1:13
 
-No traigáis más ofrendas vanas; el incienso me es abominación. Lunas nuevas, sábados y convocaciones —no puedo soportar iniquidad y asamblea solemne—.
+No me traigáis más ofrendas que no sirven de nada; vuestro incienso me da asco. Lunas nuevas, sábados, reuniones religiosas —no aguanto que juntéis la maldad con las fiestas sagradas—.
 
 ## Isaías 1:14
 
-Vuestras lunas nuevas y vuestras fiestas señaladas las aborrece mi alma; me son una carga; estoy cansado de soportarlas.
+Odio con toda mi alma vuestras fiestas de luna nueva y vuestras celebraciones; se me han vuelto una carga y ya estoy harto de soportarlas.
 
 ## Isaías 1:15
 
-Cuando extendáis vuestras manos, esconderé de vosotros mis ojos; aunque multipliquéis las oraciones, no escucharé. Vuestras manos están llenas de sangre.
+Cuando levantéis las manos para orar, apartaré de vosotros la mirada; aunque recéis y recéis, no os escucharé. Tenéis las manos manchadas de sangre.
 
 ## Isaías 1:16
 
-Lavaos, purificaos. Quitad de delante de mis ojos la maldad de vuestras obras. Dejad de hacer el mal,
+Lavaos, limpiad vuestra conducta. Apartad de mi vista vuestras malas acciones. Dejad de hacer el mal,
 
 ## Isaías 1:17
 
-aprended a hacer el bien; buscad la justicia, corregid al opresor; defended al huérfano, abogad por la viuda.
+aprended a hacer el bien; buscad la justicia, poned en su sitio al opresor; defended los derechos del huérfano y salid en defensa de la viuda.
 
 ## Isaías 1:18
 
-“Venid ahora, y razonemos juntos,” dice el Señor. “Aunque vuestros pecados sean como la grana, como la nieve serán emblanquecidos; aunque sean rojos como el carmesí, vendrán a ser como lana.
+“Venid, vamos a arreglar cuentas,” dice el Señor. “Aunque vuestros pecados sean rojos como la grana, quedarán blancos como la nieve; aunque sean rojos como el carmesí, quedarán como la lana.
 
 ## Isaías 1:19
 
-Si estáis dispuestos y obedecéis, comeréis de lo mejor de la tierra;
+Si estáis dispuestos a obedecer, comeréis de lo mejor que da la tierra;
 
 ## Isaías 1:20
 
-pero si rehusáis y os rebeláis, seréis devorados por la espada.” Porque la boca del Señor lo ha dicho.
+pero si os negáis y os rebeláis, moriréis a filo de espada.” Así lo ha dicho el Señor.
 
 ## Isaías 1:21
 
-¡Cómo se ha convertido en ramera la ciudad fiel! Llena estuvo de justicia; en ella habitó la rectitud, pero ahora, asesinos.
+¡La ciudad que era fiel se ha vuelto una prostituta! Antes estaba llena de justicia y en ella vivía la rectitud, pero ahora está llena de asesinos.
 
 ## Isaías 1:22
 
-Tu plata se ha convertido en escoria, tu vino está mezclado con agua.
+Tu plata ha perdido su brillo, y tu vino está aguado.
 
 ## Isaías 1:23
 
-Tus príncipes son rebeldes y compañeros de ladrones; todos aman el soborno y van tras las recompensas. No defienden al huérfano, ni llega ante ellos la causa de la viuda.
+Tus gobernantes son unos rebeldes y andan con ladrones; a todos les encantan los sobornos y van detrás de los regalos. No defienden al huérfano, y la causa de la viuda ni siquiera llega a sus manos.
 
 ## Isaías 1:24
 
-Por tanto, el Señor, el Señor de los Ejércitos, el Fuerte de Israel, declara: “Ah, me desquitaré de mis adversarios y me vengaré de mis enemigos.
+Por eso el Señor, el Señor de los ejércitos, el Poderoso de Israel, declara: “¡Ya está bien! Voy a desahogarme con mis adversarios y a darles su merecido a mis enemigos.
 
 ## Isaías 1:25
 
-Volveré mi mano contra ti, y purgaré completamente tu escoria, y quitaré todas tus impurezas.
+Volveré mi mano contra ti, te limpiaré de toda tu escoria y te quitaré todas tus impurezas.
 
 ## Isaías 1:26
 
-Restauraré tus jueces como al principio, y tus consejeros como al comienzo. Después serás llamada Ciudad de Justicia, Ciudad Fiel.”
+Te devolveré jueces como los de antes y consejeros como los del principio. Después te llamarán Ciudad de la Justicia, Ciudad Fiel.”
 
 ## Isaías 1:27
 
-Sion será redimida con justicia, y sus convertidos con rectitud.
+Sion será rescatada por medio de la justicia, y los suyos que se arrepientan, por medio de la rectitud.
 
 ## Isaías 1:28
 
-Pero los rebeldes y pecadores serán quebrantados juntos, y los que abandonan al Señor serán consumidos.
+Pero los rebeldes y los pecadores serán destrozados todos juntos, y los que dejan al Señor serán aniquilados.
 
 ## Isaías 1:29
 
-Porque se avergonzarán de las encinas que habéis deseado, y os sonrojaréis de los jardines que habéis escogido.
+Les dará vergüenza por las encinas que tanto os gustaban, y os sonrojaréis por los jardines que os escogisteis.
 
 ## Isaías 1:30
 
-Porque seréis como encina a la que se le cae la hoja, y como jardín sin agua.
+Porque acabaréis como una encina con las hojas marchitas, como un jardín al que le falta el agua.
 
 ## Isaías 1:31
 
-El hombre fuerte será como estopa, y su obra como chispa; ambos arderán juntos, y no habrá quien apague el fuego.
+El hombre fuerte será como paja seca, y lo que hace, como una chispa; los dos arderán juntos y nadie podrá apagar el fuego.

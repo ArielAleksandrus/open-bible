@@ -30,7 +30,7 @@ Esta es la promesa que nuestras doce tribus esperan alcanzar mientras sirven fer
 
 ## Hechos 26:8
 
-¿Por qué debería alguno de ustedes considerar increíble que Dios resucite a los muertos?
+¿Por qué debería alguno de vosotros considerar increíble que Dios resucite a los muertos?
 
 ---
 
@@ -92,7 +92,7 @@ Por eso algunos judíos me apresaron en el templo e intentaron matarme.
 
 ## Hechos 26:22
 
-Pero Dios me ha ayudado hasta el día de hoy, y así estoy aquí testificando tanto a pequeños como a grandes, diciendo nada más allá de lo que los profetas y Moisés dijeron que sucedería—
+Pero Dios me ha ayudado hasta el día de hoy, y así estoy aquí testificando tanto a pequeños como a grandes, sin decir nada fuera de lo que los profetas y Moisés dijeron que sucedería:
 
 ## Hechos 26:23
 
@@ -102,7 +102,7 @@ que el Mesías sufriría y, siendo el primero en resucitar de los muertos, procl
 
 ## Hechos 26:24
 
-En este punto, Festo interrumpió la defensa de Pablo, gritando, “¡Pablo, estás fuera de ti! Tu gran aprendizaje te está llevando a la locura.”
+En este punto, Festo interrumpió la defensa de Pablo, gritando, “¡Pablo, estás fuera de ti! Tu mucho saber te está llevando a la locura.”
 
 ## Hechos 26:25
 

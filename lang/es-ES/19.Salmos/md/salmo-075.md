@@ -5,8 +5,8 @@
 ## Salmo 75:1
 
 > Te damos gracias, Dios, te damos gracias,  
->  Porque Tu nombre está cerca;  
->  La gente declara Tus obras maravillosas.
+>  porque Tu nombre está cerca;  
+>  la gente declara Tus obras maravillosas.
 
 ---
 
@@ -30,14 +30,14 @@
 ## Salmo 75:5
 
 > No alcéis vuestro cuerno en alto,  
->  No habléis con arrogancia.’”
+>  no habléis con arrogancia.’”
 
 ---
 
 ## Salmo 75:6
 
 > Porque la exaltación no viene del oriente, ni del occidente,  
->  Ni del desierto;
+>  ni del desierto;
 
 ## Salmo 75:7
 
@@ -60,4 +60,4 @@
 ## Salmo 75:10
 
 > Y Él cortará todos los cuernos de los malvados,  
->  Pero los cuernos de los justos serán exaltados.
+>  pero los cuernos de los justos serán exaltados.

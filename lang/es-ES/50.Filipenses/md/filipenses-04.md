@@ -14,7 +14,7 @@ Sí, te pido a ti, mi verdadero compañero, que ayudes a estas mujeres que han l
 
 ## Filipenses 4:4
 
-Siempre encontrad gozo en el Señor. Lo repetiré: ¡Sed gozosos!
+Encontrad siempre gozo en el Señor. Lo repetiré: ¡Sed gozosos!
 
 ## Filipenses 4:5
 
@@ -26,15 +26,15 @@ No os inquietéis por nada, sino que en toda situación, mediante oración y sú
 
 ## Filipenses 4:7
 
-Y la paz de Dios, que sobrepasa todo entendimiento, protegerá vuestros corazones y mentes en Cristo Jesús.
+Y la paz de Dios, que está más allá de todo lo que podemos entender, cuidará vuestros corazones y vuestros pensamientos en Cristo Jesús.
 
 ## Filipenses 4:8
 
-Finalmente, hermanos y hermanas, todo lo que es verdadero, todo lo honorable, todo lo justo, todo lo puro, todo lo amable, todo lo encomiable —si algo es excelente o digno de alabanza— pensad en estas cosas.
+Por último, hermanos y hermanas, pensad en todo lo que es verdadero, en todo lo que es digno de respeto, en todo lo que es justo, puro, agradable y digno de elogio; en todo lo que sea excelente o merezca alabanza.
 
 ## Filipenses 4:9
 
-Todo lo que habéis aprendido o recibido o escuchado de mí, o visto en mí, ponedlo en práctica. Y el Dios de paz estará con vosotros.
+Poned en práctica lo que habéis aprendido de mí, lo que os he enseñado, lo que me habéis oído decir y lo que me habéis visto hacer. Y el Dios de paz estará con vosotros.
 
 ## Filipenses 4:10
 
@@ -46,7 +46,7 @@ No digo esto porque esté necesitado, pues he aprendido a estar contento en cual
 
 ## Filipenses 4:12
 
-Sé lo que es vivir con humildes medios, y sé lo que es vivir en abundancia. He aprendido el secreto de estar contento en cualquier y toda situación, ya sea bien alimentado o hambriento, ya sea viviendo en abundancia o en necesidad.
+Sé lo que es vivir con humildes medios, y sé lo que es vivir en abundancia. He aprendido el secreto de estar contento en todas y cada una de las situaciones, ya sea bien alimentado o hambriento, ya sea viviendo en abundancia o en necesidad.
 
 ## Filipenses 4:13
 
@@ -70,7 +70,7 @@ No es que busque el regalo en sí, sino que busco el beneficio que aumenta en vu
 
 ## Filipenses 4:18
 
-He recibido el pago completo y tengo más que suficiente. Estoy ampliamente abastecido, ahora que he recibido de Epafrodito los regalos que enviasteis, una ofrenda fragante, un sacrificio aceptable, agradable a Dios.
+He recibido todo lo que me correspondía, y tengo más que suficiente. Tengo de todo, ahora que Epafrodito me ha traído lo que enviasteis, que es como una ofrenda de olor agradable, un sacrificio que Dios acepta y que le agrada.
 
 ## Filipenses 4:19
 

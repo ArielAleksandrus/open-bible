@@ -61,10 +61,10 @@ Sin embargo, vuestras mujeres, vuestros hijos y vuestro ganado (sé que tenéis 
 hasta que el Señor dé descanso a vuestros hermanos israelitas como os ha dado a vosotros, y ellos también hayan tomado posesión de la tierra que el Señor vuestro Dios les da más allá del Jordán. Entonces cada uno de vosotros podrá volver a la posesión que os he dado.”
 
 ## Deuteronomio 3:21
-En ese tiempo mandé a Josué: “Tus ojos han visto todo lo que el Señor vuestro Dios ha hecho a estos dos reyes. El Señor hará lo mismo con todos los reinos a los que vas.
+En ese tiempo mandé a Josué: “Tus ojos han visto todo lo que el Señor tu Dios ha hecho a estos dos reyes. El Señor hará lo mismo con todos los reinos a los que vas.
 
 ## Deuteronomio 3:22
-No les tengas miedo; el Señor vuestro Dios peleará por vosotros.”
+No les tengas miedo; el Señor tu Dios peleará por ti.”
 
 ## Deuteronomio 3:23
 En ese tiempo busqué al Señor con fervor:

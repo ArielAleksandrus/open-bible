@@ -120,7 +120,7 @@ Acecha como un bandido y aumenta los infieles entre los hombres.
 
 ## Proverbios 23:30
 
-Aquellos que se demoran mucho sobre el vino, que van a probar vino mezclado.
+Los que se quedan largo rato bebiendo vino, los que van a probar vino mezclado.
 
 ## Proverbios 23:31
 

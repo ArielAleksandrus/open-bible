@@ -15,7 +15,7 @@ Porque reconstruyó los lugares altos que su padre Ezequías había derribado;
 
 ## 2 Crónicas 33:4
 
-Construyó altares en la casa del Señor, de la cual el Señor había dicho: "Mi nombre estará en Jerusalén para siempre."
+Construyó altares en la casa del Señor, de la cual el Señor había dicho: “Mi nombre estará en Jerusalén para siempre.”
 
 ## 2 Crónicas 33:5
 
@@ -33,13 +33,13 @@ También hizo pasar a sus hijos por el fuego en el Valle de Ben-hinom;
 
 Luego puso la imagen tallada del ídolo que había hecho en la casa de Dios,  
  de la cual Dios había dicho a David y a su hijo Salomón:  
- "En esta casa y en Jerusalén, que he elegido de entre todas las tribus de Israel,  
+ “En esta casa y en Jerusalén, que he elegido de entre todas las tribus de Israel,  
  pondré mi nombre para siempre;
 
 ## 2 Crónicas 33:8
 
 y no volveré a quitar el pie de Israel de la tierra que he designado para vuestros padres,  
- siempre y cuando tengan cuidado de hacer todo lo que les he mandado conforme a toda la Ley, los estatutos y las ordenanzas dadas por medio de Moisés."
+ siempre y cuando tengan cuidado de hacer todo lo que les he mandado conforme a toda la Ley, los estatutos y las ordenanzas dadas por medio de Moisés.”
 
 ## 2 Crónicas 33:9
 
@@ -64,13 +64,13 @@ Cuando estaba en angustia, buscó apaciguar al Señor su Dios y se humilló gran
 
 Cuando oró a Él, Él fue movido por su súplica y escuchó su ruego,  
  y lo trajo de vuelta a Jerusalén a su reino.  
- Entonces Manasés supo que el Señor solo es Dios.
+ Entonces Manasés supo que solo el Señor es Dios.
 
 ---
 
 ## 2 Crónicas 33:14
 
-Después de esto, construyó el muro exterior de la ciudad de David en el lado oeste de Guijón, en el valle,  
+Después de esto, construyó el muro exterior de la ciudad de David en el lado oeste de Gihón, en el valle,  
  hasta la entrada de la Puerta del Pescado; y rodeó el Ofel con él y lo hizo muy alto.  
  Luego puso comandantes del ejército en todas las ciudades fortificadas de Judá.
 

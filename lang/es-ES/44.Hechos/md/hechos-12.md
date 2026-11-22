@@ -2,11 +2,11 @@
 
 ## Hechos 12:1
 
-Por aquel tiempo, el rey Herodes echó mano a algunos de la iglesia para maltratarlos.
+Por esas fechas, el rey Herodes arrestó a algunos miembros de la iglesia con la intención de hacerles daño.
 
 ## Hechos 12:2
 
-Mandó matar a espada a Jacobo, hermano de Juan.
+Mandó matar a espada a Santiago, hermano de Juan.
 
 ## Hechos 12:3
 
@@ -14,7 +14,7 @@ Viendo que esto agradaba a los judíos, procedió a arrestar también a Pedro. E
 
 ## Hechos 12:4
 
-Después de arrestarlo, lo puso en prisión, asignándolo a ser custodiado por cuatro escuadras de soldados. Herodes planeaba presentarlo en juicio público después de la Pascua.
+Después de arrestarlo, lo puso en prisión, entregándolo a cuatro escuadras de soldados para que lo custodiaran. Herodes planeaba presentarlo en juicio público después de la Pascua.
 
 ## Hechos 12:5
 
@@ -70,7 +70,7 @@ Pedro continuó llamando, y cuando abrieron la puerta y lo vieron, se asombraron
 
 ## Hechos 12:17
 
-Pedro hizo señas con la mano para que guardaran silencio y les explicó cómo el Señor lo había sacado de la prisión. “Contad esto a Jacobo y a los hermanos,” dijo, y luego se fue a otro lugar.
+Pedro hizo señas con la mano para que guardaran silencio y les explicó cómo el Señor lo había sacado de la prisión. “Contad esto a Santiago y a los hermanos,” dijo, y luego se fue a otro lugar.
 
 ---
 

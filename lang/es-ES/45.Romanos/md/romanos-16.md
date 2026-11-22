@@ -2,11 +2,11 @@
 
 ## Romanos 16:1
 
-Os presento a nuestra hermana Febe, diaconisa de la iglesia en Cencreas.
+Os presento a nuestra hermana Febe, servidora de la iglesia en Cencreas.
 
 ## Romanos 16:2
 
-Os pido que la recibáis en el Señor de una manera digna de los santos y que la ayudéis en cualquier asunto que necesite de vosotros, porque ha sido benefactora de muchos, incluyendo a mí mismo.
+Os pido que la recibáis en el Señor de una manera digna de los santos y que la ayudéis en cualquier asunto que necesite de vosotros, porque ha sido benefactora de muchos, incluido yo mismo.
 
 ## Romanos 16:3
 
@@ -26,7 +26,7 @@ Saludad a María, que ha trabajado diligentemente por vosotros.
 
 ## Romanos 16:7
 
-Saludad a Andrónico y a Junias, mis compatriotas y compañeros de prisión; son estimados entre los apóstoles y estaban en Cristo antes que yo.
+Saludad a Andrónico y a Junia, mis compatriotas y compañeros de prisión; son estimados entre los apóstoles y estaban en Cristo antes que yo.
 
 ## Romanos 16:8
 
@@ -98,11 +98,11 @@ Gayo, que me hospeda a mí y a toda la iglesia, os envía saludos. Erasto, el te
 
 ## Romanos 16:25
 
-Ahora, a aquel que es poderoso para estableceros conforme a mi evangelio y la proclamación de Jesucristo, según la revelación del misterio oculto desde tiempos eternos,
+Y a aquel que es poderoso para estableceros conforme a mi evangelio y la proclamación de Jesucristo, según la revelación del misterio oculto desde tiempos eternos,
 
 ## Romanos 16:26
 
-pero ahora revelado y dado a conocer mediante los escritos proféticos por el mandato del Dios eterno, para que todas las naciones lleguen a la obediencia que viene de la fe—
+pero ahora revelado y dado a conocer mediante los escritos proféticos por el mandato del Dios eterno, para que todas las naciones lleguen a la obediencia que viene de la fe,
 
 ## Romanos 16:27
 

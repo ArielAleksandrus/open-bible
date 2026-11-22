@@ -38,7 +38,7 @@ Este Libro de la Ley no se apartará de tu boca; meditarás en él día y noche,
 
 ## Josué 1:10
 
-Entonces Josué mandó a los oficiales del pueblo, diciendo
+Entonces Josué mandó a los oficiales del pueblo, diciendo:
 
 ## Josué 1:11
 

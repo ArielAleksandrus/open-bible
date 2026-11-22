@@ -18,7 +18,7 @@ José también subió de Galilea, de la ciudad de Nazaret, a Judea, a la ciudad 
 
 ## Lucas 2:5
 
-para registrarse con María, su esposa, que estaba encinta.
+para registrarse con María, su prometida, que estaba encinta.
 
 ## Lucas 2:6
 
@@ -26,7 +26,7 @@ Mientras estaban allí, llegó el momento para que ella diera a luz.
 
 ## Lucas 2:7
 
-Y dio a luz a su hijo primogénito, lo envolvió en pañales y lo acostó en un pesebre, porque no había lugar para ellos en el mesón.
+Ella dio a luz a su primer hijo, lo envolvió en pañales y lo puso en un pesebre, porque no había sitio para ellos en la posada.
 
 ---
 
@@ -48,7 +48,7 @@ Hoy, en la ciudad de David, os ha nacido un Salvador, que es Cristo el Señor.
 
 ## Lucas 2:12
 
-Esto os servirá de señal: Encontraréis a un niño envuelto en pañales y acostado en un pesebre.”
+Esta será vuestra señal: encontraréis a un bebé envuelto en pañales y acostado en un pesebre.”
 
 ## Lucas 2:13
 
@@ -125,8 +125,8 @@ Simeón lo tomó en sus brazos y bendijo a Dios, diciendo,
 
 ## Lucas 2:29
 
-> “Señor, ahora dejas a tu siervo irse en paz,
->  conforme a tu palabra;
+> “Señor, ahora dejas que tu siervo se vaya en paz,
+>  conforme a tu promesa;
 
 ## Lucas 2:30
 
@@ -138,7 +138,7 @@ Simeón lo tomó en sus brazos y bendijo a Dios, diciendo,
 
 ## Lucas 2:32
 
-> una luz para revelación a los gentiles,
+> una luz para revelar tu verdad a las naciones,
 >  y la gloria de tu pueblo Israel.”
 
 ---
@@ -149,7 +149,7 @@ Los padres del niño estaban asombrados de lo que se decía de él.
 
 ## Lucas 2:34
 
-Entonces Simeón los bendijo y dijo a María, su madre: “Este niño está destinado para causar la caída y el levantamiento de muchos en Israel, y para ser una señal que será contradicha,
+Entonces Simeón los bendijo y dijo a María, su madre: “Este niño está destinado para causar la caída y el levantamiento de muchos en Israel, y para ser una señal que provocará oposición,
 
 ## Lucas 2:35
 
@@ -195,7 +195,7 @@ Al terminar la fiesta, mientras regresaban, el niño Jesús se quedó en Jerusal
 
 ## Lucas 2:44
 
-Pensando que estaba entre la compañía, anduvieron un día de camino y comenzaron a buscarlo entre sus parientes y conocidos.
+Pensando que estaba entre los compañeros de viaje, anduvieron un día de camino y comenzaron a buscarlo entre sus parientes y conocidos.
 
 ## Lucas 2:45
 
@@ -223,8 +223,8 @@ Pero ellos no comprendieron lo que les decía.
 
 ## Lucas 2:51
 
-Luego bajó con ellos a Nazaret y les estaba sujeto. Mientras tanto, su madre guardaba todas estas cosas en su corazón.
+Luego bajó con ellos a Nazaret y los obedecía. Mientras tanto, su madre guardaba todas estas cosas en su corazón.
 
 ## Lucas 2:52
 
-Y Jesús crecía en sabiduría y en estatura, y en gracia para con Dios y los hombres.
+Y Jesús crecía en sabiduría y en estatura, y gozaba del favor de Dios y de la gente.

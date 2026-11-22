@@ -1,7 +1,7 @@
 # Isaías Capítulo 47
 
 ## Isaías 47:1
-“Desciende y siéntate en el polvo, Virgen Hija de Babilonia; siéntate en el suelo sin trono, Hija de los Caldeos. Ya no serás llamada tierna y delicada.
+“Bájate y siéntate en el polvo, Virgen Hija de Babilonia; siéntate en el suelo, que ya no tienes trono, Hija de los Caldeos. Ya nadie volverá a llamarte tierna y delicada.
 
 ## Isaías 47:2
 Toma las piedras de molino y muele harina; quítate el velo, levanta tus faldas, descubre tus piernas y cruza los ríos.
@@ -10,7 +10,7 @@ Toma las piedras de molino y muele harina; quítate el velo, levanta tus faldas,
 Tu desnudez será descubierta, y tu vergüenza será expuesta. Tomaré venganza y no perdonaré a nadie.”
 
 ## Isaías 47:4
-Nuestro Redentor, el Señor de los Ejércitos es su nombre, el Santo de Israel.
+Nuestro Redentor, el Señor de los ejércitos es su nombre, el Santo de Israel.
 
 ## Isaías 47:5
 “Siéntate en silencio y entra en la oscuridad, Hija de los Caldeos; porque ya no serás llamada la reina de los reinos.
@@ -40,7 +40,7 @@ Pero el desastre vendrá sobre ti, y no sabrás cómo conjurarlo. La calamidad c
 Estás cansada de tus muchos consejos; que se levanten tus astrólogos, aquellos que observan las estrellas y predicen por las nuevas lunas, que te salven de lo que viene sobre ti.
 
 ## Isaías 47:14
-Seguramente son como rastrojo; el fuego los consumirá. No pueden salvarse a sí mismos del poder de la llama. Esto no es un carbón para calentarse, ni un fuego para sentarse junto a él.
+Ciertamente son como rastrojo; el fuego los consumirá. No pueden salvarse a sí mismos del poder de la llama. Esto no es un carbón para calentarse, ni un fuego para sentarse junto a él.
 
 ## Isaías 47:15
 Esto es lo que han llegado a ser para ti, aquellos con quienes has trabajado, aquellos que han tratado contigo desde tu juventud; cada uno vaga en su propia dirección; no hay nadie que te salve.

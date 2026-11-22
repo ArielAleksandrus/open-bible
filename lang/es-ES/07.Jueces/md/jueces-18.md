@@ -116,7 +116,7 @@ No había nadie que los rescatara porque vivían lejos de Sidón y no tenían tr
 
 ## Jueces 18:29
 
-La llamaron Dan, por su antepasado Dan, que nació a Israel, aunque la ciudad se llamaba anteriormente Lais.
+La llamaron Dan, por su antepasado Dan, hijo de Israel, aunque la ciudad se llamaba anteriormente Lais.
 
 ## Jueces 18:30
 

@@ -4,7 +4,7 @@
 “Escuchad esto, descendientes de Jacob, vosotros que sois llamados por el nombre de Israel y habéis salido de las aguas de Judá, que juráis por el nombre del Señor e invocáis al Dios de Israel, pero no en verdad ni en justicia—
 
 ## Isaías 48:2
-Porque os llamáis a vosotros mismos por la ciudad santa y os apoyáis en el Dios de Israel; el Señor de los Ejércitos es su nombre:
+Porque os llamáis a vosotros mismos por la ciudad santa y os apoyáis en el Dios de Israel; el Señor de los ejércitos es su nombre:
 
 ## Isaías 48:3
 Declaré las cosas pasadas hace mucho tiempo; salieron de mi boca, y las hice saber. De repente actué, y se cumplieron.
@@ -28,31 +28,31 @@ Ni habéis oído ni entendido; desde antiguo vuestro oído no ha estado abierto.
 Por amor a mi nombre retraso mi ira; por mi alabanza la contengo para vosotros, para no cortaros.
 
 ## Isaías 48:10
-He aquí, os he refinado, aunque no como se refina la plata; os he probado en el horno de la aflicción.
+Mirad, os he purificado, aunque no como se purifica la plata; os he puesto a prueba en el horno del sufrimiento.
 
 ## Isaías 48:11
 Por amor a mí mismo, por amor a mí mismo, hago esto. ¿Cómo puede ser profanado mi nombre? No daré mi gloria a otro.
 
 ## Isaías 48:12
-“Prestad atención a mí, Jacob, Israel a quien he llamado: Yo soy el Uno; yo soy el primero, y yo soy el último.
+“Préstame atención, Jacob, Israel a quien he llamado: Yo soy él; yo soy el primero, y yo soy el último.
 
 ## Isaías 48:13
-Mi propia mano puso los cimientos de la tierra, y mi mano derecha extendió los cielos; cuando los llamo, se presentan juntos.
+Con mi propia mano puse los cimientos de la tierra, y con mi mano derecha desplegué los cielos; cuando los llamo, se presentan todos a la vez.
 
 ## Isaías 48:14
 Reuníos todos vosotros, y escuchad: ¿Quién entre ellos ha declarado estas cosas? El aliado elegido del Señor llevará a cabo su propósito contra Babilonia; su brazo estará contra los caldeos.
 
 ## Isaías 48:15
-Yo, incluso yo, he hablado; de hecho lo he llamado. Lo he traído, y tendrá éxito en su misión.
+Yo, yo mismo, he hablado; de hecho lo he llamado. Lo he traído, y tendrá éxito en su misión.
 
 ## Isaías 48:16
-“Acercaos a mí y escuchad esto: Desde el principio no he hablado en secreto; desde el momento en que sucede, estoy allí.” Y ahora el Señor Soberano me ha enviado, dotado de su Espíritu.
+“Acercaos a mí y escuchad esto: Desde el principio no he hablado en secreto; desde el momento en que sucede, estoy allí.” Y ahora el Señor Dios me ha enviado, dotado de su Espíritu.
 
 ## Isaías 48:17
-Esto es lo que dice el Señor —vuestro Redentor, el Santo de Israel: “Yo soy el Señor vuestro Dios, que os enseña para vuestro beneficio, que os dirige en el camino que debéis seguir—.
+Esto dice el Señor, vuestro Redentor, el Santo de Israel: “Yo soy el Señor vuestro Dios, que os enseña lo que os conviene y os guía por el camino que debéis seguir.
 
 ## Isaías 48:18
-Si tan solo hubierais prestado atención a mis mandamientos, vuestra paz habría sido como un río, y vuestra justicia como las olas del mar.
+¡Si tan solo hubierais hecho caso de mis mandamientos! Vuestra paz habría sido como un río, y vuestra justicia como las olas del mar.
 
 ## Isaías 48:19
 Vuestros descendientes habrían sido como la arena, vuestra descendencia como sus innumerables granos; su nombre nunca sería borrado ni destruido de mi presencia.”

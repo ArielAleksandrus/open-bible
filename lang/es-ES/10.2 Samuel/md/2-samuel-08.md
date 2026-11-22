@@ -85,12 +85,12 @@ David reinó sobre todo Israel;
 
 ## 2 Samuel 8:16
 
-Joab, hijo de Zeruyá, estaba sobre el ejército,  
+Joab, hijo de Sarvia, estaba sobre el ejército,  
  y Josafat, hijo de Ahilud, era secretario.
 
 ## 2 Samuel 8:17
 
-Sadoc, hijo de Ahitub, y Ahimelec, hijo de Abiatar, servían como sacerdotes,  
+Sadoc, hijo de Ahitob, y Ahimelec, hijo de Abiatar, servían como sacerdotes,  
  y Seraías era el escriba.
 
 ## 2 Samuel 8:18

@@ -2,19 +2,19 @@
 
 ## Proverbios 3:1
 
-Hijo mío, no olvides mi enseñanza, y tu corazón cumpla mis mandamientos;
+Hijo mío, no te olvides de lo que te enseño; que tu corazón cumpla mis mandamientos,
 
 ## Proverbios 3:2
 
-porque te añadirán largura de días y años de vida, y te traerán paz.
+porque te darán una vida larga, muchos años, y te traerán paz.
 
 ## Proverbios 3:3
 
-Que la bondad y la verdad nunca te abandonen; átalas a tu cuello, inscríbelas en la tabla de tu corazón.
+Que nunca te falten la bondad y la verdad; llévalas atadas al cuello, grábalas en tu corazón como en una tabla.
 
 ## Proverbios 3:4
 
-Así hallarás favor y buena reputación a los ojos de Dios y de los hombres.
+Así te ganarás el aprecio y el buen nombre ante Dios y ante la gente.
 
 ## Proverbios 3:5
 
@@ -22,23 +22,23 @@ Confía plenamente en el Señor con todo tu corazón y no te apoyes en tu propia
 
 ## Proverbios 3:6
 
-Reconócelo en todos tus caminos, y Él enderezará tus sendas.
+Tenlo presente en todo lo que hagas, y Él te abrirá caminos rectos.
 
 ## Proverbios 3:7
 
-No te consideres sabio; teme al Señor y apártate del mal.
+No te creas sabio; respeta al Señor y aléjate del mal.
 
 ## Proverbios 3:8
 
-Esto traerá bienestar a tu cuerpo y refrigerio a tus huesos.
+Eso será salud para tu cuerpo y alivio para tus huesos.
 
 ## Proverbios 3:9
 
-Honra al Señor con tus bienes, y con las primicias de todos tus frutos;
+Da honra al Señor con lo que tienes y con lo primero de todas tus cosechas;
 
 ## Proverbios 3:10
 
-entonces tus graneros se llenarán de abundancia, y tus lagares rebosarán de vino nuevo.
+así tus graneros estarán repletos y de tus lagares saldrá vino nuevo en abundancia.
 
 ---
 
@@ -56,37 +56,37 @@ porque el Señor disciplina a los que ama,
 
 ## Proverbios 3:13
 
-Bienaventurado el que halla sabiduría, y el que adquiere entendimiento,
+Dichoso el que encuentra la sabiduría y el que consigue la inteligencia,
 
 ## Proverbios 3:14
 
-porque su ganancia es mejor que la plata, y su fruto mejor que el oro.
+porque lo que ella da vale más que la plata, y lo que produce, más que el oro.
 
 ## Proverbios 3:15
 
-Es más valiosa que las joyas, y nada de lo que desees se puede comparar con ella.
+Vale más que las joyas, y nada de lo que puedas desear se compara con ella.
 
 ## Proverbios 3:16
 
-Larga vida acompaña en una mano; en la otra están la riqueza y el honor.
+En una mano trae larga vida; en la otra, riqueza y honor.
 
 ## Proverbios 3:17
 
-Sus caminos son agradables, y todas sus sendas son paz.
+Sus caminos son agradables y todos sus senderos llevan a la paz.
 
 ## Proverbios 3:18
 
-Es árbol de vida para los que la toman; felices son los que la retienen.
+Es un árbol que da vida a los que se agarran de ella; dichosos los que no la sueltan.
 
 ---
 
 ## Proverbios 3:19
 
-Con sabiduría fundó el Señor la tierra; con entendimiento estableció los cielos.
+El Señor puso los cimientos de la tierra con sabiduría y afianzó los cielos con inteligencia.
 
 ## Proverbios 3:20
 
-Con su conocimiento se dividieron los abismos, y las nubes destilan el rocío.
+Por su saber se abrieron las aguas profundas, y de las nubes cae el rocío.
 
 ---
 
@@ -96,11 +96,11 @@ Hijo mío, no dejes que la sabiduría y la discreción se aparten de tus ojos; c
 
 ## Proverbios 3:22
 
-y serán vida para tu alma y adorno para tu cuello.
+y serán vida para ti y un adorno para tu cuello.
 
 ## Proverbios 3:23
 
-Entonces caminarás seguro por tu camino, y tu pie no tropezará.
+Entonces irás seguro por tu camino, y no darás traspiés.
 
 ## Proverbios 3:24
 
@@ -108,43 +108,43 @@ Cuando te acuestes, no tendrás miedo; tu sueño será dulce.
 
 ## Proverbios 3:25
 
-No temas el desastre repentino, ni la ruina de los impíos cuando llegue;
+No tengas miedo de la desgracia que llega de golpe, ni de la ruina que les viene a los malvados;
 
 ## Proverbios 3:26
 
-porque el Señor será tu confianza y evitará que tu pie quede atrapado.
+porque el Señor será tu seguridad y no dejará que tu pie caiga en la trampa.
 
 ---
 
 ## Proverbios 3:27
 
-No retengas el bien de aquellos que lo merecen, cuando esté en tu mano el poder hacerlo.
+No le niegues un favor a quien lo merece, si está a tu alcance ayudarlo.
 
 ## Proverbios 3:28
 
-No digas a tu prójimo: “Ve, y vuelve,
+Si tienes con qué ayudar a tu vecino,
 
->  y mañana te lo daré”, cuando lo tengas contigo.
+>  no le digas: “Vete y vuelve otro día; mañana te lo daré”.
 
 ## Proverbios 3:29
 
-No trames mal contra tu prójimo, que vive confiado junto a ti.
+No planees hacerle daño a tu vecino, que vive tranquilo a tu lado, confiando en ti.
 
 ## Proverbios 3:30
 
-No contiendas con nadie sin motivo, si no te ha hecho ningún daño.
+No te pelees con nadie sin razón, si no te ha hecho nada malo.
 
 ## Proverbios 3:31
 
-No envidies a los violentos, ni elijas ninguno de sus caminos.
+No tengas envidia de los violentos ni sigas su ejemplo en nada.
 
 ## Proverbios 3:32
 
-Porque los perversos son detestables al Señor, pero Él es íntimo con los rectos.
+Porque el Señor no soporta a los tramposos, pero trata como amigos a los que hacen lo recto.
 
 ## Proverbios 3:33
 
-La maldición del Señor está sobre la casa de los impíos, pero bendice la morada de los justos.
+La maldición del Señor cae sobre la casa del malvado, pero Él bendice el hogar de los justos.
 
 ## Proverbios 3:34
 
@@ -152,4 +152,4 @@ La maldición del Señor está sobre la casa de los impíos, pero bendice la mor
 
 ## Proverbios 3:35
 
-Los sabios heredarán honor, pero los necios solo ganarán deshonra.
+Los sabios recibirán honra como herencia, pero los necios solo se ganarán la vergüenza.

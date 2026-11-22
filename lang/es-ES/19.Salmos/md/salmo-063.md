@@ -4,47 +4,47 @@
 
 ## Salmo 63:1
 
-> Dios, Tú eres mi Dios; te buscaré con ansias;  
->  Mi alma tiene sed de Ti, mi carne te anhela,  
->  En una tierra seca y agotada, donde no hay agua.
+> Dios, Tú eres mi Dios; estaré atento esperándote;  
+>  Tengo sed de Ti con toda mi alma, todo mi cuerpo te desea,  
+>  como tierra seca y agotada, donde no hay agua.
 
 ---
 
 ## Salmo 63:2
 
-> Así te he contemplado en el santuario,  
->  Para ver Tu poder y Tu gloria.
+> Así te he visto en el santuario,  
+>  para contemplar Tu poder y Tu gloria.
 
 ## Salmo 63:3
 
-> Porque Tu favor es mejor que la vida,  
->  Mis labios te alabarán.
+> Porque Tu favor vale más que la vida,  
+>  Mis labios cantarán Tus alabanzas.
 
 ## Salmo 63:4
 
-> Por eso, te bendeciré durante toda mi vida;  
->  Alzaré mis manos en Tu nombre.
+> Por eso te bendeciré mientras viva;  
+>  Levantaré mis manos invocando Tu nombre.
 
 ## Salmo 63:5
 
-> Mi alma se sacia como de manjar suculento,  
->  Y mi boca te alaba con labios jubilosos.
+> Me siento satisfecho como quien ha comido un gran banquete,  
+>  y te alabo con labios llenos de alegría.
 
 ---
 
 ## Salmo 63:6
 
-> Cuando me acuerdo de Ti en mi lecho,  
->  Medito en Ti durante las vigilias de la noche,
+> Cuando estoy en la cama y pienso en Ti,  
+>  Paso las horas de la noche meditando en Ti,
 
 ## Salmo 63:7
 
-> Porque Tú has sido mi ayuda,  
->  Y a la sombra de Tus alas canto con gozo.
+> Porque Tú has sido mi apoyo,  
+>  y bajo la protección de Tus alas canto lleno de alegría.
 
 ## Salmo 63:8
 
-> Mi alma se aferra a Ti;  
+> Me aferro a Ti con toda mi alma;  
 >  Tu mano derecha me sostiene.
 
 ---
@@ -56,10 +56,10 @@
 ## Salmo 63:10
 
 > Serán entregados al poder de la espada;  
->  Serán presa de los zorros.
+>  serán presa de los zorros.
 
 ## Salmo 63:11
 
-> Sin embargo, el rey se alegrará en Dios;  
->  Todos los que juran por Él se gloriarán,  
->  Porque la boca de los que hablan falsedades será silenciada.
+> Pero el rey encontrará su alegría en Dios;  
+>  todos los que juran por Él se llenarán de gozo,  
+>  porque a los mentirosos se les cerrará la boca.

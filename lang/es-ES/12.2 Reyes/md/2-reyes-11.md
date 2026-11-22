@@ -46,7 +46,7 @@ Dos divisiones de vosotros, todos los que salen en el día de reposo,
 ## 2 Reyes 11:8
 
 Y rodearéis al rey, cada uno con sus armas en la mano,  
- y cualquiera que se acerque a las filas será muerto.  
+ y cualquiera que se acerque a las filas morirá.  
  Y estaréis con el rey cuando salga y cuando entre.”
 
 ---
@@ -92,7 +92,7 @@ Y miró, y he aquí, el rey estaba de pie junto a la columna, como era la costum
 
 Entonces Joiada el sacerdote mandó a los capitanes de cientos que estaban al mando del ejército y les dijo:  
  “Sacadla entre las filas, y al que la siga, matadlo a espada.”  
- Porque el sacerdote había dicho: “No será muerta en la casa del Señor.”
+ Porque el sacerdote había dicho: “Que no la maten en la casa del Señor.”
 
 ## 2 Reyes 11:16
 

@@ -10,7 +10,7 @@ Se reunieron grandes multitudes alrededor de él, por lo que subió a una barca 
 
 ## Mateo 13:3
 
-Les habló muchas cosas en parábolas, diciendo: “Consideren al sembrador que salió a sembrar.
+Les habló muchas cosas en parábolas, diciendo: “Considerad al sembrador que salió a sembrar.
 
 ## Mateo 13:4
 
@@ -77,7 +77,7 @@ En ellos se cumple la profecía de Isaías:
 
 ## Mateo 13:16
 
-Pero bienaventurados son vuestros ojos, porque ven; y bienaventurados vuestros oídos, porque oyen.
+Pero dichosos vuestros ojos, porque ven, y dichosos vuestros oídos, porque oyen.
 
 ## Mateo 13:17
 
@@ -177,7 +177,7 @@ Entonces dejó a las multitudes y entró en la casa. Sus discípulos se acercaro
 
 ## Mateo 13:38
 
-y el campo es el mundo; la buena semilla representa a los hijos del reino, y la cizaña son los hijos del maligno.
+y el campo es el mundo; la buena semilla son los hijos del reino, y la cizaña son los hijos del maligno.
 
 ## Mateo 13:39
 
@@ -257,7 +257,7 @@ Al llegar a su pueblo, comenzó a enseñar a la gente en su sinagoga, y estaban 
 
 ## Mateo 13:57
 
-Y se ofendieron por él. Pero Jesús les dijo: “Un profeta no es sin honra sino en su propia tierra y en su propia casa.”
+Y se ofendieron por él. Pero Jesús les dijo: “Un profeta recibe honra en todas partes, menos en su propia tierra y en su propia casa.”
 
 ## Mateo 13:58
 

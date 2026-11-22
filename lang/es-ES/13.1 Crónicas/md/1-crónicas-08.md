@@ -4,11 +4,11 @@
 
 Benjamín fue padre de:
 
->  Bela su primogénito, Asbel el segundo, Aharah el tercero,
+>  Bela su primogénito, Asbel el segundo, Ahara el tercero,
 
 ## 1 Crónicas 8:2
 
-> Nohah fue el cuarto, y Rapha el quinto.
+> Noha fue el cuarto, y Rafa el quinto.
 
 ---
 
@@ -20,7 +20,7 @@ Los hijos de Bela incluyeron:
 
 ## 1 Crónicas 8:4
 
-> Abisúa, y Naamán, y Ahoah,
+> Abisúa, y Naamán, y Ahoa,
 
 ## 1 Crónicas 8:5
 
@@ -39,8 +39,8 @@ Estos son los descendientes de Ehud.
 
 ## 1 Crónicas 8:7
 
-> a saber, Naamán, Ahijah, y Gera —él los llevó al exilio.  
->  Y él fue el padre de Uzza y Ahihud—.
+> a saber, Naamán, Ahías y Gera —él los llevó al exilio—.  
+>  Y él fue el padre de Uza y Ahihud.
 
 ---
 
@@ -52,13 +52,13 @@ Saharaim tuvo hijos en la tierra de Moab después de haber despedido a Husim y B
 
 ## 1 Crónicas 8:9
 
-A través de Hodesh su esposa, tuvo:
+Con Hodes su esposa, tuvo: Jobab,
 
->  Jobab, Zibia, Mesa, Malcam,
+>  Zibia, Mesa, Malcam,
 
 ## 1 Crónicas 8:10
 
-> Jeuz, Sachia, y Mirmah.  
+> Jeuz, Saquías y Mirma.  
 >  Estos fueron sus hijos, líderes de sus familias.
 
 ---
@@ -81,7 +81,7 @@ Los hijos de Elpaal fueron:
 
 ## 1 Crónicas 8:13
 
-> y Bería y Sema, que eran líderes de las familias de los habitantes de Aijalon,  
+> y Bería y Sema, que eran líderes de las familias de los habitantes de Ajalón,  
 >  que expulsaron a los habitantes de Gat.
 
 ---
@@ -106,13 +106,13 @@ Zebadías, y Mesulam, Hizki, Heber,
 
 ## 1 Crónicas 8:18
 
-Ismerai, e Izliah, y Jobab fueron los hijos de Elpaal.
+Ismerai, e Izlías, y Jobab fueron los hijos de Elpaal.
 
 ---
 
 ## 1 Crónicas 8:19
 
-con Jakim, y Zicri, y Zabdi,
+con Jaquim, y Zicri, y Zabdi,
 
 ## 1 Crónicas 8:20
 
@@ -144,7 +144,7 @@ Ifdeías y Penuel eran hijos de Sasac.
 
 ## 1 Crónicas 8:26
 
-Samsherai, y Seharías, y Atalías,
+Samserai, y Seharías, y Atalías,
 
 ## 1 Crónicas 8:27
 
@@ -162,7 +162,7 @@ Estos fueron líderes de familias según sus generaciones,
 
 ## 1 Crónicas 8:29
 
-Ahora en Gabaón, Jeiel, el patriarca de Gabaón, vivía,
+En Gabaón vivía Jeiel, el patriarca de Gabaón,
 
 >  y el nombre de su esposa era Maaca.
 
@@ -180,7 +180,7 @@ Gedor, y Ahio, y Zequer.
 
 ## 1 Crónicas 8:32
 
-Micloth fue el padre de Simea.
+Miclot fue el padre de Simea.
 
 >  También residieron con sus parientes en Jerusalén frente a sus otros parientes.
 
@@ -207,13 +207,13 @@ El hijo de Jonatán fue Merib-baal,
 
 Los descendientes de Micaía fueron:
 
->  Pitón, Melec, Tarea, y Ahaz.
+>  Pitón, Melec, Tarea y Acaz.
 
 ---
 
 ## 1 Crónicas 8:36
 
-Ahaz fue el padre de Joada,
+Acaz fue el padre de Joada,
 
 >  y Joada fue el padre de Alemet, Azmavet, y Zimri;  
 >  y Zimri fue el padre de Moza.
@@ -252,4 +252,4 @@ Los hijos de Eshec incluyeron:
 Los hijos de Ulam fueron valientes guerreros hábiles en el arco,
 
 >  y tuvieron muchos hijos y nietos, 150 en total.  
->  Todos estos fueron entre los descendientes de Benjamín.
+>  Todos estos estaban entre los descendientes de Benjamín.

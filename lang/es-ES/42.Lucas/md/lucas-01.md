@@ -46,7 +46,7 @@ Y toda la asamblea del pueblo estaba en oración afuera a la hora del incienso.
 
 ## Lucas 1:11
 
-Entonces un ángel del Señor se le apareció, posicionado a la derecha del altar del incienso.
+Entonces un ángel del Señor se le apareció, de pie a la derecha del altar del incienso.
 
 ## Lucas 1:12
 
@@ -70,7 +70,7 @@ Porque él será grande ante el Señor. No beberá vino ni licor, y será lleno 
 
 ## Lucas 1:17
 
-E irá delante de Él con el espíritu y el poder de Elías, para volver los corazones de los padres a los hijos y a los desobedientes a la sabiduría de los justos, para preparar al Señor un pueblo bien dispuesto.”
+Irá delante de Él con el espíritu y el poder de Elías, para hacer que el corazón de los padres se vuelva hacia sus hijos, y los desobedientes hacia la sabiduría de los justos, y así tener listo para el Señor un pueblo preparado.”
 
 ---
 
@@ -118,7 +118,7 @@ a una virgen comprometida con un hombre llamado José, de la casa de David. El n
 
 ## Lucas 1:28
 
-El ángel se acercó a ella y le dijo: “Saludos, tú que eres muy favorecida! El Señor está contigo.”
+El ángel se acercó a ella y le dijo: “¡Saludos, tú que eres muy favorecida! El Señor está contigo.”
 
 ## Lucas 1:29
 
@@ -150,7 +150,7 @@ El ángel respondió: “El Espíritu Santo vendrá sobre ti, y el poder del Alt
 
 ## Lucas 1:36
 
-Incluso Elisabet, tu pariente, va a tener un hijo en su vejez, y ella que decían que era estéril está ya en su sexto mes.
+Incluso Elisabet, tu pariente, va a tener un hijo en su vejez, y ella, de quien decían que era estéril, está ya en su sexto mes.
 
 ## Lucas 1:37
 
@@ -164,7 +164,7 @@ María dijo: “Soy la sierva del Señor. Que se cumpla en mí lo que has dicho.
 
 ## Lucas 1:39
 
-En ese tiempo María se levantó y se apresuró a una ciudad en la región montañosa de Judea,
+En ese tiempo María se levantó y se fue de prisa a una ciudad en la región montañosa de Judea,
 
 ## Lucas 1:40
 

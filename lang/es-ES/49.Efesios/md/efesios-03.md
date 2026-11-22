@@ -2,84 +2,84 @@
 
 ## Efesios 3:1
 
-Por esta causa yo, Pablo, prisionero de Cristo Jesús por vosotros los gentiles—
+Por eso yo, Pablo, que estoy preso por causa de Cristo Jesús para bien de vosotros, los gentiles—
 
 ## Efesios 3:2
 
-Si es que habéis oído de la administración de la gracia de Dios que me fue dada para vosotros;
+Seguro que ya sabéis que Dios, en su gracia, me ha encargado esta tarea en favor de vosotros;
 
 ## Efesios 3:3
 
-que por revelación me fue declarado el misterio, como antes he escrito brevemente.
+que por una revelación me dio a conocer su plan secreto, como ya os he escrito brevemente.
 
 ## Efesios 3:4
 
-Leyendo esto, podréis entender cuál sea mi conocimiento en el misterio de Cristo,
+Al leer esto, podréis ver que entiendo bien el plan secreto de Cristo,
 
 ## Efesios 3:5
 
-misterio que en otras generaciones no se dio a conocer a los hijos de los hombres, como ahora es revelado a sus santos apóstoles y profetas por el Espíritu.
+un plan que no se dio a conocer a las personas de otras generaciones, como ahora el Espíritu se lo ha revelado a sus santos apóstoles y profetas.
 
 ## Efesios 3:6
 
-Que los gentiles son coherederos y miembros del mismo cuerpo, y copartícipes de la promesa en Cristo Jesús por medio del evangelio.
+El plan secreto es este: que, por medio del evangelio, los gentiles reciben la herencia junto con Israel, forman parte del mismo cuerpo y tienen parte en la misma promesa en Cristo Jesús.
 
 ## Efesios 3:7
 
-Del cual yo fui hecho ministro por el don de la gracia de Dios que me ha sido dado según la operación de su poder.
+Yo llegué a ser servidor de este evangelio por el regalo de la gracia que Dios me dio por la acción de su poder.
 
 ## Efesios 3:8
 
-A mí, que soy menos que el más pequeño de todos los santos, me fue dada esta gracia de anunciar entre los gentiles el evangelio de las inescrutables riquezas de Cristo,
+A mí, que soy menos que el más pequeño de todo el pueblo santo, se me concedió esta gracia: anunciar a los gentiles la riqueza de Cristo, que nadie puede llegar a medir,
 
 ## Efesios 3:9
 
-y de aclarar a todos cuál sea la dispensación del misterio escondido desde los siglos en Dios, que creó todas las cosas.
+y explicar a todos cómo se lleva a cabo ese plan secreto que durante siglos estuvo escondido en Dios, el creador de todas las cosas.
 
 ## Efesios 3:10
 
-Para que la multiforme sabiduría de Dios sea ahora dada a conocer por medio de la iglesia a los principados y potestades en los lugares celestiales,
+Dios quería que ahora, por medio de la iglesia, su sabiduría en todas sus formas se diera a conocer a los gobernantes y autoridades del mundo celestial,
 
 ## Efesios 3:11
 
-conforme al propósito eterno que hizo en Cristo Jesús nuestro Señor.
+conforme al propósito eterno que llevó a cabo en Cristo Jesús nuestro Señor.
 
 ## Efesios 3:12
 
-En quien tenemos seguridad y acceso con confianza por medio de la fe en él.
+Unidos a Él, y gracias a nuestra fe en Él, podemos acercarnos a Dios con libertad y confianza.
 
 ## Efesios 3:13
 
-Por tanto, os pido que no desmayéis a causa de mis tribulaciones por vosotros, las cuales son vuestra gloria.
+Por eso os pido que no os desaniméis por lo que sufro por vosotros, porque eso es para vuestra gloria.
 
 ## Efesios 3:14
 
-Por esta causa doblo mis rodillas ante el Padre,
+Por eso me arrodillo ante el Padre,
 
 ## Efesios 3:15
 
-de quien toma nombre toda familia en los cielos y en la tierra,
+de quien recibe su nombre toda familia en el cielo y en la tierra,
 
 ## Efesios 3:16
 
-para que os dé, conforme a las riquezas de su gloria, el ser fortalecidos con poder en el hombre interior por su Espíritu;
+y le pido que, de la riqueza de su gloria, os dé fuerza y poder en lo más profundo de vuestro ser por medio de su Espíritu,
 
 ## Efesios 3:17
 
-para que habite Cristo por la fe en vuestros corazones, a fin de que, arraigados y cimentados en amor,
+para que Cristo viva en vuestros corazones por la fe; y pido que, con raíces y cimientos firmes en el amor,
 
 ## Efesios 3:18
 
-seáis plenamente capaces de comprender con todos los santos cuál sea la anchura, la longitud, la profundidad y la altura,
+seáis capaces, junto con todo el pueblo santo, de comprender lo ancho, lo largo, lo alto y lo profundo que es el amor de Cristo,
 
 ## Efesios 3:19
 
-y de conocer el amor de Cristo, que excede a todo conocimiento, para que seáis llenos de toda la plenitud de Dios.
+y de conocer ese amor que va mucho más allá de lo que podemos conocer, para que quedéis llenos de toda la plenitud de Dios.
 
 ## Efesios 3:20
 
-Y a aquel que es poderoso para hacer todas las cosas mucho más abundantemente de lo que pedimos o entendemos, según el poder que actúa en nosotros,
+Y al que puede hacer muchísimo más de lo que pedimos o imaginamos, por el poder que actúa en nosotros,
 
 ## Efesios 3:21
 
-a él sea gloria en la iglesia y en Cristo Jesús por todas las generaciones, por los siglos de los siglos. Amén.
+a Él sea la honra en la iglesia y en Cristo Jesús por todas las generaciones, por siempre jamás. Amén.

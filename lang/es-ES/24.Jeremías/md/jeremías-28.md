@@ -4,7 +4,7 @@
 En el mismo año, al comienzo del reinado de Sedequías, rey de Judá, en el cuarto año, en el quinto mes, Hananías el profeta, hijo de Azur, de Gabaón, me habló en la casa del Señor en presencia de los sacerdotes y de todo el pueblo, diciendo:
 
 ## Jeremías 28:2
-“Así dice el Señor de los Ejércitos, el Dios de Israel: ‘He roto el yugo del rey de Babilonia.
+“Así dice el Señor de los ejércitos, el Dios de Israel: ‘He roto el yugo del rey de Babilonia.
 
 ## Jeremías 28:3
 Dentro de dos años devolveré a este lugar todos los utensilios de la casa del Señor que Nabucodonosor, rey de Babilonia, tomó de aquí y llevó a Babilonia.
@@ -40,7 +40,7 @@ Después de que el profeta Hananías rompió el yugo del cuello del profeta Jere
 “Ve y dile a Hananías: ‘Así dice el Señor: Has roto un yugo de madera, pero en su lugar tendrás un yugo de hierro.
 
 ## Jeremías 28:14
-Porque así dice el Señor de los Ejércitos, el Dios de Israel: Pondré un yugo de hierro en el cuello de todas estas naciones para hacerlas servir a Nabucodonosor, rey de Babilonia, y le servirán. Incluso le daré control sobre los animales salvajes.’”
+Porque así dice el Señor de los ejércitos, el Dios de Israel: Pondré un yugo de hierro en el cuello de todas estas naciones para hacerlas servir a Nabucodonosor, rey de Babilonia, y le servirán. Incluso le daré control sobre los animales salvajes.’”
 
 ## Jeremías 28:15
 Entonces el profeta Jeremías dijo al profeta Hananías: “¡Escucha, Hananías! El Señor no te ha enviado, y has hecho que este pueblo confíe en la falsedad.

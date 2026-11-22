@@ -32,7 +32,7 @@ Salú, Amoc, Hilcías, y Jedaías. Estos eran los jefes de los sacerdotes y sus 
 
 ## Nehemías 12:8
 
-Entre los levitas estaban Jesúa, Binuy, Cadmiel, Serebías, Judá, y Matanías, quien, junto con sus hermanos, era responsable de los cantos de acción de gracias.
+Entre los levitas estaban Jesúa, Binui, Cadmiel, Serebías, Judá, y Matanías, quien, junto con sus hermanos, era responsable de los cantos de acción de gracias.
 
 ## Nehemías 12:9
 
@@ -60,7 +60,7 @@ De la de Maluc, Jonatán; de la de Sebanías, José;
 
 ## Nehemías 12:15
 
-De la de Harim, Adná; de la de Merayot, Helcai;
+De la de Harim, Adná; de la de Meraiot, Helcai;
 
 ## Nehemías 12:16
 
@@ -76,7 +76,7 @@ De la de Bilga, Samúa; de la de Semaías, Jonatán;
 
 ## Nehemías 12:19
 
-De la de Joiarib, Matenai; de la de Jedaías, Uzzi;
+De la de Joiarib, Matenai; de la de Jedaías, Uzi;
 
 ## Nehemías 12:20
 
@@ -148,7 +148,7 @@ y sus parientes —Semaías, Azarel, Milalai, Gilalai, Maai, Natanael, Judá y H
 
 ## Nehemías 12:37
 
-En la Puerta de la Fuente subieron directamente por los escalones de la Ciudad de David en la subida al muro y pasaron por encima de la casa de David hasta la Puerta de las Aguas al este.
+En la Puerta de la Fuente subieron directamente por los escalones de la Ciudad de David en la subida al muro y pasaron por encima de la casa de David hasta la Puerta del Agua al este.
 
 ## Nehemías 12:38
 
@@ -168,7 +168,7 @@ y los sacerdotes —Eliacim, Maasías, Miniamín, Micaías, Elioenai, Zacarías 
 
 ## Nehemías 12:42
 
-y Maasías, Semaías, Eleazar, Uzzi, Johanán, Malquías, Elam y Ezer. Los cantores cantaban bajo la dirección de Jezrahías.
+y Maasías, Semaías, Eleazar, Uzi, Johanán, Malquías, Elam y Ezer. Los cantores cantaban bajo la dirección de Jezrahías.
 
 ## Nehemías 12:43
 

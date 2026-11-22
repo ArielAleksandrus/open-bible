@@ -63,7 +63,7 @@ Cuando oyó decir respecto a Tirhakah, rey de Cus,
 ## 2 Reyes 19:11
 
 He aquí, has oído lo que los reyes de Asiria han hecho a todas las tierras, destruyéndolas completamente.  
- ¿Y tú serás salvado?
+ ¿Y te vas a librar tú?
 
 ## 2 Reyes 19:12
 
@@ -122,10 +122,8 @@ Entonces Isaías, hijo de Amoz, envió palabra a Ezequías, diciendo,
 
 Este es el mensaje que el Señor ha hablado contra él:
 
->  ‘Te ha menospreciado y se ha burlado de ti,  
->  La virgen hija de Sión;  
->  Ha sacudido su cabeza contra ti,  
->  La hija de Jerusalén!
+>  ‘Te ha menospreciado y se ha burlado de ti la virgen hija de Sión;  
+>  ¡ha sacudido su cabeza contra ti la hija de Jerusalén!
 
 ## 2 Reyes 19:22
 
@@ -136,43 +134,43 @@ Este es el mensaje que el Señor ha hablado contra él:
 
 > A través de tus mensajeros has desafiado al Señor, y has dicho,  
 >  “Con mis muchos carros subí a las alturas de los montes,  
->  A las partes más remotas del Líbano;  
->  Y corté sus altos cedros y sus mejores cipreses.  
+>  a las partes más remotas del Líbano;  
+>  y corté sus altos cedros y sus mejores cipreses.  
 >  Y entré en su lugar más lejano de descanso, su bosque más espeso.
 
 ## 2 Reyes 19:24
 
 > Cavé pozos y bebí aguas de tierras extranjeras,  
->  Y con las plantas de mis pies sequé Todos los ríos de Egipto.  
-> ”’
+>  y con las plantas de mis pies sequé Todos los ríos de Egipto.  
+> ”
 
 ## 2 Reyes 19:25
 
 > ¿No has oído?  
 >  Hace mucho tiempo lo hice,  
->  Desde tiempos antiguos lo planeé.  
+>  desde tiempos antiguos lo planeé.  
 >  Ahora lo he llevado a cabo,  
->  Para que conviertas ciudades fortificadas en montones de ruinas.
+>  para que conviertas ciudades fortificadas en montones de ruinas.
 
 ## 2 Reyes 19:26
 
 > Así que sus habitantes estaban impotentes,  
->  Fueron quebrantados y avergonzados.  
+>  fueron quebrantados y avergonzados.  
 >  Eran como la vegetación del campo y la hierba verde,  
->  Como la hierba en los tejados que se quema antes de crecer.
+>  como la hierba en los tejados que se quema antes de crecer.
 
 ## 2 Reyes 19:27
 
 > Pero conozco tu sentarte,  
 >  Tu salir y tu entrar,  
->  Y tu furia contra Mí.
+>  y tu furia contra Mí.
 
 ## 2 Reyes 19:28
 
 > Por tu furia contra Mí,  
->  Y porque tu arrogancia ha llegado a Mis oídos,  
+>  y porque tu arrogancia ha llegado a Mis oídos,  
 >  Pondré Mi anzuelo en tu nariz Y Mi freno en tus labios,  
->  Y te haré volver por el camino por el que viniste.
+>  y te haré volver por el camino por el que viniste.’
 
 ---
 
@@ -200,9 +198,9 @@ Esta será la señal para ti:
 Por tanto, esto es lo que el Señor dice acerca del rey de Asiria:
 
 >  ‘No vendrá a esta ciudad,  
->  Ni lanzará flecha allí;  
->  Ni vendrá delante de ella con escudo,  
->  Ni levantará contra ella un terraplén de asedio.
+>  ni lanzará flecha allí;  
+>  ni vendrá delante de ella con escudo,  
+>  ni levantará contra ella un terraplén de asedio.
 
 ## 2 Reyes 19:33
 
@@ -218,9 +216,9 @@ Por tanto, esto es lo que el Señor dice acerca del rey de Asiria:
 
 ## 2 Reyes 19:35
 
-Entonces sucedió que aquella noche el ángel del Señor salió y mató a 185,  
-000 en el campamento de los asirios;  
- y cuando la gente se levantó por la mañana, he aquí, todos ellos eran cadáveres.
+Entonces sucedió que aquella noche el ángel del Señor salió y mató a 185 000 en el campamento de los asirios;  
+ y cuando la gente se levantó por la mañana,  
+ he aquí, todos ellos eran cadáveres.
 
 ## 2 Reyes 19:36
 

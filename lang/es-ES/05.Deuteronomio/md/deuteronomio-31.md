@@ -37,16 +37,16 @@ cuando todo Israel venga a presentarse ante el Señor tu Dios en el lugar que É
 Reúne al pueblo: hombres, mujeres, niños y los extranjeros que residen en tus ciudades, para que escuchen y aprendan a temer al Señor vuestro Dios y sigan cuidadosamente todas las palabras de esta ley.
 
 ## Deuteronomio 31:13
-Sus hijos, que no están familiarizados con esta ley, deben escucharla y aprender a reverenciar al Señor vuestro Dios mientras viváis en la tierra que estáis cruzando el Jordán para poseer.
+Sus hijos, que no están familiarizados con esta ley, deben escucharla y aprender a reverenciar al Señor vuestro Dios mientras viváis en la tierra que vais a poseer al otro lado del Jordán.”
 
 ## Deuteronomio 31:14
-El Señor dijo a Moisés: “El tiempo de tu muerte está cerca. Llama a Josué y presentaos en la tienda de reunión, donde le daré instrucciones.” Así que Moisés y Josué fueron y se presentaron en la tienda de reunión.
+El Señor dijo a Moisés: “El tiempo de tu muerte está cerca. Llama a Josué y presentaos en la tienda de reunión, donde le daré su encargo.” Así que Moisés y Josué fueron y se presentaron en la tienda de reunión.
 
 ## Deuteronomio 31:15
 El Señor apareció en la tienda en una columna de nube, y la nube se detuvo a la entrada de la tienda.
 
 ## Deuteronomio 31:16
-El Señor dijo a Moisés: “Estás a punto de descansar con tus antepasados, y este pueblo pronto se volverá a dioses extranjeros de la tierra que están entrando. Me abandonarán y romperán el pacto que hice con ellos.
+El Señor dijo a Moisés: “Estás a punto de descansar con tus antepasados, y este pueblo pronto se volverá a dioses extranjeros de la tierra en la que van a entrar. Me abandonarán y romperán el pacto que hice con ellos.
 
 ## Deuteronomio 31:17
 Ese día, Mi ira se encenderá contra ellos, y los abandonaré y esconderé Mi rostro de ellos, y serán consumidos. Muchos desastres y calamidades vendrán sobre ellos, y dirán: ‘¿No han venido estos desastres sobre nosotros porque nuestro Dios no está con nosotros?’

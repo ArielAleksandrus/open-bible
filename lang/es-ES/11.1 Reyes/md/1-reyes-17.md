@@ -122,7 +122,7 @@ Y clamó al Señor y dijo:
 
 Entonces se tendió sobre el niño tres veces,  
  y clamó al Señor y dijo:  
- “Oh Señor mi Dios, por favor, que vuelva la vida de este niño a él.”
+ “Oh Señor mi Dios, por favor, que vuelva a él la vida de este niño.”
 
 ## 1 Reyes 17:22
 

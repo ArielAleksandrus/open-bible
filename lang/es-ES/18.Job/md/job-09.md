@@ -2,7 +2,7 @@
 
 ## Job 9:1
 
-Job respondió, diciendo,
+Job respondió diciendo:
 
 ## Job 9:2
 
@@ -56,7 +56,7 @@ Job respondió, diciendo,
 ## Job 9:12
 
 > Si quita algo, ¿quién puede impedírselo?
->  ¿Quién puede preguntarle, ‘¿Qué estás haciendo?’
+>  ¿Quién puede preguntarle: ‘¿Qué estás haciendo?’
 
 ## Job 9:13
 
@@ -108,7 +108,7 @@ Job respondió, diciendo,
 
 ## Job 9:22
 
-> Todo es lo mismo; por eso digo,
+> Todo es lo mismo; por eso digo:
 >  ‘Él destruye tanto al inocente como al malvado.’
 
 ## Job 9:23
@@ -134,7 +134,7 @@ Job respondió, diciendo,
 
 ## Job 9:27
 
-> Si digo, ‘Dejaré a un lado mi queja,
+> Si digo: ‘Dejaré a un lado mi queja,
 >  cambiaré mi expresión y sonreiré,’
 
 ## Job 9:28
@@ -176,4 +176,4 @@ Job respondió, diciendo,
 ## Job 9:35
 
 > Entonces hablaría sin temor de Él,
->  pero tal como está conmigo, no puedo.
+>  pero tal como estoy, no puedo.

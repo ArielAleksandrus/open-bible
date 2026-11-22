@@ -2,7 +2,7 @@
 
 ## Job 20:1
 
-Zofar el naamatita respondió,
+Zofar el naamatita respondió:
 
 ## Job 20:2
 
@@ -23,7 +23,7 @@ Zofar el naamatita respondió,
 
 ## Job 20:5
 
-> que la exaltación de los impíos es efímera,
+> que el júbilo de los malvados es efímero,
 >  y la alegría de los impíos es sólo por un momento?
 
 ## Job 20:6
@@ -33,7 +33,7 @@ Zofar el naamatita respondió,
 ## Job 20:7
 
 > desaparecerá para siempre como su propio desperdicio;
->  los que le han visto dirán, ‘¿Dónde está?’
+>  los que le han visto dirán: ‘¿Dónde está?’
 
 ## Job 20:8
 
@@ -125,7 +125,7 @@ Zofar el naamatita respondió,
 ## Job 20:25
 
 > Es sacada y sale de su espalda,
->  el punto brillante de su hígado;
+>  la punta reluciente, de su hígado;
 >  terrores vendrán sobre él.
 
 ## Job 20:26
@@ -140,7 +140,7 @@ Zofar el naamatita respondió,
 
 ## Job 20:28
 
-> El aumento de su casa se desvanecerá;
+> Las riquezas de su casa se desvanecerán;
 >  sus posesiones desaparecerán en el día de la ira de Dios.
 
 ## Job 20:29

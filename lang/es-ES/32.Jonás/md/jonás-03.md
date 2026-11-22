@@ -7,7 +7,7 @@ El mensaje del Señor llegó a Jonás una vez más,
 “Levántate, ve a la gran ciudad de Nínive y entrega el mensaje que te daré.”
 
 ## Jonás 3:3
-Jonás se levantó y fue a Nínive de acuerdo con la palabra del Señor. Ahora Nínive era una ciudad sumamente grande, requiriendo tres días para recorrerla.
+Jonás se levantó y fue a Nínive de acuerdo con la palabra del Señor. Nínive era una ciudad sumamente grande; se necesitaban tres días para recorrerla.
 
 ## Jonás 3:4
 Jonás comenzó a entrar en la ciudad, viajando un día de camino, y proclamó, “En cuarenta días Nínive será destruida.”
@@ -25,7 +25,7 @@ Cuando la noticia llegó al rey de Nínive, se levantó de su trono, se quitó s
 Pero que cada persona y animal se cubra de cilicio, y que todos clamen a Dios fervientemente. Que se aparten de sus malos caminos y de la violencia en sus manos.
 
 ## Jonás 3:9
-¿Quién sabe? Dios puede volverse y arrepentirse, y retirar Su ira feroz, para que no perezcamos.”
+¿Quién sabe? Tal vez Dios se vuelva y se arrepienta, y retire Su ira feroz, para que no perezcamos.”
 
 ## Jonás 3:10
 Cuando Dios vio sus acciones, cómo se apartaron de sus malos caminos, se arrepintió y no trajo sobre ellos el desastre que había amenazado.

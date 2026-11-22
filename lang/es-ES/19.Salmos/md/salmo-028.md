@@ -6,21 +6,21 @@
 
 > A ti clamo, Señor;  
 >  Mi roca, no te hagas el sordo conmigo,  
->  Porque si guardas silencio hacia mí,  
+>  porque si guardas silencio hacia mí,  
 >  Seré como los que descienden al sepulcro.
 
 ## Salmo 28:2
 
 > Escucha mis súplicas cuando clamo a ti por ayuda,  
->  Cuando levanto mis manos hacia tu santuario sagrado.
+>  cuando levanto mis manos hacia tu santuario sagrado.
 
 ---
 
 ## Salmo 28:3
 
 > No me arrastres con los malvados Ni con los que practican la injusticia,  
->  Que hablan de paz con sus vecinos,  
->  Mientras el mal está en sus corazones.
+>  que hablan de paz con sus vecinos,  
+>  mientras el mal está en sus corazones.
 
 ## Salmo 28:4
 
@@ -32,29 +32,29 @@
 
 ## Salmo 28:5
 
-> Porque no consideran las obras del Señor Ni los hechos de sus manos,  
->  Él los derribará y no los edificará.
+> Porque no prestan atención a las obras del Señor Ni a lo que Sus manos han hecho,  
+>  Él los echará abajo y nunca los volverá a levantar.
 
 ---
 
 ## Salmo 28:6
 
 > Bendito sea el Señor,  
->  Porque ha escuchado la voz de mis súplicas.
+>  porque ha escuchado la voz de mis súplicas.
 
 ## Salmo 28:7
 
 > El Señor es mi fuerza y mi escudo;  
->  Mi corazón confía en Él, y soy ayudado;  
->  Por tanto, mi corazón se regocija,  
->  Y con mi canción le daré gracias.
+>  Mi corazón pone en Él su confianza,  
+>  y Él me ayuda; por eso mi corazón está feliz,  
+>  y le daré gracias con mi canto.
 
 ## Salmo 28:8
 
 > El Señor es la fuerza de su pueblo,  
->  Y es una fortaleza de salvación para su ungido.
+>  y es una fortaleza de salvación para su ungido.
 
 ## Salmo 28:9
 
-> Salva a tu pueblo y concede tu favor a tu heredad;  
->  Guíalos y sosténlos siempre.
+> Salva a tu pueblo y muestra tu favor a los que te pertenecen;  
+>  Guíalos y dales tu apoyo siempre.

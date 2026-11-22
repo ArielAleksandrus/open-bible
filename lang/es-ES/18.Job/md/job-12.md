@@ -2,12 +2,12 @@
 
 ## Job 12:1
 
-Entonces Job respondió, diciendo,
+Entonces Job respondió diciendo:
 
 ## Job 12:2
 
-> “¡Ciertamente, vosotros sois el pueblo,
->  y con vosotros morirá la sabiduría!
+> “¡Sin duda vosotros sois el pueblo,
+>  y la sabiduría perecerá con vosotros!
 
 ## Job 12:3
 
@@ -25,7 +25,7 @@ Entonces Job respondió, diciendo,
 ## Job 12:5
 
 > Aquellos que están a sus anchas desprecian la calamidad,
->  como está preparada para aquellos cuyos pies resbalan.
+>  que está reservada para aquellos cuyos pies resbalan.
 
 ## Job 12:6
 

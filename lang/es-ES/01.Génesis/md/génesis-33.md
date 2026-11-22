@@ -43,7 +43,7 @@ Jacob dijo: “Mi señor sabe que los niños son frágiles, y debo cuidar de los
 “Por favor, que mi señor se adelante a su siervo. Yo avanzaré a un ritmo suave, según el ganado y los niños, hasta que llegue a mi señor en Seir.”
 
 ## Génesis 33:15
-Esaú ofreció: “Déjame dejar algunos de mis hombres contigo.” Pero Jacob dijo: “¿Por qué hacer eso? Que halle gracia ante los ojos de mi señor.”
+Esaú ofreció: “Permíteme dejar contigo algunos de mis hombres.” Pero Jacob dijo: “¿Por qué hacer eso? Que halle gracia ante los ojos de mi señor.”
 
 ## Génesis 33:16
 Esaú entonces partió ese día, continuando su viaje hacia Seir.

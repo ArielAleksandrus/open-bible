@@ -2,74 +2,74 @@
 
 ## 2 Samuel 15:1
 
-Después de esto, Absalón se proveyó de un carro y caballos,  
- y cincuenta hombres que corriesen delante de él.
+Tiempo después, Absalón se consiguió un carro y caballos,  
+ y cincuenta hombres que iban corriendo delante de él.
 
 ## 2 Samuel 15:2
 
-Y Absalón se levantaba temprano y se ponía al lado del camino junto a la puerta.  
- Cuando alguno tenía un pleito para venir al rey por juicio,  
- Absalón le llamaba y le decía:  
- “¿De qué ciudad eres?”  
- Y él respondía: “Tu siervo es de una de las tribus de Israel.”
+Absalón madrugaba y se colocaba junto al camino que llevaba a la puerta de la ciudad.  
+ Cada vez que alguien llegaba con un pleito para que el rey lo juzgara,  
+ Absalón lo llamaba y le preguntaba:  
+ “¿De qué ciudad eres?  
+” Y él contestaba: “Tu siervo es de una de las tribus de Israel.”
 
 ## 2 Samuel 15:3
 
 Entonces Absalón le decía:  
- “Mira, tus reclamaciones son buenas y justas,  
- pero no hay quien te oiga de parte del rey.”
+ “Mira, tu reclamo es bueno y justo,  
+ pero el rey no ha puesto a nadie para escucharte.”
 
 ## 2 Samuel 15:4
 
-Y Absalón decía:  
- “¡Oh, quién me pusiera por juez en la tierra,  
- para que viniese a mí todo hombre que tuviese pleito o causa,  
- y yo le haría justicia!”
+Y añadía:  
+ “¡Ojalá me nombraran juez del país!  
+ Así todo el que tuviera un pleito o una queja podría acudir a mí,  
+ y yo le haría justicia.”
 
 ## 2 Samuel 15:5
 
-Y cuando alguno se acercaba para inclinarse ante él,  
- él extendía su mano, lo tomaba y lo besaba.
+Y si alguien se acercaba para inclinarse ante él,  
+ Absalón le tendía la mano, lo abrazaba y lo besaba.
 
 ## 2 Samuel 15:6
 
-Absalón hacía esto con todo Israel que venía al rey por juicio;  
- así Absalón robó el corazón de los hombres de Israel.
+Así trataba Absalón a todos los israelitas que venían al rey en busca de justicia,  
+ y de ese modo se fue ganando el corazón de la gente de Israel.
 
 ---
 
 ## 2 Samuel 15:7
 
-Al cabo de cuatro años, Absalón dijo al rey:  
- “Te ruego que me dejes ir a pagar mi voto que he hecho al Señor en Hebrón.
+Al cabo de cuatro años, Absalón le dijo al rey:  
+ “Por favor, déjame ir a Hebrón a cumplir la promesa que le hice al Señor.
 
 ## 2 Samuel 15:8
 
-Porque tu siervo hizo un voto cuando estaba en Gesur en Aram, diciendo:  
- ‘Si el Señor me hace volver a Jerusalén, entonces serviré al Señor.’”
+Cuando tu siervo vivía en Gesur, en Aram, hice este voto:  
+ ‘Si el Señor me permite volver a Jerusalén, le serviré.’”
 
 ## 2 Samuel 15:9
 
-Y el rey le dijo: “Ve en paz.”  
- Entonces él se levantó y fue a Hebrón.
+El rey le respondió: “Vete tranquilo.  
+” Y Absalón se puso en camino hacia Hebrón.
 
 ## 2 Samuel 15:10
 
-Pero Absalón envió mensajeros por todas las tribus de Israel, diciendo:  
- “Tan pronto como oigáis el sonido de la trompeta,  
- diréis: ‘¡Absalón reina en Hebrón!’”
+Pero Absalón mandó mensajeros por todas las tribus de Israel con esta orden:  
+ “En cuanto oigáis el toque de trompeta,  
+ gritad: ‘¡Absalón es rey en Hebrón!’”
 
 ## 2 Samuel 15:11
 
-Y con Absalón fueron doscientos hombres de Jerusalén, que habían sido invitados;  
- iban en su inocencia, sin saber nada.
+Con Absalón salieron de Jerusalén doscientos hombres que él había invitado;  
+ iban de buena fe, sin sospechar nada.
 
 ## 2 Samuel 15:12
 
-Y mientras Absalón ofrecía los sacrificios,  
- mandó llamar a Ahitofel el gilonita, consejero de David, de su ciudad de Giló.  
- Y la conspiración se hizo poderosa,  
- y el pueblo que seguía a Absalón aumentaba.
+Mientras ofrecía los sacrificios,  
+ Absalón mandó traer de Giló, su ciudad, a Ahitofel el gilonita, consejero de David.  
+ Así la conspiración fue tomando fuerza,  
+ y cada vez eran más los que se unían a Absalón.
 
 ---
 
@@ -80,141 +80,141 @@ Entonces vino un mensajero a David, diciendo:
 
 ## 2 Samuel 15:14
 
-Y David dijo a todos sus siervos que estaban con él en Jerusalén:  
- “Levantaos, huyamos, porque no podremos escapar de Absalón.  
- Daos prisa a partir, no sea que él se apresure y nos alcance,  
- y arroje el mal sobre nosotros,  
- y hiera la ciudad a filo de espada.”
+Entonces David dijo a todos sus siervos que estaban con él en Jerusalén:  
+ “¡Vamos, huyamos ya, o ninguno de nosotros escapará de Absalón!  
+ Salid deprisa, no sea que nos alcance de repente,  
+ nos traiga la ruina y pase la ciudad a cuchillo.  
+”
 
 ## 2 Samuel 15:15
 
-Y los siervos del rey le dijeron:  
- “He aquí, tus siervos están listos para hacer todo lo que mi señor el rey decida.”
+Los siervos del rey le contestaron:  
+ “Aquí tienes a tus siervos, dispuestos a hacer lo que decida nuestro señor el rey.”
 
 ## 2 Samuel 15:16
 
-Y salió el rey, y toda su casa con él.  
- Pero dejó el rey diez concubinas para guardar la casa.
+El rey salió con toda su familia,  
+ pero dejó a diez concubinas para que cuidaran el palacio.
 
 ## 2 Samuel 15:17
 
-Y salió el rey con todo el pueblo que le seguía, y se detuvieron en la última casa.
+El rey se fue con toda la gente que lo acompañaba, y se detuvieron en la última casa de la ciudad.
 
 ## 2 Samuel 15:18
 
-Y todos sus siervos pasaban a su lado,  
- y todos los quereteos, todos los peleteos y todos los geteos, seiscientos hombres que habían venido a pie desde Gat, pasaban delante del rey.
+Todos sus siervos iban desfilando a su lado;  
+ y todos los cereteos, los peleteos y los geteos —seiscientos hombres que lo habían seguido desde Gat— pasaban delante del rey.
 
 ## 2 Samuel 15:19
 
-Y el rey dijo a Itai el geteo:  
- “¿Por qué vienes tú también con nosotros? Vuélvete y quédate con el rey,  
- porque tú eres extranjero y además desterrado de tu lugar.
+El rey le dijo a Itai el geteo:  
+ “¿Por qué vienes tú también con nosotros? Regresa y quédate con el rey,  
+ porque tú eres extranjero y además estás lejos de tu tierra.
 
 ## 2 Samuel 15:20
 
-Ayer viniste, ¿y he de hacerte hoy errar con nosotros,  
- cuando yo mismo voy a donde pueda?  
- Vuélvete y lleva contigo a tus hermanos.  
- La misericordia y la verdad sean contigo.”
+Llegaste apenas ayer, ¿y hoy voy a hacerte andar de un lado a otro con nosotros,  
+ si ni yo sé adónde voy?  
+ Regresa y llévate a tus hermanos.  
+ Que la misericordia y la fidelidad te acompañen.”
 
 ## 2 Samuel 15:21
 
-Y Itai respondió al rey y dijo:  
- “Vive Dios, y viva mi señor el rey,  
- que para muerte o para vida, donde mi señor el rey esté,  
- allí estará también tu siervo.”
+Pero Itai le respondió al rey:  
+ “Tan cierto como que el Señor vive,  
+ y como que vive mi señor el rey, dondequiera que esté mi señor el rey,  
+ sea para morir o para vivir, allí estará tu siervo.”
 
 ## 2 Samuel 15:22
 
-Entonces David dijo a Itai:  
- “Ven, pasa.”  
- Y pasó Itai el geteo, y todos sus hombres y toda la familia que con él estaba.
+David le dijo a Itai: “Está bien,  
+ adelante.  
+” Así que Itai el geteo pasó con todos sus hombres y los niños que lo acompañaban.
 
 ---
 
 ## 2 Samuel 15:23
 
-Y toda la tierra lloraba en alta voz mientras todo el pueblo pasaba.  
- El rey también pasó el arroyo de Cedrón,  
- y todo el pueblo pasó hacia el camino del desierto.
+Todo el país lloraba a gritos mientras pasaba toda aquella gente.  
+ El rey cruzó el arroyo de Cedrón,  
+ y todo el pueblo siguió hacia el camino del desierto.
 
 ## 2 Samuel 15:24
 
-Y he aquí, también Sadoc y todos los levitas con él,  
+También llegó Sadoc, y con él todos los levitas,  
  que llevaban el arca del pacto de Dios.  
- Y asentaron el arca de Dios,  
- y subió Abiatar hasta que todo el pueblo hubo acabado de salir de la ciudad.
+ Pusieron el arca en el suelo,  
+ y Abiatar subió hasta que toda la gente terminó de salir de la ciudad.
 
 ## 2 Samuel 15:25
 
-Y dijo el rey a Sadoc:  
- “Vuelve el arca de Dios a la ciudad.  
- Si hallo gracia ante los ojos del Señor, Él me hará volver y me dejará ver el arca y su morada.
+Entonces el rey le dijo a Sadoc:  
+ “Lleva otra vez el arca de Dios a la ciudad.  
+ Si el Señor me mira con favor, me hará volver y me dejará verla de nuevo, a ella y el lugar donde Él habita.
 
 ## 2 Samuel 15:26
 
-Pero si Él dijere así: ‘No me complazco en ti,’  
- he aquí, aquí estoy; que haga de mí lo que bien le parezca.”
+Pero si me dice: ‘No me agradas’,  
+ aquí me tiene; que haga conmigo lo que mejor le parezca.”
 
 ## 2 Samuel 15:27
 
-Dijo además el rey a Sadoc el sacerdote:  
- “¿No eres tú vidente? Vuelve en paz a la ciudad,  
- y con vosotros vuestros dos hijos,  
- Ahimaas tu hijo y Jonatán hijo de Abiatar.
+El rey le dijo también al sacerdote Sadoc:  
+ “¿No eres tú vidente?  
+ Vuelve tranquilo a la ciudad con tus dos hijos, Ahimaas,  
+ tu hijo, y Jonatán, hijo de Abiatar.
 
 ## 2 Samuel 15:28
 
 Mirad,  
- yo esperaré en los vados del desierto hasta que venga respuesta de vosotros para informarme.”
+ yo me quedaré esperando junto a los vados del desierto hasta que me mandéis noticias.”
 
 ## 2 Samuel 15:29
 
-Entonces Sadoc y Abiatar volvieron el arca de Dios a Jerusalén, y se quedaron allí.
+Así que Sadoc y Abiatar llevaron el arca de Dios de vuelta a Jerusalén, y se quedaron allí.
 
 ---
 
 ## 2 Samuel 15:30
 
-Y David subió la cuesta de los Olivos, llorando mientras subía.  
- Llevaba la cabeza cubierta y andaba descalzo.  
- Y todo el pueblo que tenía consigo cubrió cada uno su cabeza, y subieron llorando mientras subían.
+David subía llorando por la cuesta del monte de los Olivos,  
+ con la cabeza cubierta y descalzo.  
+ Toda la gente que iba con él también se cubrió la cabeza, y subían llorando.
 
 ## 2 Samuel 15:31
 
-Y alguien dio aviso a David, diciendo:  
- “Ahitofel está entre los conspiradores con Absalón.”  
- Y David dijo:  
- “Oh Señor, te ruego que vuelvas insensato el consejo de Ahitofel.”
+Alguien le avisó a David:  
+ “Ahitofel está con Absalón entre los conspiradores.” Y David oró:  
+ “Señor,  
+ por favor, haz que los consejos de Ahitofel resulten una tontería.”
 
 ## 2 Samuel 15:32
 
-Y cuando David llegó a la cumbre donde se adoraba a Dios,  
- he aquí que Husai el arquita le salió al encuentro con su vestido rasgado y tierra sobre su cabeza.
+Cuando David llegó a la cima, donde se adoraba a Dios,  
+ salió a su encuentro Husai el arquita, con la túnica rasgada y polvo sobre la cabeza.
 
 ## 2 Samuel 15:33
 
-Y David le dijo:  
- “Si pasas conmigo, me serás una carga.
+David le dijo:  
+ “Si vienes conmigo, me serás una carga.
 
 ## 2 Samuel 15:34
 
-Pero si vuelves a la ciudad y dices a Absalón:  
- ‘Seré tu siervo, oh rey; como he sido siervo de tu padre en tiempos pasados,  
- así seré ahora tu siervo,’  
- entonces tú podrás desbaratar para mí el consejo de Ahitofel.
+Pero si regresas a la ciudad y le dices a Absalón:  
+ ‘Oh rey, yo seré tu siervo; antes serví a tu padre,  
+ ahora te serviré a ti’,  
+ entonces podrás echar abajo los planes de Ahitofel en mi favor.
 
 ## 2 Samuel 15:35
 
-¿No estarán allí contigo Sadoc y Abiatar los sacerdotes?  
- Por tanto, todo lo que oigas de la casa del rey, lo comunicarás a Sadoc y a Abiatar los sacerdotes.
+Allí tendrás contigo a los sacerdotes Sadoc y Abiatar.  
+ Cualquier cosa que oigas en el palacio, cuéntasela a ellos.
 
 ## 2 Samuel 15:36
 
-He aquí que están con ellos sus dos hijos, Ahimaas, hijo de Sadoc,  
- y Jonatán, hijo de Abiatar;  
- y por medio de ellos me enviaréis todo lo que oigáis.”
+Sus dos hijos, Ahimaas, hijo de Sadoc, y Jonatán, hijo de Abiatar,  
+ están allí con ellos;  
+ por medio de ellos me haréis llegar todo lo que oigáis.”
 
 ## 2 Samuel 15:37
 

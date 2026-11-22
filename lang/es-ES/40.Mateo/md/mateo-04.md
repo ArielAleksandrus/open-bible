@@ -86,7 +86,7 @@ Entonces, sin demora, dejaron sus redes y le siguieron.
 
 ## Mateo 4:21
 
-Continuando, vio a otros dos hermanos, Jacobo hijo de Zebedeo, y su hermano Juan, en la barca con su padre Zebedeo, remendando sus redes; y los llamó.
+Continuando, vio a otros dos hermanos, Santiago hijo de Zebedeo, y su hermano Juan, en la barca con su padre Zebedeo, remendando sus redes; y los llamó.
 
 ## Mateo 4:22
 

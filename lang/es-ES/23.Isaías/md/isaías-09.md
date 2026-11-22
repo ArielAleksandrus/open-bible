@@ -14,7 +14,7 @@ Has multiplicado la nación y aumentado su alegría; se alegran delante de Ti co
 
 ## Isaías 9:4
 
-Porque has roto el yugo de su carga y el bastón sobre sus hombros, la vara de su opresor, como en el día de la derrota de Madián.
+Porque Tú has roto el yugo que los aplastaba, el palo que les golpeaba los hombros, la vara del que los oprimía, como el día en que fue derrotado Madián.
 
 ## Isaías 9:5
 
@@ -26,7 +26,7 @@ Porque un niño nos es nacido, un hijo nos es dado, y el gobierno estará sobre 
 
 ## Isaías 9:7
 
-Del aumento de su gobierno y de la paz no habrá fin. Reinará sobre el trono de David y sobre su reino, estableciéndolo y sosteniéndolo con justicia y rectitud desde ahora y para siempre. El celo del Señor de los ejércitos hará esto.
+Su gobierno crecerá y la paz no tendrá fin. Reinará en el trono de David y sobre su reino, y lo afirmará y lo sostendrá con justicia y rectitud desde ahora y para siempre. El amor ardiente del Señor de los ejércitos hará que así sea.
 
 ## Isaías 9:8
 
@@ -50,7 +50,7 @@ Los arameos desde el este y los filisteos desde el oeste han devorado a Israel c
 
 ## Isaías 9:13
 
-Pero el pueblo no ha vuelto a Él que los hirió, ni han buscado al Señor de los ejércitos.
+Pero el pueblo no ha vuelto al que los hirió, ni han buscado al Señor de los ejércitos.
 
 ## Isaías 9:14
 

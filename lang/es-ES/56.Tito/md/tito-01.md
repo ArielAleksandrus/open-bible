@@ -1,7 +1,7 @@
 # Tito Capítulo 1
 
 ## Tito 1:1
-Pablo, siervo de Dios y apóstol de Jesucristo, para la fe de los escogidos de Dios y el conocimiento de la verdad que lleva a la piedad—
+Pablo, siervo de Dios y apóstol de Jesucristo, para la fe de los escogidos de Dios y el conocimiento de la verdad que lleva a la piedad,
 
 ## Tito 1:2
 con la esperanza de la vida eterna, que Dios, quien no miente, prometió hace mucho tiempo,
@@ -31,10 +31,10 @@ Debe aferrarse firmemente al mensaje fiel tal como ha sido enseñado, para que p
 Porque hay muchos rebeldes, charlatanes y engañadores, especialmente los del grupo de la circuncisión.
 
 ## Tito 1:11
-Es necesario silenciarlos, porque están trastornando familias enteras al enseñar cosas que no deben enseñar, por el bien de ganancias deshonestas.
+Es necesario silenciarlos, porque están trastornando familias enteras al enseñar cosas que no deben enseñar, por ganancias deshonestas.
 
 ## Tito 1:12
-Uno de sus propios profetas ha dicho: “Los cretenses son siempre mentirosos, malas bestias, glotones perezosos.”
+Uno de sus propios profetas lo dijo: “Los cretenses son siempre unos mentirosos, unas fieras malvadas y unos glotones perezosos.”
 
 ## Tito 1:13
 Este testimonio es verdadero. Por tanto, repréndelos con severidad, para que sean sanos en la fe
@@ -43,7 +43,7 @@ Este testimonio es verdadero. Por tanto, repréndelos con severidad, para que se
 y no presten atención a mitos judíos ni a mandamientos de hombres que se apartan de la verdad.
 
 ## Tito 1:15
-Para los puros, todas las cosas son puras, pero para los corrompidos e incrédulos, nada es puro. De hecho, tanto su mente como su conciencia están corrompidas.
+Para los que son puros, todo es puro; pero para los que están corrompidos y no creen, nada es puro. Al contrario, tienen corrompidas tanto la mente como la conciencia.
 
 ## Tito 1:16
-Profesan conocer a Dios, pero con sus acciones lo niegan. Son detestables, desobedientes e inútiles para cualquier buena obra.
+Dicen que conocen a Dios, pero con lo que hacen lo niegan. Son despreciables y desobedientes, y no sirven para hacer nada bueno.

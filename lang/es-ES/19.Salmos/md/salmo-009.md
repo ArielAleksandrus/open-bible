@@ -9,8 +9,8 @@
 
 ## Salmo 9:2
 
-> Me alegraré y me regocijaré en Ti;  
->  Cantaré alabanzas a Tu nombre, oh Altísimo.
+> En Ti me alegraré y me llenaré de gozo;  
+>  cantaré alabanzas a Tu nombre, oh Altísimo.
 
 ---
 
@@ -22,7 +22,7 @@
 ## Salmo 9:4
 
 > Porque has defendido mi causa justa;  
->  Te has sentado en el trono juzgando con justicia.
+>  te has sentado en el trono juzgando con justicia.
 
 ## Salmo 9:5
 
@@ -32,8 +32,8 @@
 ## Salmo 9:6
 
 > El enemigo ha encontrado su fin en ruinas eternas,  
->  Y Tú has desarraigado las ciudades;  
->  La memoria de ellas ha desaparecido.
+>  y Tú has desarraigado las ciudades;  
+>  la memoria de ellas ha desaparecido.
 
 ---
 
@@ -50,12 +50,12 @@
 ## Salmo 9:9
 
 > El Señor también será un refugio para los oprimidos,  
->  Un baluarte en tiempos de angustia;
+>  un baluarte en tiempos de angustia;
 
 ## Salmo 9:10
 
 > Y los que conocen Tu nombre confiarán en Ti,  
->  Porque Tú, Señor, no has abandonado a los que Te buscan.
+>  porque Tú, Señor, no has abandonado a los que Te buscan.
 
 ---
 
@@ -67,7 +67,7 @@
 ## Salmo 9:12
 
 > Porque el que venga la sangre los recuerda;  
->  No olvida el clamor de los afligidos.
+>  no olvida el clamor de los afligidos.
 
 ---
 
@@ -80,14 +80,14 @@
 ## Salmo 9:14
 
 > Para que pueda contar todas Tus alabanzas,  
->  Que en las puertas de la hija de Sion Me regocije en Tu salvación.
+>  que en las puertas de la hija de Sion Me regocije en Tu salvación.
 
 ---
 
 ## Salmo 9:15
 
 > Las naciones han caído en el hoyo que hicieron;  
->  En la red que escondieron, su propio pie ha quedado atrapado.
+>  en la red que escondieron, su propio pie ha quedado atrapado.
 
 ## Salmo 9:16
 
@@ -104,18 +104,18 @@
 ## Salmo 9:18
 
 > Porque el necesitado no siempre será olvidado,  
->  Ni la esperanza de los afligidos desaparecerá para siempre.
+>  ni la esperanza de los afligidos desaparecerá para siempre.
 
 ---
 
 ## Salmo 9:19
 
 > Levántate, Señor, no dejes que el hombre triunfe;  
->  Que las naciones sean juzgadas en Tu presencia.
+>  que las naciones sean juzgadas en Tu presencia.
 
 ## Salmo 9:20
 
 > Infunde temor en ellos, Señor;  
->  Que las naciones sepan que son meramente humanas.
+>  que las naciones sepan que son meramente humanas.
 
 >  Selah

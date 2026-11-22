@@ -4,61 +4,61 @@
 
 ## Salmo 58:1
 
-> ¿Acaso habláis en verdad justicia, vosotros, dioses?  
->  ¿Juzgáis con rectitud, hijos de los hombres?
+> Vosotros, dioses, ¿de verdad habláis con justicia?  
+>  ¿Juzgáis con equidad a los seres humanos?
 
 ## Salmo 58:2
 
-> Sin embargo, en el corazón cometéis iniquidad;  
->  En la tierra allanáis el camino para la violencia de vuestras manos.
+> ¡Al contrario! En vuestro corazón tramáis el mal;  
+>  en la tierra abrís camino a la violencia que hacen vuestras manos.
 
 ---
 
 ## Salmo 58:3
 
-> Los malvados se han desviado desde el principio;  
->  Los que hablan falsedades se extravían desde su nacimiento.
+> Los malvados se descarriaron desde el principio;  
+>  los mentirosos andan perdidos desde que nacieron.
 
 ## Salmo 58:4
 
-> Poseen veneno semejante al de una serpiente;  
->  Como una cobra sorda que cierra su oído,
+> Tienen un veneno parecido al de la serpiente;  
+>  son como la cobra sorda que se tapa los oídos,
 
 ## Salmo 58:5
 
-> Para no escuchar la voz de los encantadores,  
->  Ni del hábil hechicero.
+> Para no oír la voz de los encantadores,  
+>  ni del hechicero más hábil.
 
 ---
 
 ## Salmo 58:6
 
-> Dios, rompe sus dientes en su boca;  
->  Quita los colmillos de los leoncillos, Señor.
+> Dios, rómpeles los dientes en la boca;  
+>  Señor, arráncales los colmillos a esos leones.
 
 ## Salmo 58:7
 
-> Que desaparezcan como agua que se escurre;  
->  Cuando él tensa su arco, que sus flechas sean como varas sin punta.
+> Que desaparezcan como el agua que se escurre;  
+>  cuando tense su arco, que sus flechas sean como palos sin punta.
 
 ## Salmo 58:8
 
-> Que sean como un caracol que se disuelve en baba,  
->  Como un aborto que nunca ve el sol.
+> Que sean como el caracol que se deshace en baba,  
+>  como el niño que nace muerto y nunca llega a ver el sol.
 
 ---
 
 ## Salmo 58:9
 
-> Antes de que vuestras ollas sientan el calor de los espinos,  
->  Él los barrerá con un torbellino, tanto los frescos como los ardientes.
+> Antes de que vuestras ollas noten el calor de las espinas encendidas,  
+>  Él se los llevará en un torbellino, a los verdes y a los que arden.
 
 ## Salmo 58:10
 
-> El justo se regocijará cuando vea la justicia;  
->  Lavará sus pies en la caída de los malvados.
+> El justo se alegrará cuando vea que se hace justicia;  
+>  Se lavará los pies en la ruina de los malvados.
 
 ## Salmo 58:11
 
-> Y la gente declarará: “Verdaderamente hay recompensa para el justo;  
->  Verdaderamente hay un Dios que juzga en la tierra!”
+> Y la gente dirá: “¡Es verdad que el justo tiene su recompensa;  
+>  Es verdad que hay un Dios que hace justicia en la tierra!”

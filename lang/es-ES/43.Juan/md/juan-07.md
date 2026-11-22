@@ -2,11 +2,11 @@
 
 ## Juan 7:1
 
-Después de esto, Jesús se movía por Galilea. Era reacio a viajar por Judea porque los líderes judíos buscaban matarlo.
+Después de esto, Jesús andaba por Galilea. Era reacio a viajar por Judea porque los líderes judíos buscaban matarlo.
 
 ## Juan 7:2
 
-Ahora se acercaba la Fiesta Judía de los Tabernáculos.
+Se acercaba la fiesta judía de los Tabernáculos.
 
 ## Juan 7:3
 
@@ -98,7 +98,7 @@ Si un niño es circuncidado en sábado para que la ley de Moisés no sea quebran
 
 ## Juan 7:24
 
-No juzguéis por las apariencias, sino juzgad con justo juicio.”
+No juzguéis por las apariencias; juzgad con un juicio justo.”
 
 ---
 
@@ -156,11 +156,11 @@ Los judíos se decían unos a otros: “¿A dónde piensa ir este hombre que no 
 
 ## Juan 7:37
 
-En el último y gran día de la fiesta, Jesús se puso de pie y dijo en voz alta: “Si alguno tiene sed, venga a mí y beba.
+El último día de la fiesta, el más importante, Jesús se puso de pie y dijo en voz alta: “Si alguien tiene sed, que venga a mí y beba.
 
 ## Juan 7:38
 
-El que cree en mí, como dice la Escritura, de su interior correrán ríos de agua viva.”
+Al que cree en mí, como dice la Escritura, le brotarán de dentro ríos de agua viva.”
 
 ## Juan 7:39
 
@@ -174,7 +174,7 @@ Al oír sus palabras, algunos de la gente comentaron: “Seguramente este hombre
 
 ## Juan 7:41
 
-Otros decían: “Él es el Mesías.” Sin embargo, algunos cuestionaban: “¿Cómo puede el Mesías venir de Galilea?
+Otros decían: “Él es el Mesías.” Sin embargo, algunos preguntaban: “¿Cómo puede el Mesías venir de Galilea?
 
 ## Juan 7:42
 

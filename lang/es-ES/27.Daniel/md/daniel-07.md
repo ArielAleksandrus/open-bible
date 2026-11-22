@@ -34,7 +34,7 @@ Un río de fuego fluía delante de Él. Miles de miles le servían, y diez mil v
 Seguí observando a causa de las palabras arrogantes que el cuerno estaba hablando. Observé hasta que la bestia fue muerta, y su cuerpo destruido y arrojado al fuego ardiente.
 
 ## Daniel 7:12
-En cuanto a las otras bestias, su dominio fue quitado, pero se les permitió vivir por un cierto período de tiempo.
+En cuanto a las otras bestias, su dominio fue quitado, pero se les prolongó la vida por un cierto período de tiempo.
 
 ## Daniel 7:13
 En mi visión nocturna, vi a uno como un hijo de hombre viniendo con las nubes del cielo. Se acercó al Anciano de Días y fue presentado ante Él.
@@ -82,4 +82,4 @@ Pero el tribunal se sentará en juicio, y su dominio será quitado, aniquilado y
 Entonces la soberanía, el dominio y la grandeza de todos los reinos bajo el cielo serán entregados al pueblo de los santos del Altísimo. Su reino será un reino eterno, y todos los gobernantes le servirán y obedecerán.’
 
 ## Daniel 7:28
-Este es el final del asunto. Yo, Daniel, estaba muy turbado por mis pensamientos, y mi rostro palideció, pero guardé el asunto para mí mismo.
+Este es el final del asunto. Yo, Daniel, estaba muy turbado por mis pensamientos, y mi rostro palideció, pero guardé el asunto para mí mismo.”

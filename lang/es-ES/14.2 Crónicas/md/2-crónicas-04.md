@@ -52,7 +52,7 @@ Era tan grueso como el ancho de una mano,
 También hizo diez pilas para lavar,
 
 >  y colocó cinco en el lado derecho y cinco en el lado izquierdo,  
->  para enjuagar las cosas para la ofrenda quemada;  
+>  para enjuagar las cosas para el holocausto;  
 >  pero el Mar era para que los sacerdotes se lavaran en él.
 
 ---
@@ -90,9 +90,9 @@ Colocó el Mar en el lado derecho de la casa, hacia el sureste.
 
 ## 2 Crónicas 4:11
 
-Huram también hizo los cubos, las palas y los tazones.
+Hiram también hizo los cubos, las palas y los tazones.
 
->  Así, Huram completó el trabajo que emprendió para el rey Salomón en la casa de Dios:
+>  Así, Hiram completó el trabajo que emprendió para el rey Salomón en la casa de Dios:
 
 ---
 
@@ -125,7 +125,7 @@ También fabricó las bases y las pilas que se colocaron sobre ellas,
 ## 2 Crónicas 4:16
 
 > Los cubos, las palas, los tenedores,  
->  y todos sus utensilios fueron hechos por Huram-abi de bronce pulido para el rey Salomón para la casa del Señor.
+>  y todos sus utensilios fueron hechos por Hiram-abi de bronce pulido para el rey Salomón para la casa del Señor.
 
 ---
 

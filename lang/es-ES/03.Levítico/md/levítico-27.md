@@ -49,16 +49,16 @@ Si el que dedica la casa desea redimirla, debe añadir una quinta parte a su val
 “‘Si alguien dedica parte de su tierra familiar al Señor, su valor se fijará según la cantidad de semilla requerida para ella: cincuenta siclos de plata por un homer de semilla de cebada.
 
 ## Levítico 27:17
-Si dedican el campo durante el Año del Jubileo, el valor fijado se mantendrá.
+Si dedica el campo durante el Año del Jubileo, el valor fijado se mantendrá.
 
 ## Levítico 27:18
-Si dedican el campo después del Jubileo, el sacerdote calculará el valor según el número de años que queden hasta el próximo Jubileo, y el valor se reducirá.
+Si dedica el campo después del Jubileo, el sacerdote calculará el valor según el número de años que queden hasta el próximo Jubileo, y el valor se reducirá.
 
 ## Levítico 27:19
 Si el que dedica el campo desea redimirlo, debe añadir una quinta parte a su valor, y volverá a ser suyo.
 
 ## Levítico 27:20
-Si no redimen el campo, o si ha sido vendido a otra persona, no podrá ser redimido.
+Si no redime el campo, o si ha sido vendido a otra persona, no podrá ser redimido.
 
 ## Levítico 27:21
 Cuando el campo sea liberado en el Jubileo, será santo para el Señor, como un campo dedicado a Él; se convertirá en propiedad del sacerdote.
@@ -85,7 +85,7 @@ Si es uno de los animales impuros, puede ser redimido a su valor fijado más una
 “‘Nada de lo que una persona posee y dedica al Señor —sea humano, animal o tierra familiar— puede ser vendido o redimido; todo lo dedicado es santísimo para el Señor.
 
 ## Levítico 27:29
-Ninguna persona que esté destinada a destrucción puede ser rescatada; deben ser puestas a muerte.
+Ninguna persona que esté destinada a destrucción puede ser rescatada; debe ser condenada a muerte.
 
 ## Levítico 27:30
 “‘Una décima parte de toda la producción de la tierra, ya sea grano del suelo o fruto de los árboles, está consagrada al Señor; es santa para Él.

@@ -78,7 +78,7 @@ Samuel dijo: “Aunque te considerabas insignificante, ¿no fuiste hecho líder 
 
 ## 1 Samuel 15:18
 
-y el Señor te envió en una misión, instruyéndote a ‘Ve y destruye por completo a los pecadores amalecitas, y lucha contra ellos hasta que no queden más.’
+y el Señor te envió en una misión, diciéndote: ‘Ve y destruye por completo a los pecadores amalecitas, y lucha contra ellos hasta que no queden más.’
 
 ## 1 Samuel 15:19
 
@@ -96,17 +96,17 @@ Pero el pueblo tomó parte del botín, ovejas y bueyes, lo mejor de las cosas de
 
 ## 1 Samuel 15:22
 
-Samuel dijo,
+Samuel dijo:
 
->  “¿Se complace el Señor tanto en los holocaustos y sacrificios Como en obedecer la voz del Señor?  
+>  “¿Se complace el Señor tanto en los holocaustos y sacrificios como en obedecer la voz del Señor?  
 >  He aquí,  
 >  obedecer es mejor que el sacrificio,  
->  Y prestar atención que la grasa de los carneros.
+>  y prestar atención, mejor que la grasa de los carneros.
 
 ## 1 Samuel 15:23
 
 > Porque la rebelión es como el pecado de adivinación,  
->  Y la obstinación es como la iniquidad y la idolatría.  
+>  y la obstinación es como la iniquidad y la idolatría.  
 >  Porque has rechazado la palabra del Señor,  
 >  Él también te ha rechazado para que no seas rey.”
 
@@ -153,10 +153,10 @@ Entonces Samuel dijo: “Traedme a Agag, el rey de los amalecitas.”
 
 ## 1 Samuel 15:33
 
-Pero Samuel dijo,
+Pero Samuel dijo:
 
 >  “Como tu espada ha dejado a las mujeres sin hijos,  
->  Así tu madre quedará sin hijos entre las mujeres.”  
+>  así tu madre quedará sin hijos entre las mujeres.”  
 >  Y Samuel ejecutó a Agag delante del Señor en Gilgal.
 
 ## 1 Samuel 15:34

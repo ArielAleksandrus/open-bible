@@ -24,7 +24,7 @@
 ## Salmo 3:4
 
 > Con mi voz clamé al Señor,  
->  Y Él me respondió desde su monte santo.
+>  y Él me respondió desde su monte santo.
 
 >  Selah
 
@@ -32,12 +32,12 @@
 
 ## Salmo 3:5
 
-> Yo me acosté y dormí;  
->  Me desperté, porque el Señor me sostiene.
+> Me acosté y me quedé dormido;  
+>  volví a despertar, porque el Señor me sostiene.
 
 ## Salmo 3:6
 
-> No temeré a las multitudes de gente Que se han puesto en contra de mí.
+> No temeré a las multitudes de gente Que me han rodeado.
 
 ---
 
@@ -52,6 +52,6 @@
 ## Salmo 3:8
 
 > La salvación es del Señor;  
->  Que tu bendición esté sobre tu pueblo.
+>  que tu bendición esté sobre tu pueblo.
 
 >  Selah

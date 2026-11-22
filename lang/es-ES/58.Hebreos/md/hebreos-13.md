@@ -6,101 +6,101 @@ Que el amor por los hermanos continúe.
 
 ## Hebreos 13:2
 
-No olvidéis la hospitalidad, porque por ella algunos, sin saberlo, hospedaron ángeles.
+No os olvidéis de recibir bien a los extranjeros, porque, haciéndolo, algunos recibieron ángeles en su casa sin darse cuenta.
 
 ## Hebreos 13:3
 
-Acordaos de los presos, como si estuvierais presos juntamente con ellos; y de los maltratados, puesto que también vosotros estáis en el cuerpo.
+Acordaos de los presos, como si estuvierais presos con ellos, y de los que son maltratados, ya que también vosotros tenéis un cuerpo.
 
 ## Hebreos 13:4
 
-Honroso sea en todos el matrimonio, y el lecho conyugal sin mancilla; pero a los fornicarios y a los adúlteros los juzgará Dios.
+Todos deben respetar el matrimonio, y la relación íntima entre esposos debe mantenerse pura, porque Dios juzgará a los adúlteros y a los inmorales.
 
 ## Hebreos 13:5
 
-Sean vuestras costumbres sin avaricia, contentos con lo que tenéis ahora; porque él dijo:
+Que vuestra manera de ser esté libre del amor al dinero, y estad contentos con lo que tenéis; porque Él ha dicho:
 
->  “No te dejaré, ni te desampararé.”
+>  “Nunca te dejaré, y jamás te abandonaré.”
 
 ## Hebreos 13:6
 
-De manera que podemos decir confiadamente:
+Así que podemos decir con confianza:
 
->  “El Señor es mi ayudador; no temeré.
->  ¿Qué me puede hacer el hombre?”
+>  “El Señor es quien me ayuda; no tendré miedo.
+>  ¿Qué me pueden hacer los simples mortales?”
 
 ## Hebreos 13:7
 
-Acordaos de vuestros pastores, que os hablaron la palabra de Dios; considerad cuál haya sido el resultado de su conducta, e imitad su fe.
+Acordaos de vuestros dirigentes, que os comunicaron la palabra de Dios. Pensad en el resultado de su manera de vivir e imitad su fe.
 
 ## Hebreos 13:8
 
-Jesucristo es el mismo ayer, y hoy, y por los siglos.
+Jesucristo es siempre el mismo: ayer, hoy y por toda la eternidad.
 
 ## Hebreos 13:9
 
-No os dejéis llevar de doctrinas diversas y extrañas; porque buena cosa es afirmar el corazón con la gracia, no con viandas, que nunca aprovecharon a los que se han ocupado de ellas.
+No os dejéis arrastrar por enseñanzas de todo tipo y extrañas; es bueno que el corazón se fortalezca con la gracia, y no con reglas sobre comidas, que no han ayudado en nada a los que se preocupan por ellas.
 
 ## Hebreos 13:10
 
-Tenemos un altar, del cual no tienen derecho de comer los que sirven al tabernáculo.
+Nosotros tenemos un altar del que no tienen derecho a comer los que sirven en el tabernáculo.
 
 ## Hebreos 13:11
 
-Porque los cuerpos de aquellos animales, cuya sangre a causa del pecado es introducida en el santuario por el sumo sacerdote, son quemados fuera del campamento.
+El sumo sacerdote lleva la sangre de los animales al Lugar Santo como ofrenda por el pecado, pero los cuerpos se queman fuera del campamento.
 
 ## Hebreos 13:12
 
-Por lo cual también Jesús, para santificar al pueblo mediante su propia sangre, padeció fuera de la puerta.
+Por eso también Jesús sufrió fuera de la puerta de la ciudad, para hacer santo al pueblo por medio de su propia sangre.
 
 ## Hebreos 13:13
 
-Salgamos, pues, a él, fuera del campamento, llevando su vituperio.
+Por lo tanto, salgamos hacia Él fuera del campamento y compartamos la humillación que Él sufrió.
 
 ## Hebreos 13:14
 
-Porque no tenemos aquí ciudad permanente, sino que buscamos la por venir.
+Porque aquí no tenemos una ciudad que dure para siempre, sino que buscamos la ciudad que está por venir.
 
 ## Hebreos 13:15
 
-Así que, ofrezcamos siempre a Dios, por medio de él, sacrificio de alabanza, es decir, fruto de labios que confiesan su nombre.
+Así que, por medio de Jesús, ofrezcamos siempre a Dios un sacrificio de alabanza, es decir, palabras que salgan de labios que reconocen su nombre.
 
 ## Hebreos 13:16
 
-Y de hacer bien y de la ayuda mutua no os olvidéis; porque de tales sacrificios se agrada Dios.
+No os olvidéis de hacer el bien y de compartir lo que tenéis con los demás, porque esos son los sacrificios que agradan a Dios.
 
 ## Hebreos 13:17
 
-Obedeced a vuestros pastores, y sujetaos a ellos; porque ellos velan por vuestras almas, como quienes han de dar cuenta; para que lo hagan con alegría, y no quejándose, porque esto no os es provechoso.
+Obedeced a vuestros dirigentes y aceptad su autoridad, porque ellos cuidan de vuestras almas sabiendo que tendrán que rendir cuentas. Dejad que lo hagan con alegría y no con quejas, porque eso no os traería ningún beneficio.
 
 ## Hebreos 13:18
 
-Orad por nosotros; pues confiamos en que tenemos buena conciencia, deseando conducirnos bien en todo.
+Orad por nosotros, porque estamos seguros de tener la conciencia limpia y queremos portarnos bien en todo.
 
 ## Hebreos 13:19
 
-Y más os ruego que lo hagáis así, para que yo os sea restituido más pronto.
+Os pido de manera especial que oréis para que pueda volver pronto a estar con vosotros.
 
 ## Hebreos 13:20
 
-Y el Dios de paz que resucitó de los muertos a nuestro Señor Jesús, el gran Pastor de las ovejas, por la sangre del pacto eterno,
+Que el Dios de paz, que levantó de entre los muertos a nuestro Señor Jesús, el gran Pastor de las ovejas, por la sangre del pacto eterno,
 
 ## Hebreos 13:21
 
-os haga aptos en toda obra buena para que hagáis su voluntad, haciendo él en vosotros lo que es agradable delante de él por Jesucristo; al cual sea la gloria por los siglos de los siglos. Amén.
+os dé todo lo bueno que necesitáis para hacer su voluntad, y que haga en nosotros lo que a Él le agrada, por medio de Jesucristo, a quien sea la gloria por siempre jamás. Amén.
 
 ## Hebreos 13:22
 
-Os ruego, hermanos, que soportéis la palabra de exhortación, pues os he escrito brevemente.
+Hermanos y hermanas, os pido que escuchéis con paciencia estas palabras de ánimo, pues os he escrito brevemente.
 
 ## Hebreos 13:23
 
-Sabed que está en libertad nuestro hermano Timoteo, con el cual, si viniere pronto, iré a veros.
+Quiero que sepáis que nuestro hermano Timoteo ha sido puesto en libertad. Si llega pronto, iré con él a veros.
 
 ## Hebreos 13:24
 
-Saludad a todos vuestros pastores, y a todos los santos. Los de Italia os saludan.
+Saludad a todos vuestros dirigentes y a todo el pueblo santo. Los de Italia os mandan saludos.
 
 ## Hebreos 13:25
 
-La gracia sea con todos vosotros.
+Que la gracia esté con cada uno de vosotros.

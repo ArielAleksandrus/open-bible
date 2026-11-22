@@ -2,11 +2,11 @@
 
 ## Proverbios 8:1
 
-¿No clama la sabiduría, y alza su voz la inteligencia?
+¿No está llamando la sabiduría? ¿No está gritando la inteligencia?
 
 ## Proverbios 8:2
 
-En las alturas junto al camino, donde se cruzan las sendas, se coloca;
+Se planta en lo alto, junto al camino, allí donde se juntan los senderos;
 
 ## Proverbios 8:3
 
@@ -22,19 +22,19 @@ Vosotros, los simples, adquirid prudencia; vosotros, los necios, entended sabidu
 
 ## Proverbios 8:6
 
-Escuchad, porque hablo de cosas nobles; la apertura de mis labios revelará lo que es correcto.
+Escuchad, porque hablo de cosas nobles; al abrir mis labios diré lo que es recto.
 
 ## Proverbios 8:7
 
-Mi boca habla verdad; la maldad es una abominación para mis labios.
+Lo que digo es verdad; detesto que mis labios digan algo malvado.
 
 ## Proverbios 8:8
 
-Todas las palabras de mi boca son justas; no hay en ellas nada torcido ni perverso.
+Todo lo que sale de mi boca es justo; no hay en ello nada retorcido ni falso.
 
 ## Proverbios 8:9
 
-Para los discernidores, todas son rectas; para los que encuentran conocimiento, son correctas.
+Para el entendido, todas son claras; para los que encuentran conocimiento, son correctas.
 
 ## Proverbios 8:10
 
@@ -48,17 +48,17 @@ Porque la sabiduría es más valiosa que los rubíes, y nada de lo que deseáis 
 
 ## Proverbios 8:12
 
-“Yo, la sabiduría, habito con la prudencia, y poseo conocimiento y discreción.
+“Yo, la sabiduría, vivo con la prudencia; tengo conocimiento y buen juicio.
 
 ## Proverbios 8:13
 
-Temer al Señor es odiar el mal; odio el orgullo, la arrogancia, el mal camino,
+Respetar al Señor es odiar el mal; yo detesto el orgullo y la soberbia,
 
->  y el habla perversa.
+>  la mala conducta y las palabras retorcidas.
 
 ## Proverbios 8:14
 
-El buen consejo es mío y la verdadera sabiduría; yo soy la inteligencia, la fuerza es mía.
+Míos son el buen consejo y la sabiduría verdadera; yo soy la inteligencia y tengo el poder.
 
 ## Proverbios 8:15
 
@@ -66,33 +66,33 @@ Por mí, los reyes ejercen su gobierno, y los gobernantes hacen sus justos decre
 
 ## Proverbios 8:16
 
-por mí gobiernan los príncipes, y los nobles, todos los que juzgan con rectitud.
+gracias a mí mandan los príncipes y los nobles, todos los que juzgan con justicia.
 
 ## Proverbios 8:17
 
-Amo a los que me aman, y los que me buscan con diligencia me encontrarán.
+Quiero a los que me quieren, y los que me buscan de verdad me encuentran.
 
 ## Proverbios 8:18
 
-Conmigo están las riquezas y el honor, la riqueza duradera y la justicia.
+Conmigo vienen la riqueza y la honra, los bienes que duran y la justicia.
 
 ## Proverbios 8:19
 
-Mi fruto es mejor que el oro, incluso el oro puro; lo que produzco supera la plata selecta.
+Lo que yo doy vale más que el oro, más que el oro puro; lo que produzco es mejor que la plata más fina.
 
 ## Proverbios 8:20
 
-Sigo el camino de la justicia, en medio de las sendas de la justicia,
+Ando por el camino de lo recto, por las sendas de la justicia,
 
 ## Proverbios 8:21
 
-otorgando riqueza a los que me aman, y llenando sus tesoros.
+y lleno de bienes a los que me quieren; les lleno sus tesoros.
 
 ---
 
 ## Proverbios 8:22
 
-“El Señor me creó como el primero de Sus obras, antes de Sus obras de antaño.
+“El Señor me creó como la primera de Sus obras, antes de Sus hechos de antaño.
 
 ## Proverbios 8:23
 
@@ -104,7 +104,7 @@ Antes de que existieran las profundidades del océano, fui engendrada, antes de 
 
 ## Proverbios 8:25
 
-antes de que se crearan las montañas, antes de las colinas, fui engendrada;
+Antes de que se formaran las montañas, antes que las colinas, yo ya había nacido;
 
 ## Proverbios 8:26
 
@@ -138,20 +138,20 @@ Entonces yo estaba junto a Él, como un maestro artesano; yo era Su deleite día
 
 ## Proverbios 8:32
 
-“Así que ahora, hijos míos, escuchadme; bienaventurados son los que siguen mis caminos.
+“Así que, hijos míos, escuchadme; dichosos los que siguen mis caminos.
 
 ## Proverbios 8:33
 
-Escuchad mi instrucción y sed sabios; no la descuidéis.
+Haced caso de mi enseñanza y sed sabios; no la dejéis de lado.
 
 ## Proverbios 8:34
 
-Afortunado es el que me escucha, vigilando diariamente en mis puertas, esperando en mis postes.
+Dichoso el que me escucha y está atento cada día a mis puertas, esperando junto a la entrada de mi casa.
 
 ## Proverbios 8:35
 
-Porque quien me encuentra descubre la vida y recibe el favor del Señor.
+Porque el que me encuentra, encuentra la vida y se gana el favor del Señor.
 
 ## Proverbios 8:36
 
-Pero quien no me encuentra se perjudica a sí mismo; todos los que me odian aman la muerte.”
+Pero el que no me encuentra se hace daño a sí mismo; todos los que me odian están enamorados de la muerte.”

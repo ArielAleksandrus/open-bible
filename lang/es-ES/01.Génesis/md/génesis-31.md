@@ -182,7 +182,7 @@ Entonces Jacob tomó una piedra y la erigió como una columna.
 
 ## Génesis 31:46
 
-Dijo a sus parientes: “Recojan algunas piedras.” Así que tomaron piedras e hicieron un montón, y comieron allí junto al montón.
+Dijo a sus parientes: “Recoged algunas piedras.” Así que tomaron piedras e hicieron un montón, y comieron allí junto al montón.
 
 ## Génesis 31:47
 
@@ -210,7 +210,7 @@ Este montón es un testigo, y esta columna es un testigo, de que no pasaré por 
 
 ## Génesis 31:53
 
-Que el Dios de Abraham y el Dios de Nahor, el Dios de su padre, juzgue entre nosotros.” Así que Jacob juró por el que Isaac, su padre, temía.
+Que el Dios de Abraham y el Dios de Nacor, el Dios de su padre, juzgue entre nosotros.” Así que Jacob juró por el que Isaac, su padre, temía.
 
 ## Génesis 31:54
 

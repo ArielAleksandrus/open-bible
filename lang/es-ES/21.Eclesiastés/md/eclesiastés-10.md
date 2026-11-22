@@ -1,13 +1,13 @@
 # Eclesiastés Capítulo 10
 
 ## Eclesiastés 10:1
-Las moscas muertas hacen que el aceite del perfumista apeste, así que un poco de necedad es más influyente que la sabiduría y el honor.
+Las moscas muertas hacen que el aceite del perfumista apeste, así un poco de necedad pesa más que la sabiduría y el honor.
 
 ## Eclesiastés 10:2
 El corazón del sabio se inclina hacia la derecha, pero el corazón del necio se inclina hacia la izquierda.
 
 ## Eclesiastés 10:3
-Incluso cuando el necio camina por el camino, carece de sentido y muestra a todos que es necio.
+Incluso cuando el necio va por el camino, carece de sentido y muestra a todos que es necio.
 
 ## Eclesiastés 10:4
 Si la ira de un gobernante se levanta contra ti, no dejes tu puesto; la calma puede apaciguar grandes ofensas.
@@ -28,13 +28,13 @@ Quien cava un hoyo puede caer en él, y quien rompe un muro puede ser mordido po
 Quien extrae piedras puede ser herido por ellas, y quien parte leña puede estar en riesgo por ellas.
 
 ## Eclesiastés 10:10
-Si el hacha está desafilada y su filo sin afilar, se necesita más fuerza, pero la sabiduría trae éxito.
+Si el hacha está mellada y no se le saca filo, se necesita más fuerza, pero la sabiduría trae éxito.
 
 ## Eclesiastés 10:11
 Si una serpiente muerde antes de ser encantada, no hay ganancia para el encantador.
 
 ## Eclesiastés 10:12
-Las palabras de la boca del sabio son graciosas, pero los labios del necio lo consumen.
+Las palabras de la boca del sabio son agradables, pero los labios del necio lo consumen.
 
 ## Eclesiastés 10:13
 El comienzo de sus palabras es necedad, y el final de ellas es locura perversa.

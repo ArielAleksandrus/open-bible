@@ -5,22 +5,22 @@
 ## Salmo 89:1
 
 > Cantaré de la misericordia del Señor para siempre;  
->  Con mi boca daré a conocer Tu fidelidad a todas las generaciones.
+>  con mi boca daré a conocer Tu fidelidad a todas las generaciones.
 
 ## Salmo 89:2
 
-> Porque he dicho: “La misericordia será edificada para siempre;  
->  En los cielos establecerás Tu fidelidad.”
+> Porque yo he dicho: “Tu misericordia se levantará para siempre;  
+>  en el cielo mismo dejarás firme Tu fidelidad.”
 
 ## Salmo 89:3
 
-> “He hecho un pacto con Mi escogido;  
->  He jurado a Mi siervo David,
+> “He hecho una promesa a Mi elegido;  
+>  le he hecho un juramento a Mi siervo David:
 
 ## Salmo 89:4
 
 > Aseguraré tus descendientes para siempre,  
->  Y sostendré tu trono a través de todas las generaciones.”
+>  y sostendré tu trono a través de todas las generaciones.”
 
 >  Selah
 
@@ -28,35 +28,35 @@
 
 ## Salmo 89:5
 
-> Los cielos celebrarán Tus maravillas, Señor,  
->  Tu fidelidad también en la asamblea de los santos.
+> Señor, los cielos celebrarán Tus maravillas,  
+>  y también Tu fidelidad en la reunión de los santos.
 
 ## Salmo 89:6
 
-> Porque ¿quién en los cielos se puede comparar al Señor?  
->  ¿Quién entre los poderosos es como el Señor,
+> Porque allá en lo alto, ¿quién puede compararse con el Señor?  
+>  ¿Quién entre los poderosos se parece al Señor,
 
 ## Salmo 89:7
 
 > Un Dios grandemente reverenciado en el consejo de los santos,  
->  Y temible sobre todos los que le rodean?
+>  y temible sobre todos los que le rodean?
 
 ## Salmo 89:8
 
-> Señor Dios de los ejércitos, ¿quién es como Tú, Señor poderoso?  
->  Tu fidelidad te rodea.
+> Señor Dios de los ejércitos, ¿quién hay como Tú, Señor poderoso?  
+>  Tu fidelidad te envuelve por completo.
 
 ---
 
 ## Salmo 89:9
 
 > Tú gobiernas el embravecido mar;  
->  Cuando sus olas se levantan, Tú las calmas.
+>  cuando sus olas se levantan, Tú las calmas.
 
 ## Salmo 89:10
 
-> Has aplastado a Rahab como a uno que es muerto;  
->  Has dispersado a Tus enemigos con Tu brazo poderoso.
+> Aplastaste a Rahab como a uno que muere en batalla;  
+>  con la fuerza de Tu brazo desbarataste a Tus enemigos.
 
 ## Salmo 89:11
 
@@ -66,7 +66,7 @@
 ## Salmo 89:12
 
 > Tú has formado el norte y el sur;  
->  El Tabor y el Hermón cantan de alegría en Tu nombre.
+>  el Tabor y el Hermón cantan de alegría en Tu nombre.
 
 ## Salmo 89:13
 
@@ -77,126 +77,125 @@
 
 ## Salmo 89:14
 
-> Justicia y juicio son el cimiento de Tu trono;  
->  Misericordia y verdad van delante de Ti.
+> Tu trono se apoya en la rectitud y la justicia;  
+>  la misericordia y la verdad caminan delante de Ti.
 
 ## Salmo 89:15
 
-> ¡Bienaventurado el pueblo que sabe aclamarte!  
->  Señor, ellos andan a la luz de Tu rostro.
+> ¡Felices los que conocen el grito de fiesta!  
+>  Señor, ellos caminan a la luz de Tu presencia.
 
 ## Salmo 89:16
 
-> En Tu nombre se regocijan todo el día,  
->  Y por Tu justicia son exaltados.
+> Con Tu nombre se alegran todo el día,  
+>  y Tu justicia los levanta.
 
 ## Salmo 89:17
 
-> Porque Tú eres el esplendor de su fortaleza,  
->  Y por Tu favor se levanta nuestro poder.
+> Porque Tú eres el brillo de su fuerza,  
+>  y por Tu favor nuestro poder crece.
 
 ## Salmo 89:18
 
-> Porque nuestro protector es el Señor,  
->  Y nuestro rey es el Santo de Israel.
+> Porque el Señor es quien nos protege,  
+>  y el Santo de Israel es nuestro rey.
 
 ---
 
 ## Salmo 89:19
 
-> Una vez hablaste en visión a Tus fieles,  
->  Y dijiste: “He dado ayuda a un poderoso;  
->  He exaltado a uno escogido de entre el pueblo.
+> Una vez hablaste en una visión a los que Te son fieles,  
+>  y dijiste: “He dado Mi ayuda a un hombre valiente;  
+>  he levantado a uno escogido entre el pueblo.
 
 ## Salmo 89:20
 
-> He hallado a Mi siervo David;  
->  Con Mi aceite sagrado lo he ungido,
+> Encontré a Mi siervo David;  
+>  lo ungí con Mi aceite sagrado,
 
 ## Salmo 89:21
 
-> Con quien Mi mano estará firme;  
->  Mi brazo también lo fortalecerá.
+> Mi mano lo sostendrá con firmeza,  
+>  y Mi brazo le dará fuerzas.
 
 ## Salmo 89:22
 
-> El enemigo no lo sorprenderá,  
->  Ni el hijo de iniquidad lo afligirá.
+> El enemigo no lo engañará,  
+>  ni el malvado lo oprimirá.
 
 ## Salmo 89:23
 
-> Sino que aplastaré a sus adversarios delante de él,  
->  Y heriré a los que lo odian.
+> Yo haré pedazos a sus enemigos delante de él y derribaré a los que lo odian.
 
 ## Salmo 89:24
 
-> Mi fidelidad y Mi misericordia estarán con él,  
->  Y en Mi nombre será exaltado su poder.
+> Mi fidelidad y Mi misericordia lo acompañarán,  
+>  y por Mi nombre crecerá su poder.
 
 ## Salmo 89:25
 
-> Extenderé su mano sobre el mar,  
->  Y su diestra sobre los ríos.
+> Haré que su mano domine el mar,  
+>  y su mano derecha los ríos.
 
 ## Salmo 89:26
 
-> Él me invocará: ‘Tú eres mi Padre,  
->  Mi Dios, y la roca de mi salvación.’
+> Él me llamará: ‘Tú eres mi Padre,  
+>  mi Dios, la base de mi salvación.’
 
 ## Salmo 89:27
 
-> También lo haré Mi primogénito,  
->  El más alto de los reyes de la tierra.
+> Y Yo lo pondré como Mi primogénito,  
+>  por encima de todos los reyes de la tierra.
 
 ## Salmo 89:28
 
-> Guardaré para él Mi misericordia para siempre,  
->  Y Mi pacto será firme con él.
+> Le mantendré Mi misericordia para siempre,  
+>  y Mi pacto con él no fallará.
 
 ## Salmo 89:29
 
-> Así aseguraré sus descendientes para siempre,  
->  Y su trono como los días del cielo.
+> Así le daré descendientes que duren para siempre,  
+>  y un trono que permanezca mientras exista el cielo.
 
 ---
 
 ## Salmo 89:30
 
-> Si sus hijos abandonan Mi ley Y no siguen Mis juicios,
+> Si sus hijos dejan de lado Mi ley y no viven según Mis decisiones,
 
 ## Salmo 89:31
 
-> Si violan Mis estatutos Y no guardan Mis mandamientos,
+> si quebrantan Mis estatutos y no obedecen Mis mandamientos,
 
 ## Salmo 89:32
 
-> Entonces castigaré su transgresión con la vara,  
->  Y su iniquidad con azotes.
+> entonces corregiré su maldad con la vara,  
+>  y su culpa con golpes.
 
 ## Salmo 89:33
 
-> Pero no retiraré de él Mi misericordia,  
->  Ni seré infiel a Mi promesa.
+> Pero no le quitaré Mi misericordia,  
+>  ni faltaré a Mi promesa.
 
 ## Salmo 89:34
 
-> No quebrantaré Mi pacto,  
->  Ni cambiaré lo que ha salido de Mis labios.
+> No romperé Mi pacto,  
+>  ni cambiaré lo que Mis labios pronunciaron.
 
 ## Salmo 89:35
 
-> Una vez he jurado por Mi santidad;  
->  No mentiré a David.
+> He jurado de una vez por todas por Mi santidad:  
+>  no engañaré a David.
 
 ## Salmo 89:36
 
-> Sus descendientes durarán para siempre,  
->  Y su trono como el sol delante de Mí.
+> Su descendencia durará para siempre, y su trono,  
+>  delante de Mí, será tan constante como el sol.
 
 ## Salmo 89:37
 
-> Será establecido para siempre como la luna,  
->  Y un testigo fiel en el cielo.”
+> Quedará firme para siempre, como la luna,  
+>  ese testigo fiel en el cielo.”
 
 >  Selah
 
@@ -204,13 +203,13 @@
 
 ## Salmo 89:38
 
-> Pero Tú has rechazado y despreciado,  
->  Has estado lleno de ira contra Tu ungido.
+> Pero Tú lo has rechazado y despreciado;  
+>  Te has llenado de furia contra Tu ungido.
 
 ## Salmo 89:39
 
-> Has repudiado el pacto de Tu siervo;  
->  Has profanado su corona hasta el polvo.
+> Has anulado el pacto con Tu siervo;  
+>  has deshonrado su corona tirándola al polvo.
 
 ## Salmo 89:40
 
@@ -219,27 +218,27 @@
 
 ## Salmo 89:41
 
-> Todos los que pasan por el camino lo saquean;  
->  Ha sido una afrenta para sus vecinos.
+> Todos los que pasan le roban;  
+>  se ha convertido en la burla de sus vecinos.
 
 ## Salmo 89:42
 
-> Has exaltado la diestra de sus adversarios;  
->  Has hecho que todos sus enemigos se regocijen.
+> Has levantado la mano derecha de sus adversarios;  
+>  has llenado de alegría a todos sus enemigos.
 
 ## Salmo 89:43
 
 > También has vuelto atrás el filo de su espada,  
->  Y no lo has apoyado en la batalla.
+>  y no lo has apoyado en la batalla.
 
 ## Salmo 89:44
 
-> Has puesto fin a su esplendor Y has echado su trono por tierra.
+> Has apagado su esplendor y has tirado su trono al suelo.
 
 ## Salmo 89:45
 
-> Has acortado los días de su juventud;  
->  Lo has cubierto de vergüenza.
+> Le has quitado años a su juventud;  
+>  lo has envuelto en deshonra.
 
 >  Selah
 
@@ -247,35 +246,35 @@
 
 ## Salmo 89:46
 
-> ¿Hasta cuándo, Señor? ¿Te esconderás para siempre?  
->  ¿Arderá Tu ira como fuego?
+> ¿Hasta cuándo, Señor? ¿Vas a esconderte para siempre?  
+>  ¿Seguirá Tu furia ardiendo como el fuego?
 
 ## Salmo 89:47
 
-> Recuerda cuán breve es mi vida;  
->  ¡Con qué futilidad has creado a todos los hijos del hombre!
+> Acuérdate de lo corta que es mi vida;  
+>  ¡a qué vida tan vacía has destinado a todos los seres humanos!
 
 ## Salmo 89:48
 
-> ¿Qué hombre vivirá y no verá la muerte?  
->  ¿Podrá librar su alma del poder del Seol?
+> ¿Quién puede vivir sin llegar a ver la muerte?  
+>  ¿Quién puede salvar su alma de las garras del Seol?
 
 >  Selah
 
 ## Salmo 89:49
 
-> ¿Dónde están Tus antiguas misericordias, Señor,  
->  Que juraste a David en Tu fidelidad?
+> Señor, ¿dónde están aquellas muestras de Tu misericordia de otros tiempos,  
+>  que juraste a David por Tu fidelidad?
 
 ## Salmo 89:50
 
-> Recuerda, Señor, el oprobio contra Tus siervos;  
->  Cómo llevo en mi corazón los insultos de muchos pueblos,
+> Acuérdate, Señor, de cómo insultan a Tus siervos;  
+>  de cómo cargo en mi corazón las burlas de tantos pueblos,
 
 ## Salmo 89:51
 
-> Con los que Tus enemigos han injuriado, Señor,  
->  Con los que han escarnecido los pasos de Tu ungido.
+> con las que Tus enemigos, Señor, han ofendido,  
+>  con las que se han burlado de cada paso de Tu ungido.
 
 ---
 

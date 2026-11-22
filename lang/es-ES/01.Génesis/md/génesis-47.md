@@ -49,7 +49,7 @@ Cuando todo el dinero en Egipto y Canaán se agotó, los egipcios se acercaron a
 José respondió, “Traed vuestro ganado, y os proporcionaré alimento a cambio de ellos, ya que vuestro dinero se ha acabado.”
 
 ## Génesis 47:17
-Trajeron su ganado a José, y él les suministró alimento a cambio de sus caballos, ovejas, cabras, ganado y asnos. Los sustentó durante ese año con alimento para su ganado.
+Trajeron su ganado a José, y él les suministró alimento a cambio de sus caballos, ovejas, cabras, ganado y asnos. Los sustentó durante ese año con alimento a cambio de su ganado.
 
 ## Génesis 47:18
 Cuando ese año concluyó, regresaron al año siguiente y dijeron, “No podemos ocultar a nuestro señor que nuestro dinero se ha acabado y nuestro ganado te pertenece. No queda nada para nuestro señor sino nuestros cuerpos y nuestra tierra.

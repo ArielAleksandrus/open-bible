@@ -4,119 +4,119 @@
 
 ## Salmo 34:1
 
-> Bendeciré al Señor en todo momento;  
->  Su alabanza estará siempre en mis labios.
+> Alabaré al Señor sin cesar;  
+>  Sus alabanzas no se apartarán de mis labios.
 
 ## Salmo 34:2
 
-> Mi alma se gloriará en el Señor;  
->  Los humildes lo oirán y se alegrarán.
+> Me sentiré orgulloso del Señor;  
+>  que los humildes lo oigan y se pongan contentos.
 
 ## Salmo 34:3
 
-> Engrandezcan al Señor conmigo,  
->  Y exaltemos su nombre juntos.
+> Alabad conmigo la grandeza del Señor,  
+>  y celebremos todos juntos su nombre.
 
 ---
 
 ## Salmo 34:4
 
-> Busqué al Señor, y Él me respondió,  
->  Y me libró de todos mis temores.
+> Busqué al Señor y Él me contestó,  
+>  y me quitó todos mis miedos.
 
 ## Salmo 34:5
 
-> Los que miraron a Él fueron iluminados,  
->  Y sus rostros jamás serán avergonzados.
+> Los que pusieron en Él sus ojos quedaron radiantes,  
+>  y nunca tendrán que agachar la cabeza de vergüenza.
 
 ## Salmo 34:6
 
-> Este pobre clamó, y el Señor lo escuchó,  
->  Y lo salvó de todas sus angustias.
+> Este pobre hombre gritó pidiendo ayuda,  
+>  y el Señor le escuchó y lo sacó de todos sus problemas.
 
 ## Salmo 34:7
 
-> El ángel del Señor acampa alrededor de los que le temen,  
->  Y los defiende.
+> El ángel del Señor rodea a los que le respetan,  
+>  y los pone a salvo.
 
 ---
 
 ## Salmo 34:8
 
-> Gustad y ved que el Señor es bueno;  
->  ¡Bienaventurado el hombre que en Él confía!
+> ¡Probad y veréis lo bueno que es el Señor!  
+>  ¡Feliz el que se refugia en Él!
 
 ## Salmo 34:9
 
-> Temed al Señor, vosotros sus santos;  
->  Pues nada les falta a los que le temen.
+> Respetad al Señor, vosotros que sois su pueblo santo;  
+>  porque a los que le respetan no les falta nada.
 
 ## Salmo 34:10
 
-> Los leoncillos necesitan y tienen hambre;  
->  Pero los que buscan al Señor no carecerán de ningún bien.
+> Los leones jóvenes pueden quedarse débiles y con hambre;  
+>  pero a los que buscan al Señor no les falta nada bueno.
 
 ## Salmo 34:11
 
-> Venid, hijos, escuchadme;  
->  Os enseñaré el temor del Señor.
+> Venid, hijos míos, escuchadme;  
+>  yo os enseñaré a respetar al Señor.
 
 ## Salmo 34:12
 
-> ¿Quién es el hombre que desea vida Y ama muchos días para ver el bien?
+> ¿Quieres vivir y disfrutar de una vida larga, para ver cosas buenas?
 
 ## Salmo 34:13
 
-> Guarda tu lengua del mal Y tus labios de hablar engaño.
+> Pues no digas nada malo Y no dejes que tus labios digan mentiras.
 
 ## Salmo 34:14
 
-> Apártate del mal y haz el bien;  
->  Busca la paz y síguela.
+> Aléjate del mal y haz lo bueno;  
+>  Busca la paz y esfuérzate por mantenerla.
 
 ---
 
 ## Salmo 34:15
 
-> Los ojos del Señor están sobre los justos,  
->  Y sus oídos atentos a su clamor.
+> El Señor no aparta los ojos de los justos,  
+>  y está atento a sus gritos de ayuda.
 
 ## Salmo 34:16
 
-> El rostro del Señor está contra los que hacen el mal,  
->  Para borrar de la tierra su memoria.
+> El Señor se pone en contra de los que hacen el mal,  
+>  para que nadie en la tierra se acuerde de ellos.
 
 ---
 
 ## Salmo 34:17
 
-> Claman los justos, y el Señor los oye,  
->  Y los libra de todas sus angustias.
+> Los justos gritan pidiendo ayuda,  
+>  el Señor los escucha y los saca de todos sus problemas.
 
 ## Salmo 34:18
 
-> Cercano está el Señor a los quebrantados de corazón Y salva a los contritos de espíritu.
+> El Señor está cerca de los que tienen el corazón destrozado Y salva a los que tienen el espíritu hecho pedazos.
 
 ---
 
 ## Salmo 34:19
 
-> Muchas son las aflicciones del justo,  
->  Pero de todas ellas lo librará el Señor.
+> Puede que el justo pase por muchos problemas,  
+>  pero el Señor lo saca de todos ellos.
 
 ## Salmo 34:20
 
-> Él guarda todos sus huesos,  
->  Ni uno de ellos será quebrantado.
+> Él le protege todos los huesos,  
+>  ni uno solo se le romperá.
 
 ---
 
 ## Salmo 34:21
 
-> La maldad matará al impío,  
->  Y los que aborrecen al justo serán condenados.
+> La desgracia alcanzará al malvado,  
+>  y los que odian al justo tendrán que rendir cuentas.
 
 ## Salmo 34:22
 
-> El Señor redime el alma de sus siervos,  
->  Y ninguno de los que en Él confían será condenado.
+> El Señor rescata la vida de sus siervos,  
+>  y ninguno de los que se refugian en Él será condenado.

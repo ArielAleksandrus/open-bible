@@ -34,39 +34,39 @@ Un tiempo para amar y un tiempo para odiar, un tiempo de guerra y un tiempo de p
 
 ## Eclesiastés 3:9
 
-¿Qué provecho saca el trabajador de sus afanes?
+¿Qué saca el que trabaja de tanto esfuerzo?
 
 ## Eclesiastés 3:10
 
-He visto la tarea que Dios ha dado a los seres humanos para que se ocupen en ella.
+He visto la carga que Dios ha puesto sobre los seres humanos para tenerlos ocupados.
 
 ## Eclesiastés 3:11
 
-Él ha hecho todo hermoso en su momento. También ha puesto eternidad en el corazón humano, aunque nadie puede comprender lo que Dios ha hecho desde el principio hasta el fin.
+Dios hizo que cada cosa fuera hermosa a su debido tiempo. También puso en el corazón humano el anhelo de lo eterno, aunque nadie llega a entender del todo lo que Dios ha hecho de principio a fin.
 
 ## Eclesiastés 3:12
 
-Sé que no hay nada mejor para la gente que alegrarse y hacer el bien mientras vivan.
+Me he dado cuenta de que no hay nada mejor para la gente que disfrutar y hacer el bien mientras dure su vida.
 
 ## Eclesiastés 3:13
 
-Además, que cada uno coma y beba y disfrute del fruto de su trabajo, pues esto es un don de Dios.
+Y que cada uno pueda comer, beber y quedar contento con todo lo que ha trabajado: eso es un regalo de Dios.
 
 ## Eclesiastés 3:14
 
-Sé que todo lo que Dios hace es eterno; no se le puede añadir ni quitar nada. Dios lo hace así para que la gente le tema.
+Sé que todo lo que Dios hace dura para siempre; no hay nada que añadirle ni nada que quitarle. Dios lo hace así para que la gente le tenga temor.
 
 ## Eclesiastés 3:15
 
-Lo que ya existe ha existido antes, y lo que ha de existir existe ya; Dios hace que la historia se repita.
+Lo que hay ahora ya existió antes, y lo que vendrá ya ha existido; y Dios pide cuentas de lo que ya pasó.
 
 ## Eclesiastés 3:16
 
-He visto además bajo el sol que en el lugar del juicio hay maldad, y en el lugar de la justicia hay maldad.
+Y además he visto bajo el sol que donde debería juzgarse con rectitud hay maldad, y donde debería haber justicia, también hay maldad.
 
 ## Eclesiastés 3:17
 
-Me dije a mí mismo: “Dios juzgará a justos e impíos, pues hay un tiempo para cada cosa y para cada obra.”
+Y pensé: “Dios llamará a juicio tanto al justo como al malvado, porque hay un momento para cada asunto y para cada acción.”
 
 ## Eclesiastés 3:18
 
@@ -74,16 +74,16 @@ También me dije a mí mismo, en cuanto a los seres humanos: “Dios los prueba 
 
 ## Eclesiastés 3:19
 
-El destino de los seres humanos es el mismo que el de los animales; como mueren unos, mueren los otros. Todos tienen el mismo aliento; los humanos no tienen ventaja sobre los animales. Todo es absurdo.
+Porque los seres humanos y los animales acaban igual: mueren unos y mueren los otros. Todos respiran el mismo aliento; el ser humano no tiene ninguna ventaja sobre el animal. Todo es absurdo.
 
 ## Eclesiastés 3:20
 
-Todos van al mismo lugar; todos provienen del polvo, y al polvo todos vuelven.
+Todos terminan en el mismo sitio; todos salieron del polvo y todos vuelven al polvo.
 
 ## Eclesiastés 3:21
 
-¿Quién puede afirmar que el espíritu humano asciende y que el espíritu del animal desciende a la tierra?
+¿Quién puede asegurar que el espíritu del ser humano sube a lo alto y que el del animal baja a la tierra?
 
 ## Eclesiastés 3:22
 
-Así que vi que no hay nada mejor para una persona que ser feliz en su trabajo, porque esa es su recompensa. ¿Quién puede llevarla a ver lo que sucederá después de ella?
+Así que me di cuenta de que lo mejor que puede hacer una persona es disfrutar de su trabajo, porque eso es lo que le toca. ¿Quién podrá hacerle ver lo que pasará cuando ya no esté?

@@ -2,21 +2,21 @@
 
 ## Hechos 8:1
 
-Y Saulo consentía en su muerte. En aquel día, una gran persecución se levantó contra la iglesia en Jerusalén, y todos, excepto los apóstoles, fueron dispersados por las regiones de Judea y Samaria.
+Saulo estaba de acuerdo con que lo mataran. Aquel mismo día estalló una dura persecución contra la iglesia de Jerusalén, y todos, menos los apóstoles, se dispersaron por las regiones de Judea y Samaria.
 
 ## Hechos 8:2
 
-Hombres piadosos llevaron a enterrar a Esteban e hicieron gran llanto por él.
+Unos hombres fieles enterraron a Esteban y lloraron mucho por él.
 
 ## Hechos 8:3
 
-Pero Saulo asolaba la iglesia, entrando casa por casa, y arrastrando a hombres y mujeres, los entregaba a la cárcel.
+Pero Saulo hacía estragos en la iglesia: entraba de casa en casa, sacaba a rastras a hombres y mujeres y los metía en la cárcel.
 
 ---
 
 ## Hechos 8:4
 
-Así que los que fueron esparcidos iban por todas partes anunciando la palabra.
+Así pues, los que se habían dispersado iban de un lugar a otro predicando la palabra.
 
 ## Hechos 8:5
 
@@ -24,11 +24,11 @@ Felipe descendió a una ciudad de Samaria y comenzó a proclamarles al Cristo.
 
 ## Hechos 8:6
 
-Las multitudes prestaban atención unánime a lo que Felipe decía, al oírle y ver las señales que hacía.
+La gente escuchaba con mucha atención lo que Felipe decía, al oírlo y ver las señales que hacía.
 
 ## Hechos 8:7
 
-Porque de muchos que tenían espíritus inmundos, salían estos dando grandes voces; y muchos paralíticos y cojos eran sanados.
+Porque muchos tenían espíritus impuros, y estos salían de ellos dando fuertes gritos; y muchos paralíticos y cojos quedaban sanos.
 
 ## Hechos 8:8
 
@@ -50,7 +50,7 @@ Le seguían porque por mucho tiempo los había asombrado con sus artes mágicas.
 
 ## Hechos 8:12
 
-Pero cuando creyeron a Felipe, que anunciaba el evangelio del reino de Dios y el nombre de Jesucristo, se bautizaban, tanto hombres como mujeres.
+Pero cuando creyeron a Felipe, que les anunciaba la buena noticia del reino de Dios y del nombre de Jesucristo, se bautizaron hombres y mujeres.
 
 ## Hechos 8:13
 
@@ -60,7 +60,7 @@ Aun Simón mismo creyó, y después de ser bautizado, continuó con Felipe. Esta
 
 ## Hechos 8:14
 
-Cuando los apóstoles que estaban en Jerusalén oyeron que Samaria había recibido la palabra de Dios, les enviaron a Pedro y a Juan.
+Los apóstoles que estaban en Jerusalén se enteraron de que en Samaria habían aceptado la palabra de Dios, y les mandaron a Pedro y a Juan.
 
 ## Hechos 8:15
 
@@ -68,7 +68,7 @@ Cuando llegaron, oraron por ellos para que recibieran el Espíritu Santo.
 
 ## Hechos 8:16
 
-Porque aún no había descendido sobre ninguno de ellos; solamente habían sido bautizados en el nombre del Señor Jesús.
+Porque el Espíritu Santo todavía no había venido sobre ninguno de ellos; solo los habían bautizado en el nombre del Señor Jesús.
 
 ## Hechos 8:17
 
@@ -76,47 +76,47 @@ Entonces Pedro y Juan les impusieron las manos, y recibieron el Espíritu Santo.
 
 ## Hechos 8:18
 
-Cuando Simón vio que el Espíritu se daba por la imposición de las manos de los apóstoles, les ofreció dinero,
+Al ver Simón que el Espíritu se daba cuando los apóstoles ponían las manos sobre la gente, les ofreció dinero
 
 ## Hechos 8:19
 
-diciendo: “Dadme también a mí este poder, para que cualquiera a quien yo imponga las manos reciba el Espíritu Santo.”
+y les dijo: “Dadme a mí también ese poder, para que todo aquel a quien yo le ponga las manos reciba el Espíritu Santo.”
 
 ## Hechos 8:20
 
-Pero Pedro le dijo: “¡Tu dinero perezca contigo, porque pensaste que el don de Dios se obtiene con dinero!
+Pero Pedro le contestó: “¡Que tu dinero se pierda contigo, porque creíste que el regalo de Dios se puede conseguir con dinero!
 
 ## Hechos 8:21
 
-No tienes parte ni suerte en este asunto, porque tu corazón no es recto delante de Dios.
+Tú no tienes parte en este ministerio, porque tu corazón no es recto ante Dios.
 
 ## Hechos 8:22
 
-Por tanto, arrepiéntete de esta tu maldad y ruega a Dios, si quizá te sea perdonado el pensamiento de tu corazón.
+Así que arrepiéntete de esta maldad tuya y ora al Señor, para que, si es posible, te perdone la intención de tu corazón.
 
 ## Hechos 8:23
 
-Porque veo que estás en hiel de amargura y en prisión de maldad.”
+Porque veo que estás lleno de amargura y que el pecado te tiene preso.”
 
 ## Hechos 8:24
 
-Simón respondió: “Rogad vosotros por mí al Señor, para que nada de lo que habéis dicho me sobrevenga.”
+Simón respondió: “Orad vosotros al Señor por mí, para que no me pase nada de lo que habéis dicho.”
 
 ---
 
 ## Hechos 8:25
 
-Después de haber testificado y hablado la palabra del Señor, regresaron a Jerusalén, anunciando el evangelio en muchas aldeas de los samaritanos.
+Después de dar testimonio y de anunciar la palabra del Señor, volvieron a Jerusalén, predicando la buena noticia en muchos pueblos samaritanos.
 
 ---
 
 ## Hechos 8:26
 
-Un ángel del Señor habló a Felipe, diciendo: “Levántate y ve hacia el sur, al camino que desciende de Jerusalén a Gaza.” (Este es un camino desierto.)
+Un ángel del Señor le dijo a Felipe: “Ponte en marcha y ve hacia el sur, por el camino que baja de Jerusalén a Gaza.” (Es un camino que pasa por el desierto.)
 
 ## Hechos 8:27
 
-Él se levantó y fue. Y he aquí un etíope eunuco, funcionario de Candace, reina de los etíopes, que estaba encargado de todos sus tesoros. Había venido a Jerusalén para adorar,
+Felipe se puso en marcha y fue. Había un eunuco etíope, funcionario de la corte de Candace, reina de los etíopes, que era el encargado de todo su tesoro. Había ido a Jerusalén a adorar,
 
 ## Hechos 8:28
 
@@ -124,7 +124,7 @@ y regresaba, sentado en su carro, leyendo al profeta Isaías.
 
 ## Hechos 8:29
 
-El Espíritu dijo a Felipe: “Acércate y júntate a ese carro.”
+El Espíritu le dijo a Felipe: “Acércate y ponte junto a ese carro.”
 
 ## Hechos 8:30
 
@@ -136,11 +136,11 @@ Felipe corrió hacia él, y le oyó leer al profeta Isaías, y le preguntó: “
 
 ## Hechos 8:32
 
-El pasaje de la Escritura que leía era este:
+El pasaje de la Escritura que estaba leyendo era este:
 
->  “Como oveja fue llevado al matadero,
->  y como cordero mudo delante del que lo trasquila,
->  así no abre su boca.
+>  “Lo llevaron como a una oveja al matadero;
+>  y como un cordero que se queda callado ante el que lo esquila,
+>  él no abre la boca.
 
 ## Hechos 8:33
 
@@ -150,11 +150,11 @@ El pasaje de la Escritura que leía era este:
 
 ## Hechos 8:34
 
-El eunuco preguntó a Felipe: “Por favor, dime, ¿de quién dice esto el profeta? ¿De sí mismo o de algún otro?”
+El eunuco le preguntó a Felipe: “Dime, por favor, ¿de quién habla aquí el profeta? ¿De sí mismo o de otra persona?”
 
 ## Hechos 8:35
 
-Entonces Felipe comenzó a hablar, y empezando desde esta Escritura, le compartió el mensaje de Jesús.
+Entonces Felipe comenzó a hablar, y empezando desde esta Escritura, le anunció el mensaje de Jesús.
 
 ## Hechos 8:36
 
@@ -166,12 +166,12 @@ Mientras viajaban por el camino, llegaron a un lugar donde había agua, y el eun
 
 ## Hechos 8:38
 
-Y mandó parar el carro. Ambos, Felipe y el eunuco, descendieron al agua, y Felipe le bautizó.
+Mandó detener el carro, y los dos, Felipe y el eunuco, bajaron al agua, y Felipe lo bautizó.
 
 ## Hechos 8:39
 
-Cuando subieron del agua, el Espíritu del Señor arrebató a Felipe, y el eunuco no le vio más, pero siguió su camino gozoso.
+Cuando salieron del agua, el Espíritu del Señor se llevó a Felipe, y el eunuco no volvió a verlo, pero siguió su camino lleno de alegría.
 
 ## Hechos 8:40
 
-Felipe, sin embargo, se encontró en Azoto, y al pasar, predicó el evangelio en todas las ciudades hasta que llegó a Cesarea.
+Felipe, en cambio, apareció en Azoto, y fue anunciando la buena noticia en todos los pueblos por los que pasaba, hasta llegar a Cesarea.

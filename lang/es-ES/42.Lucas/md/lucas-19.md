@@ -38,7 +38,7 @@ Jesús respondió: “Hoy ha llegado la salvación a esta casa, porque él tambi
 
 ## Lucas 19:10
 
-Porque el Hijo del Hombre vino a buscar y a salvar lo que se había perdido.”
+Porque el Hijo del Hombre vino a buscar y a salvar a los perdidos.”
 
 ---
 
@@ -52,7 +52,7 @@ Dijo: “Un hombre de noble cuna fue a un país lejano para recibir un reino par
 
 ## Lucas 19:13
 
-Llamó a diez de sus siervos y les dio diez minas, y les dijo: ‘Hagan negocio con esto hasta que yo vuelva.’
+Llamó a diez de sus siervos y les dio diez minas, y les dijo: ‘Negociad con esto hasta que yo vuelva.’
 
 ## Lucas 19:14
 
@@ -96,7 +96,7 @@ Su señor respondió: ‘Te juzgaré por tus propias palabras, siervo malvado. �
 
 ## Lucas 19:24
 
-Entonces instruyó a los que estaban allí, ‘Quiten su mina y dénsela al que tiene diez minas.’
+Entonces instruyó a los que estaban allí, ‘Quitadle la mina y dádsela al que tiene diez minas.’
 
 ## Lucas 19:25
 
@@ -104,11 +104,11 @@ Ellos le dijeron, ‘Señor, ya tiene diez minas.’
 
 ## Lucas 19:26
 
-‘Les digo que a todo el que tiene, se le dará más, pero al que no tiene, aun lo que tiene se le quitará.
+‘Os digo que a todo el que tiene, se le dará más, pero al que no tiene, aun lo que tiene se le quitará.
 
 ## Lucas 19:27
 
-Pero a esos enemigos míos que no querían que yo fuera su rey —tráiganlos aquí y mátenlos delante de mí—.’”
+Pero a esos enemigos míos que no querían que yo fuera su rey, traedlos aquí y matadlos delante de mí.’”
 
 ---
 
@@ -122,11 +122,11 @@ Al acercarse a Betfagé y Betania, cerca del Monte de los Olivos, envió a dos d
 
 ## Lucas 19:30
 
-diciendo, “Vayan al pueblo que está delante de ustedes, y al entrar encontrarán un pollino atado, en el que nadie ha montado jamás. Desátenlo y tráiganlo aquí.
+diciendo, “Id al pueblo que está delante de vosotros, y al entrar encontraréis un pollino atado, en el que nadie ha montado jamás. Desatadlo y traedlo aquí.
 
 ## Lucas 19:31
 
-Si alguien les pregunta, ‘¿Por qué lo desatan?’ respondan, ‘El Señor lo necesita.’”
+Si alguien os pregunta, ‘¿Por qué lo desatáis?’ responded, ‘El Señor lo necesita.’”
 
 ## Lucas 19:32
 
@@ -134,7 +134,7 @@ Los que fueron enviados fueron y lo encontraron tal como él les había dicho.
 
 ## Lucas 19:33
 
-Mientras desataban el pollino, los dueños les preguntaron, “¿Por qué desatan el pollino?”
+Mientras desataban el pollino, los dueños les preguntaron, “¿Por qué desatáis el pollino?”
 
 ## Lucas 19:34
 
@@ -162,7 +162,7 @@ Algunos de los fariseos de entre la multitud dijeron a Jesús, “Maestro, instr
 
 ## Lucas 19:40
 
-Él respondió, “Les digo que si ellos callan, las piedras clamarán.”
+Él respondió, “Os digo que si ellos callan, las piedras clamarán.”
 
 ---
 
@@ -172,7 +172,7 @@ Al acercarse a Jerusalén y ver la ciudad, lloró por ella
 
 ## Lucas 19:42
 
-y dijo, “Si tú, incluso tú, hubieras sabido en este día lo que te traería paz —pero ahora está oculto a tus ojos—.
+y dijo, “Si tú, incluso tú, hubieras sabido en este día lo que te traería paz… Pero ahora está oculto a tus ojos.
 
 ## Lucas 19:43
 
@@ -190,7 +190,7 @@ Al entrar en los patios del templo, Jesús comenzó a echar fuera a los que vend
 
 ## Lucas 19:46
 
-diciéndoles, “Está escrito, ‘Mi casa será casa de oración’; pero ustedes la han convertido en cueva de ladrones.”
+diciéndoles, “Está escrito, ‘Mi casa será casa de oración’; pero vosotros la habéis convertido en cueva de ladrones.”
 
 ## Lucas 19:47
 

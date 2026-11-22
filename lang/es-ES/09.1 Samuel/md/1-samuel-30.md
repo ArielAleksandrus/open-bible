@@ -48,7 +48,7 @@ David buscó guía del Señor, preguntando,
 ## 1 Samuel 30:9
 
 Así que David partió con los seiscientos hombres que estaban con él,  
- y llegaron al arroyo Besor, donde se quedaron los que se quedaron atrás.
+ y llegaron al arroyo Besor, donde se quedaron los que no siguieron adelante.
 
 ## 1 Samuel 30:10
 

@@ -40,7 +40,7 @@ Pero no hizo morir a los hijos de los asesinos,
 ## 2 Reyes 14:7
 
 Derrotó a diez mil edomitas en el Valle de la Sal,  
- capturó Sela en batalla, y la llamó Jocteel, como permanece hasta hoy.
+ capturó Sela en batalla, y la llamó Jocteel, nombre que conserva hasta hoy.
 
 ## 2 Reyes 14:8
 
@@ -122,7 +122,7 @@ Todo el pueblo de Judá tomó a Azarías, que tenía dieciséis años,
 
 ## 2 Reyes 14:22
 
-Reconstruyó Elat y la restauró a Judá después de que el rey había fallecido.
+Reconstruyó Elat y la devolvió a Judá después de que el rey había fallecido.
 
 ---
 

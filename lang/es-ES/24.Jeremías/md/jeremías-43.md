@@ -28,7 +28,7 @@ En Tafnes, la palabra del Señor vino a Jeremías, diciendo,
 “Toma unas piedras grandes en tus manos y entiérralas en el barro en la terraza de ladrillos a la entrada del palacio del faraón en Tafnes, a la vista de algunos de los judíos;
 
 ## Jeremías 43:10
-y diles: ‘Esto es lo que dice el Señor Todopoderoso, el Dios de Israel: Enviaré a mi siervo Nabucodonosor, rey de Babilonia, y pondré su trono sobre estas piedras que he escondido; él extenderá su pabellón real sobre ellas.
+y diles: ‘Esto es lo que dice el Señor de los ejércitos, el Dios de Israel: Enviaré a mi siervo Nabucodonosor, rey de Babilonia, y pondré su trono sobre estas piedras que he escondido; él extenderá su pabellón real sobre ellas.
 
 ## Jeremías 43:11
 Vendrá y golpeará la tierra de Egipto, entregando a los destinados a muerte a muerte, a los destinados a cautiverio a cautiverio, y a los destinados a la espada a la espada.

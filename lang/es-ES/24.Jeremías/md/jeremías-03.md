@@ -6,7 +6,7 @@ El Señor dice: “Si un hombre se divorcia de su esposa y ella se aparta de él
 
 ## Jeremías 3:2
 
-“Mira hacia las alturas desoladas y considera: ¿hay algún lugar donde no hayas sido violada? Has esperado junto a los caminos para los amantes, como un nómada en el desierto, y has contaminado la tierra con tu prostitución y maldad.
+“Mira hacia las alturas desoladas y considera: ¿hay algún lugar donde no hayas sido violada? Te sentabas junto a los caminos esperando a los amantes, como un nómada en el desierto, y has contaminado la tierra con tu prostitución y maldad.
 
 ## Jeremías 3:3
 
@@ -34,7 +34,7 @@ Le di a la infiel Israel su certificado de divorcio y la envié lejos por sus ad
 
 ## Jeremías 3:9
 
-Debido a su inmoralidad casual, contaminó la tierra y cometió adulterio con piedra y madera.
+Por la ligereza de su prostitución, contaminó la tierra y cometió adulterio con piedra y madera.
 
 ## Jeremías 3:10
 
@@ -54,15 +54,15 @@ Solo reconoce tu culpa: que te has rebelado contra el Señor tu Dios, has esparc
 
 ## Jeremías 3:14
 
-“Vuelvan, pueblo infiel,” declara el Señor, “porque yo soy su amo. Los tomaré —a uno de una ciudad y a dos de una familia— y los llevaré a Sion.
+“Volved, pueblo infiel,” declara el Señor, “porque yo soy vuestro dueño. Os tomaré —a uno de una ciudad y a dos de una familia— y os llevaré a Sion.
 
 ## Jeremías 3:15
 
-Entonces les daré pastores conforme a mi corazón, que los guiarán con conocimiento y entendimiento.
+Entonces os daré pastores conforme a mi corazón, que os guiarán con conocimiento y entendimiento.
 
 ## Jeremías 3:16
 
-En esos días, cuando se hayan multiplicado y aumentado en la tierra,” declara el Señor, “ya no dirán, ‘El arca del pacto del Señor.’ No vendrá a la mente, ni la recordarán ni la echarán de menos, ni se hará de nuevo.
+En esos días, cuando os hayáis multiplicado y aumentado en la tierra,” declara el Señor, “ya no dirán, ‘El arca del pacto del Señor.’ No vendrá a la mente, ni la recordarán ni la echarán de menos, ni se hará de nuevo.
 
 ## Jeremías 3:17
 
@@ -70,11 +70,11 @@ En ese tiempo, Jerusalén será llamada El Trono del Señor, y todas las nacione
 
 ## Jeremías 3:18
 
-En esos días la casa de Judá caminará con la casa de Israel, y juntos vendrán de la tierra del norte a la tierra que di a sus antepasados como herencia.
+En esos días la casa de Judá caminará con la casa de Israel, y juntos vendrán de la tierra del norte a la tierra que di a vuestros antepasados como herencia.
 
 ## Jeremías 3:19
 
-“Dije, ‘Con qué gusto los trataría como hijos y les daría una tierra placentera, la herencia más hermosa de cualquier nación.’ Pensé que me llamarías ‘Padre’ y no te apartarías de seguirme.
+“Dije, ‘¡Con qué gusto os trataría como hijos y os daría una tierra placentera, la herencia más hermosa de cualquier nación!’ Pensé que me llamarías ‘Padre’ y no te apartarías de seguirme.
 
 ## Jeremías 3:20
 
@@ -86,7 +86,7 @@ Se oye una voz en las alturas desoladas, el llanto y los ruegos del pueblo de Is
 
 ## Jeremías 3:22
 
-“Vuelvan, pueblo infiel; sanaré su apostasía.” “Sí, vendremos a ti, porque tú eres el Señor nuestro Dios.
+“Volved, pueblo infiel; sanaré vuestra apostasía.” “Sí, vendremos a ti, porque tú eres el Señor nuestro Dios.
 
 ## Jeremías 3:23
 

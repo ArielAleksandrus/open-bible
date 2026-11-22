@@ -2,7 +2,7 @@
 
 ## Deuteronomio 6:1
 
-Estos son los mandamientos, los estatutos y las leyes que el Señor tu Dios me ha instruido a enseñarte, para que los observes en la tierra que estás cruzando el Jordán para poseer,
+Estos son los mandamientos, los estatutos y las leyes que el Señor tu Dios me ha instruido a enseñarte, para que los observes en la tierra que vas a poseer al otro lado del Jordán,
 
 ## Deuteronomio 6:2
 
@@ -14,7 +14,7 @@ Escucha, oh Israel, y esfuérzate por obedecer para que te vaya bien y te multip
 
 ## Deuteronomio 6:4
 
-Escucha, oh Israel: Del Señor nuestro Dios, el Señor es uno.
+Escucha, oh Israel: El Señor nuestro Dios, el Señor es uno.
 
 ## Deuteronomio 6:5
 
@@ -98,4 +98,4 @@ El Señor nos mandó seguir todos estos estatutos y temer al Señor nuestro Dios
 
 ## Deuteronomio 6:25
 
-Y será nuestra justicia si tenemos cuidado de obedecer todo este mandamiento delante del Señor nuestro Dios, tal como Él nos ha mandado.
+Y será nuestra justicia si tenemos cuidado de obedecer todo este mandamiento delante del Señor nuestro Dios, tal como Él nos ha mandado.”

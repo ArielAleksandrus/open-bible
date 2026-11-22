@@ -6,11 +6,11 @@
 
 ## Isaías 44:2
 
-Esto es lo que dice el Señor —el que te hizo y te formó en el vientre, quien te ayudará: No temas, Jacob mi siervo, y Jesurún, a quien he escogido—.
+Esto es lo que dice el Señor, el que te hizo y te formó en el vientre, el que te ayudará: No temas, Jacob mi siervo, y Jesurún, a quien he escogido.
 
 ## Isaías 44:3
 
-Porque derramaré agua sobre la tierra sedienta, y arroyos sobre el suelo seco; derramaré mi Espíritu sobre tu descendencia, y mi bendición sobre tus descendientes.
+Porque regaré con agua la tierra sedienta y haré correr arroyos por el suelo seco; derramaré mi Espíritu sobre tus hijos y mi bendición sobre tus descendientes.
 
 ## Isaías 44:4
 
@@ -24,7 +24,7 @@ Uno dirá, ‘Yo soy del Señor’; otro se llamará a sí mismo por el nombre d
 
 ## Isaías 44:6
 
-Esto es lo que dice el Señor —el Rey de Israel y su Redentor, el Señor de los Ejércitos: Yo soy el primero y yo soy el último; aparte de mí, no hay Dios—.
+Esto dice el Señor, el Rey de Israel, su Redentor, el Señor de los ejércitos: Yo soy el primero y el último; fuera de mí no hay ningún Dios.
 
 ## Isaías 44:7
 
@@ -32,7 +32,7 @@ Esto es lo que dice el Señor —el Rey de Israel y su Redentor, el Señor de lo
 
 ## Isaías 44:8
 
-No tiemblen, no tengan miedo. ¿No lo he anunciado y declarado desde hace mucho tiempo? Ustedes son mis testigos. ¿Hay algún Dios fuera de mí? No, no hay otra Roca; no conozco ninguna.
+No tembléis, no tengáis miedo. ¿No lo he anunciado y declarado desde hace mucho tiempo? Vosotros sois mis testigos. ¿Hay algún Dios fuera de mí? No, no hay otra Roca; no conozco ninguna.
 
 ## Isaías 44:9
 
@@ -44,15 +44,15 @@ Todos los que hacen ídolos son fútiles, y las cosas que atesoran no tienen ben
 
 ## Isaías 44:11
 
-He aquí, todos sus compañeros serán avergonzados, porque los artesanos mismos son simples mortales. Que todos se reúnan y tomen su posición; serán llevados a terror y vergüenza.
+Mirad, todos los que andan con ellos quedarán en ridículo, porque los artesanos no son más que simples mortales. Que se junten todos y se presenten; acabarán aterrados y avergonzados.
 
 ## Isaías 44:12
 
-El herrero toma una herramienta y trabaja con ella en las brasas; da forma a un ídolo con martillos y lo forja con la fuerza de su brazo. Se cansa y pierde fuerza; no bebe agua y se desmaya.
+El herrero toma una herramienta y trabaja con ella en las brasas; da forma a un ídolo con martillos y lo forja con la fuerza de su brazo. Tiene hambre y pierde las fuerzas; no bebe agua y se desmaya.
 
 ## Isaías 44:13
 
-El carpintero estira una línea y hace un contorno con un marcador; lo esboza con cinceles y lo marca con compases. Lo forma en forma humana, forma humana en toda su belleza, para habitar en un santuario.
+El carpintero estira una línea y hace un contorno con un marcador; lo esboza con cinceles y lo marca con compases. Le da forma humana, forma humana en toda su belleza, para que habite en un santuario.
 
 ## Isaías 44:14
 
@@ -88,19 +88,19 @@ Se alimenta de cenizas; un corazón engañado lo ha desviado. No puede salvarse 
 
 ## Isaías 44:22
 
-He borrado tus transgresiones como una nube, y tus pecados como una niebla. Vuélvete a mí, porque te he redimido.”
+He hecho desaparecer tus rebeldías como se disipa una nube, y tus pecados como la niebla. Vuelve a mí, porque yo te he rescatado.”
 
 ## Isaías 44:23
 
-Canten de alegría, cielos, porque el Señor lo ha hecho; griten en voz alta, partes bajas de la tierra. Estallen en canto, montañas, bosques y todos sus árboles, porque el Señor ha redimido a Jacob, y muestra su gloria en Israel.
+Cantad de alegría, cielos, porque el Señor lo ha hecho; gritad en voz alta, profundidades de la tierra. Prorrumpid en canto, montañas, bosques y todos vuestros árboles, porque el Señor ha redimido a Jacob, y muestra su gloria en Israel.
 
 ## Isaías 44:24
 
-Esto es lo que dice el Señor —tu Redentor, quien te formó desde el vientre: Yo soy el Señor, el Hacedor de todas las cosas, quien extiende los cielos por mí mismo, quien extiende la tierra solo,—
+Esto dice el Señor, tu Redentor, el que te formó en el vientre de tu madre: Yo soy el Señor, el que lo ha hecho todo, el que extendió los cielos sin ayuda de nadie, el que desplegó la tierra yo solo,
 
 ## Isaías 44:25
 
-quien frustra las señales de los falsos profetas y hace que los adivinos parezcan tontos, quien derriba el aprendizaje de los sabios y lo convierte en tontería,
+quien frustra las señales de los falsos profetas y hace que los adivinos parezcan tontos, quien derriba el saber de los sabios y lo convierte en necedad,
 
 ## Isaías 44:26
 
@@ -108,7 +108,7 @@ quien confirma la palabra de su siervo y lleva a cabo el propósito de sus mensa
 
 ## Isaías 44:27
 
-quien ordena a las profundidades acuáticas, ‘Sé seca, y secaré tus corrientes,’
+quien ordena al abismo de las aguas: ‘Sécate, y secaré tus corrientes,’
 
 ## Isaías 44:28
 

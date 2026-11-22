@@ -32,7 +32,7 @@ Sin embargo, no ejecutó a sus hijos, sino que actuó conforme a lo que está es
 
 Además, Amasías reunió a Judá y los organizó por casas paternas bajo comandantes de miles y de cientos por todo Judá y Benjamín;  
  e hizo un censo de los de veinte años para arriba,  
- y los halló ser 300,000 hombres escogidos, aptos para salir a la guerra y manejar lanza y escudo.
+ y halló que eran 300 000 hombres escogidos, aptos para salir a la guerra y manejar lanza y escudo.
 
 ---
 
@@ -76,13 +76,13 @@ Entonces Amasías despidió a las tropas que habían venido a él de Efraín,
 ## 2 Crónicas 25:11
 
 Ahora Amasías reunió su valor y sacó a su pueblo,  
- y fue al Valle de la Sal y derrotó a los hijos de Seir, 10,000 de ellos.
+ y fue al Valle de la Sal y derrotó a los hijos de Seir, 10 000 de ellos.
 
 ---
 
 ## 2 Crónicas 25:12
 
-Los hijos de Judá también capturaron a 10,000 vivos y los llevaron a la cima del acantilado,  
+Los hijos de Judá también capturaron a 10 000 vivos y los llevaron a la cima del acantilado,  
  y los arrojaron desde la cima del acantilado de modo que todos quedaron destrozados.
 
 ---
@@ -90,7 +90,7 @@ Los hijos de Judá también capturaron a 10,000 vivos y los llevaron a la cima d
 ## 2 Crónicas 25:13
 
 Pero las tropas que Amasías había enviado de regreso, las que no fueron con él a la batalla,  
- saquearon las ciudades de Judá desde Samaria hasta Bet-horón, y mataron a 3,000 de ellos y saquearon gran cantidad de botín.
+ saquearon las ciudades de Judá desde Samaria hasta Bet-horón, y mataron a 3 000 de ellos y saquearon gran cantidad de botín.
 
 ---
 

@@ -144,8 +144,8 @@ Sin embargo, el rey dijo: “Que se vuelva a su propia casa, y no vea mi rostro.
 
 ## 2 Samuel 14:25
 
-Ahora bien, en todo Israel no había nadie tan alabado por su apariencia como Absalón;  
- desde la planta de su pie hasta la coronilla de su cabeza, no había defecto en él.
+En todo Israel no había nadie tan admirado por su buena presencia como Absalón;  
+ de pies a cabeza no tenía ningún defecto.
 
 ## 2 Samuel 14:26
 
@@ -170,9 +170,9 @@ Entonces Absalón envió a buscar a Joab para enviarlo al rey, pero no vino a é
 
 ## 2 Samuel 14:30
 
-Por lo tanto, instruyó a sus siervos:  
- “Mirad, el campo de Joab está junto al mío, y tiene cebada allí; id y prendedle fuego.”  
- Así que los siervos de Absalón prendieron fuego al campo.
+Entonces dijo a sus siervos: “Mirad,  
+ el campo de Joab está al lado del mío, y tiene sembrada cebada; id y quemadlo.”  
+ Y los siervos de Absalón le prendieron fuego al campo.
 
 ## 2 Samuel 14:31
 

@@ -31,4 +31,4 @@ Pero Dios le dijo a Jonás, “¿Haces bien en enojarte por la planta?” “Sí
 Pero el Señor dijo, “Te has preocupado por esta planta, aunque no trabajaste en ella ni la hiciste crecer. Nació de noche y pereció de noche.
 
 ## Jonás 4:11
-¿Y no habría yo de preocuparme por la gran ciudad de Nínive, donde hay más de 120,000 personas que no saben distinguir su mano derecha de su izquierda, y también muchos animales?”
+¿Y no habría yo de preocuparme por la gran ciudad de Nínive, donde hay más de 120 000 personas que no saben distinguir su mano derecha de su izquierda, y también muchos animales?”

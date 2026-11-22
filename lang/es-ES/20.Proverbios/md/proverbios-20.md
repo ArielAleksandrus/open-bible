@@ -1,7 +1,7 @@
 # Proverbios Capítulo 20
 
 ## Proverbios 20:1
-El vino es burlador, y la bebida fuerte alborotadora; cualquiera que por ello se extravía no es sabio.
+El vino vuelve burlón al que lo bebe, y el licor lo vuelve pendenciero; nadie que se deje arrastrar por ellos es sabio.
 
 ## Proverbios 20:2
 La ira del rey es como el rugido de un león; quien lo provoca arriesga su vida.
@@ -46,7 +46,7 @@ No ames el sueño, o te empobrecerás; abre tus ojos, y tendrás comida de sobra
 Hay oro y abundancia de joyas, pero los labios que hablan conocimiento son un tesoro raro.
 
 ## Proverbios 20:16
-Toma la prenda de quien se compromete por un extraño; reténla en prenda si es por un forastero.
+Toma la prenda de quien se compromete por un extraño; retenla en prenda si es por un forastero.
 
 ## Proverbios 20:17
 El alimento obtenido con engaño es dulce, pero después la boca se llena de grava.

@@ -86,7 +86,7 @@ Les habló siguiendo el consejo de los jóvenes, diciendo: “Mi padre hizo vues
 
 ## 2 Crónicas 10:15
 
-Así que el rey no escuchó al pueblo, porque fue un giro de los acontecimientos de parte de Dios para que el Señor estableciera Su palabra, que había hablado por medio de Ahías el silonita a Jeroboam hijo de Nabat.
+Así que el rey no escuchó al pueblo, porque así lo dispuso Dios, para que el Señor estableciera Su palabra, que había hablado por medio de Ahías el silonita a Jeroboam hijo de Nabat.
 
 ---
 

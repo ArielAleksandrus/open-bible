@@ -61,7 +61,7 @@ Tan pronto como Moisés se acercó al campamento y vio el becerro y las danzas, 
 Tomó el becerro que habían hecho, lo quemó en el fuego, lo molió hasta reducirlo a polvo, lo esparció sobre el agua, e hizo que los israelitas lo bebieran.
 
 ## Éxodo 32:21
-Moisés dijo a Aarón: “¿Qué te hizo este pueblo, que has traído sobre ellos tan gran pecado?”
+Moisés dijo a Aarón: “¿Qué te hizo este pueblo, para que hayas traído sobre ellos tan gran pecado?”
 
 ## Éxodo 32:22
 Aarón respondió: “No se encienda la ira de mi señor; tú conoces al pueblo, que es propenso al mal.
@@ -79,7 +79,7 @@ Cuando Moisés vio que el pueblo estaba fuera de control —porque Aarón los ha
 Moisés se puso a la entrada del campamento y dijo: “Quien esté de parte del Señor, venga a mí.” Y todos los hijos de Leví se reunieron con él.
 
 ## Éxodo 32:27
-Él les dijo: “Esto es lo que dice el Señor, el Dios de Israel: ‘Cada hombre ciña su espada al costado. Id y venid por el campamento de un extremo al otro, matando a su hermano, amigo y vecino.’”
+Él les dijo: “Esto es lo que dice el Señor, el Dios de Israel: ‘Cada hombre ciña su espada al costado. Id y venid por el campamento de un extremo al otro, y mate cada uno a su hermano, a su amigo y a su vecino.’”
 
 ## Éxodo 32:28
 Los hijos de Leví hicieron lo que Moisés mandó, y aquel día cayeron unos tres mil del pueblo.
@@ -100,7 +100,7 @@ Pero ahora, si perdonas su pecado, por favor hazlo; pero si no, bórrame del lib
 El Señor respondió a Moisés: “A quien haya pecado contra mí, lo borraré de mi libro.
 
 ## Éxodo 32:34
-Ahora ve, guía al pueblo al lugar del que te hablé. He aquí, mi ángel irá delante de ti. No obstante, en el día en que castigue, los castigaré por su pecado.”
+Ahora ve y guía al pueblo al lugar del que te hablé. Mi ángel irá delante de ti. Pero cuando llegue el día de pedir cuentas, los castigaré por su pecado.”
 
 ## Éxodo 32:35
 Entonces el Señor castigó al pueblo con una plaga por lo que hicieron con el becerro que Aarón había hecho.

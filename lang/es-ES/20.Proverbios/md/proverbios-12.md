@@ -37,7 +37,7 @@ El que cultiva su tierra tendrá comida en abundancia, pero el que persigue fant
 El malvado codicia el botín de los malhechores, pero la raíz de los justos da fruto.
 
 ## Proverbios 12:13
-Los malhechores quedan atrapados por su charla pecaminosa, pero los justos escapan de la angustia.
+Los malhechores quedan atrapados por sus palabras pecaminosas, pero los justos escapan de la angustia.
 
 ## Proverbios 12:14
 Del fruto de sus palabras, la gente se llena de cosas buenas, y el trabajo de sus manos les trae recompensa.

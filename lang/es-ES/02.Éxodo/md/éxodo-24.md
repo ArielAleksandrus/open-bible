@@ -7,7 +7,7 @@ Entonces el Señor instruyó a Moisés: “Sube al Señor, tú y Aarón, Nadab y
 Moisés solo se acercará al Señor; los demás no deben acercarse, ni el pueblo subirá con él.”
 
 ## Éxodo 24:3
-Moisés vino y transmitió al pueblo todas las palabras y ordenanzas del Señor; y con una sola voz, respondieron: “Haremos todas las palabras que el Señor ha dicho.”
+Moisés vino y transmitió al pueblo todas las palabras y ordenanzas del Señor; y con una sola voz, respondieron: “Haremos todo lo que el Señor ha dicho.”
 
 ## Éxodo 24:4
 Moisés escribió todas las palabras del Señor. Levantándose temprano a la mañana siguiente, construyó un altar al pie de la montaña y erigió doce pilares de piedra que representaban las doce tribus de Israel.
@@ -40,7 +40,7 @@ El Señor dijo a Moisés: “Sube a Mí en la montaña y permanece allí, y te d
 Moisés partió con Josué, su asistente, y subió a la montaña de Dios.
 
 ## Éxodo 24:14
-A los ancianos, les dijo: “Esperad aquí por nosotros hasta que volvamos a vosotros. Aarón y Hur están con vosotros; cualquiera que tenga un asunto legal puede acudir a ellos.”
+A los ancianos, les dijo: “Esperadnos aquí hasta que volvamos a vosotros. Aarón y Hur están con vosotros; cualquiera que tenga un asunto legal puede acudir a ellos.”
 
 ## Éxodo 24:15
 Moisés subió a la montaña, y la nube la envolvió.

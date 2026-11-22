@@ -1,7 +1,7 @@
 # Jeremías Capítulo 48
 
 ## Jeremías 48:1
-Acerca de Moab. Esto es lo que dice el Señor de los Ejércitos, el Dios de Israel: “¡Ay de Nebo, porque será destruida; Kiriataim será avergonzada y capturada; la fortaleza será deshonrada y destrozada.
+Acerca de Moab. Esto es lo que dice el Señor de los ejércitos, el Dios de Israel: “¡Ay de Nebo, porque será destruida! Quiriataim será avergonzada y capturada; la fortaleza será deshonrada y destrozada.
 
 ## Jeremías 48:2
 Moab ya no será alabada; en Hesbón traman su caída: ‘Venid, cortémosla para que no sea nación.’ También tú, pueblo de Madmen, serás silenciado; la espada te perseguirá.
@@ -31,7 +31,7 @@ Dad alas a Moab, porque será desolada; sus ciudades quedarán desiertas, sin ha
 ¡Maldito sea el que haga negligentemente la obra del Señor! ¡Maldito sea el que detenga su espada de derramar sangre!
 
 ## Jeremías 48:11
-“Moab ha estado en reposo desde su juventud, como el vino asentado en sus heces, no vertido de vasija en vasija —no ha ido al exilio. Así que conserva su sabor, y su aroma no ha cambiado—.
+“Moab ha estado en reposo desde su juventud, como el vino asentado en sus heces, no vertido de vasija en vasija: no ha ido al exilio. Así que conserva su sabor, y su aroma no ha cambiado.
 
 ## Jeremías 48:12
 Pero vienen días,” declara el Señor, “cuando enviaré a los que inclinan vasijas, y la volcarán; vaciarán sus jarras y las romperán.
@@ -43,7 +43,7 @@ Entonces Moab se avergonzará de Quemos, como la casa de Israel se avergonzó cu
 ¿Cómo podéis decir, ‘Somos guerreros, hombres valientes en la batalla’?
 
 ## Jeremías 48:15
-Moab será destruida y sus ciudades invadidas; sus mejores jóvenes caerán en la matanza,” declara el Rey, cuyo nombre es el Señor de los Ejércitos.
+Moab será destruida y sus ciudades invadidas; sus mejores jóvenes caerán en la matanza,” declara el Rey, cuyo nombre es el Señor de los ejércitos.
 
 ## Jeremías 48:16
 “El desastre de Moab está cerca; su calamidad vendrá rápidamente.
@@ -61,13 +61,13 @@ Ponte junto al camino y observa, tú que vives en Aroer. Pregunta al hombre que 
 Moab está deshonrada, porque está destrozada. ¡Lamentad y clamad! Proclamad junto al Arnón que Moab está destruida.
 
 ## Jeremías 48:21
-El juicio ha llegado a la meseta —a Holón, Jahaza y Mefaat,—
+El juicio ha llegado a la meseta: a Holón, Jahaza y Mefaat,
 
 ## Jeremías 48:22
 a las ciudades de Dibón, Nebo y Bet Diblataim,
 
 ## Jeremías 48:23
-a las ciudades de Kiriataim, Bet Gamul y Bet Meón,
+a las ciudades de Quiriataim, Bet Gamul y Bet Meón,
 
 ## Jeremías 48:24
 a Cariot y Bozra —a todas las ciudades de Moab, tanto cercanas como lejanas—.
@@ -76,7 +76,7 @@ a Cariot y Bozra —a todas las ciudades de Moab, tanto cercanas como lejanas—
 La fuerza de Moab está cortada; su poder está quebrado,” declara el Señor.
 
 ## Jeremías 48:26
-“Hacedla beber, porque ha desafiado al Señor. Que Moab se revuelque en su vómito; que se convierta en objeto de burla.
+“Embriagadla, porque ha desafiado al Señor. Que Moab se revuelque en su vómito; que se convierta en objeto de burla.
 
 ## Jeremías 48:27
 ¿No fue Israel objeto de burla para ti? ¿Fue atrapada entre ladrones, que meneas la cabeza con desdén cada vez que hablas de ella?

@@ -2,29 +2,28 @@
 
 ## Cantar de los Cantares 8:1
 
-¡Ojalá fueras como un hermano para mí,  
- Que fue amamantado por mi madre!  
- Si te encontrara afuera, te besaría;  
- Nadie me despreciaría.
+¡Ojalá fueras para mí como un hermano,  
+ criado a los pechos de mi madre!  
+ Si te encontrara en la calle, te besaría,  
+ y nadie me lo echaría en cara.
 
 ## Cantar de los Cantares 8:2
 
-Te llevaría y te traería A la casa de mi madre,  
- que solía enseñarme;  
- Te daría a beber vino especiado Del jugo de mis granadas.
+Te llevaría de la mano a la casa de mi madre,  
+ la que me enseñaba;  
+ te daría a beber vino con especias y jugo de mis granadas.
 
 ## Cantar de los Cantares 8:3
 
 Su mano izquierda sostiene mi cabeza,  
- Y su mano derecha me abraza.
+ y su mano derecha me abraza.
 
 ---
 
 ## Cantar de los Cantares 8:4
 
-Os conjuro,  
- Oh hijas de Jerusalén,  
- No despertéis ni provoquéis el amor Hasta que le plazca.
+Mujeres de Jerusalén,  
+ os ruego que no despertéis ni provoquéis el amor hasta que él mismo lo quiera.
 
 ---
 
@@ -39,62 +38,60 @@ Os conjuro,
 
 ## Cantar de los Cantares 8:6
 
-Ponme como un sello sobre tu corazón,  
- Como un sello sobre tu brazo.  
- Porque el amor es tan poderoso como la muerte,  
- La pasión tan implacable como el sepulcro;  
- Sus destellos son destellos de fuego,  
- Una llama divina.
+Llévame como un sello sobre tu corazón,  
+ como un sello en tu brazo.  
+ Porque el amor es fuerte como la muerte,  
+ y la pasión, implacable como la tumba;  
+ sus chispas son chispas de fuego,  
+ una llama divina.
 
 ## Cantar de los Cantares 8:7
 
-Muchas aguas no pueden apagar el amor,  
- Ni los ríos lo inundarán;  
- Si un hombre diera todas las riquezas de su casa por amor,  
- Sería totalmente despreciado.
+Ni todo el agua del mundo puede apagar el amor,  
+ ni los ríos lo pueden ahogar;  
+ si alguien ofreciera todo lo que tiene en su casa a cambio del amor,  
+ solo conseguiría que lo despreciaran.
 
 ---
 
 ## Cantar de los Cantares 8:8
 
-Tenemos una hermanita,  
- Y aún no ha madurado;  
- ¿Qué haremos por nuestra hermana El día en que se hable de ella?
+Tenemos una hermana pequeña que todavía no se ha desarrollado;  
+ ¿qué haremos por nuestra hermana el día en que vengan a pedir su mano?
 
 ## Cantar de los Cantares 8:9
 
-Si es un muro,  
- Construiremos sobre ella un almenaje de plata;  
- Pero si es una puerta,  
- La reforzaremos con tablas de cedro.
+Si es una muralla,  
+ le pondremos encima almenas de plata;  
+ pero si es una puerta,  
+ la reforzaremos con tablas de cedro.
 
 ---
 
 ## Cantar de los Cantares 8:10
 
-Yo era un muro, y mi estatura era como torres;  
- Entonces vine a ser en sus ojos Como quien halla paz.
+Yo era una muralla, y mi figura era como torres;  
+ por eso él me miró como a quien trae la paz.
 
 ## Cantar de los Cantares 8:11
 
-Salomón tenía una viña en Baal-hamón;  
- Arrendó la viña a cuidadores.  
- Cada uno debía traer mil siclos de plata por su fruto.
+Salomón tenía una viña en Baal-hamón y se la arrendó a unos cuidadores.  
+ Cada uno tenía que pagarle mil siclos de plata por la cosecha.
 
 ## Cantar de los Cantares 8:12
 
-Mi propia viña está a mi disposición;  
- Los mil siclos son para ti, Salomón,  
- Y doscientos son para los que cuidan su fruto.
+Mi viña, la mía, es solo asunto mío;  
+ los mil siclos son para ti, Salomón,  
+ y doscientos para los que cuidan su fruto.
 
 ---
 
 ## Cantar de los Cantares 8:13
 
-Tú que habitas en los jardines,  
- Mis compañeros están escuchando tu voz —¡Déjame oírla—!
+Tú, que vives en los jardines,  
+ mis compañeros están atentos a tu voz —¡déjame oírla!
 
 ## Cantar de los Cantares 8:14
 
-Apresúrate, amado mío,  
- Y sé como un gacela veloz o un joven ciervo Sobre las colinas fragantes.
+¡Date prisa, amado mío,  
+ y corre como una gacela o un ciervo joven por las colinas perfumadas!

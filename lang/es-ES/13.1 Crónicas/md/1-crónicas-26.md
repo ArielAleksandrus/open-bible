@@ -3,13 +3,13 @@
 ## 1 Crónicas 26:1
 
 En cuanto a las divisiones de los porteros:  
- Entre los coreítas, Meshelemías, hijo de Coré, de los descendientes de Asaf.
+ Entre los coreítas, Meselemías, hijo de Coré, de los descendientes de Asaf.
 
 ---
 
 ## 1 Crónicas 26:2
 
-Los hijos de Meshelemías fueron:
+Los hijos de Meselemías fueron:
 
 >  Zacarías el primogénito, Jediael el segundo, Zebadías el tercero, Jatniel el cuarto,
 
@@ -48,7 +48,7 @@ También a su hijo Semaías le nacieron hijos,
 
 Los hijos de Semaías fueron:
 
->  Othni, Refael, Obed, Elzabad,  
+>  Otni, Refael, Obed, Elzabad,  
 >  cuyos hermanos, Eliú y Semacías, eran hombres valientes.
 
 ---
@@ -63,7 +63,7 @@ Todos estos eran de los hijos de Obed-edom; ellos y sus hijos y sus parientes er
 
 ## 1 Crónicas 26:9
 
-Meshelemías tenía hijos y parientes, hombres capaces:
+Meselemías tenía hijos y parientes, hombres capaces:
 
 >  dieciocho en total.
 
@@ -234,7 +234,7 @@ De los izharitas, Quenanías y sus hijos fueron asignados a deberes externos par
 
 ## 1 Crónicas 26:30
 
-De los hebronitas, Hasabías y sus parientes, 1,700 hombres capaces,
+De los hebronitas, Hasabías y sus parientes, 1 700 hombres capaces,
 
 >  estaban a cargo de los asuntos de Israel al oeste del Jordán,  
 >  para toda la obra del Señor y el servicio del rey.
@@ -253,7 +253,7 @@ De los hebronitas, Jerías era el jefe de los hebronitas.
 
 ## 1 Crónicas 26:32
 
-Y sus parientes, hombres capaces, eran 2,700 jefes de casas de padres.
+Y sus parientes, hombres capaces, eran 2 700 jefes de casas de padres.
 
 >  Y el rey David los nombró sobre los rubenitas, los gaditas y la media tribu de los manasitas,  
 >  para todos los asuntos de Dios y del rey.

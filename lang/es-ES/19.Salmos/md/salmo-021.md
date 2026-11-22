@@ -11,8 +11,8 @@
 
 ## Salmo 21:2
 
-> Le has concedido el deseo de su corazón,  
->  Y no le has negado la petición de sus labios.
+> Tú le has dado lo que su corazón anhelaba;  
+>  no le has negado lo que sus labios te pedían.
 
 >  Selah
 
@@ -34,35 +34,35 @@
 ## Salmo 21:6
 
 > Porque lo haces sumamente bendecido para siempre;  
->  Lo llenas de alegría en Tu presencia.
+>  lo llenas de alegría en Tu presencia.
 
 ## Salmo 21:7
 
 > Porque el rey tiene fe en el Señor,  
->  Y por la firmeza del Altísimo permanecerá inquebrantable.
+>  y por la firmeza del Altísimo permanecerá inquebrantable.
 
 ---
 
 ## Salmo 21:8
 
-> Tu mano alcanzará a todos tus enemigos;  
->  Tu mano derecha capturará a los que te odian.
+> Tu mano llegará hasta todos tus enemigos;  
+>  Tu mano derecha atrapará a los que te odian.
 
 ## Salmo 21:9
 
-> Los harás como un horno ardiente en el tiempo de tu ira;  
->  El Señor los consumirá en Su ira,  
->  Y el fuego los devorará.
+> Cuando llegue el tiempo de tu ira, los convertirás en un horno encendido;  
+>  el Señor acabará con ellos en Su furor,  
+>  y el fuego los envolverá.
 
 ## Salmo 21:10
 
-> Eliminarás a sus descendientes de la tierra,  
->  Y a su prole de entre los hijos de los hombres.
+> Borrarás de la tierra a sus descendientes,  
+>  y a sus hijos de entre la humanidad.
 
 ## Salmo 21:11
 
-> Aunque tramaron el mal contra Ti Y urdieron un plan,  
->  No prevalecerán.
+> Aunque se propusieron hacerte daño y armaron un plan,  
+>  no se saldrán con la suya.
 
 ## Salmo 21:12
 

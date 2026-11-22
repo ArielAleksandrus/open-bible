@@ -62,7 +62,7 @@ Parejas de todas las criaturas que poseían el aliento de vida vinieron a Noé y
 
 ## Génesis 7:16
 
-Los que entraron, macho y hembra de todos los seres vivientes, entraron como Dios le había mandado; y el Señor lo cerró dentro.
+Los que entraron, macho y hembra de todos los seres vivientes, entraron como Dios le había mandado; y el Señor cerró la puerta tras él.
 
 ## Génesis 7:17
 

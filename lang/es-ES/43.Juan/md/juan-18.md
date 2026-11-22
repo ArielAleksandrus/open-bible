@@ -6,7 +6,7 @@ Después de que Jesús terminó de hablar, fue con sus discípulos al otro lado 
 
 ## Juan 18:2
 
-Ahora Judas, que lo estaba traicionando, también conocía el lugar, porque Jesús se había reunido allí frecuentemente con sus discípulos.
+Judas, que lo estaba traicionando, también conocía el lugar, porque Jesús se había reunido allí frecuentemente con sus discípulos.
 
 ## Juan 18:3
 
@@ -42,7 +42,7 @@ Entonces Simón Pedro, teniendo una espada, la sacó e hirió al siervo del sumo
 
 ## Juan 18:11
 
-Jesús dijo a Pedro, “Vuelve tu espada a su vaina. ¿No he de beber la copa que el Padre me ha dado?”
+Jesús le dijo a Pedro: “Guarda la espada en su funda. ¿Acaso no voy a beber la copa que el Padre me ha dado?”
 
 ---
 

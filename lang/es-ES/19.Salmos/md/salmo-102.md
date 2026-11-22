@@ -4,151 +4,149 @@
 
 ## Salmo 102:1
 
-> ¡Escucha mi oración, Señor!  
->  Y que mi clamor llegue a Ti.
+> ¡Señor, oye mi oración!  
+>  Que mi grito pidiendo ayuda llegue hasta Ti.
 
 ## Salmo 102:2
 
-> No escondas Tu rostro de mí en el día de mi angustia;  
->  Inclina Tu oído hacia mí;  
->  El día que llame, respóndeme pronto.
+> No me ocultes Tu rostro cuando estoy en apuros;  
+>  préstame oído;  
+>  cuando te llame, contéstame enseguida.
 
 ---
 
 ## Salmo 102:3
 
-> Porque mis días se han desvanecido como humo,  
->  Y mis huesos se sienten quemados como en un hogar.
+> Porque mis días se esfuman como el humo,  
+>  y siento los huesos abrasados como brasas de un fogón.
 
 ## Salmo 102:4
 
-> Mi corazón está herido y marchito como la hierba,  
->  En verdad, olvido comer mi pan.
+> Tengo el corazón golpeado y seco como la hierba;  
+>  hasta me olvido de comer.
 
 ## Salmo 102:5
 
-> Debido a mi intenso gemir,  
->  Mis huesos se pegan a mi carne.
+> De tanto gemir,  
+>  me he quedado en los huesos.
 
 ## Salmo 102:6
 
-> Soy como un pelícano en el desierto;  
->  Me he vuelto como un búho entre las ruinas.
+> Me parezco al pelícano del desierto;  
+>  soy como el búho entre las ruinas.
 
 ## Salmo 102:7
 
-> Estoy despierto,  
->  Soy como un pájaro solitario en un tejado.
+> Paso la noche en vela;  
+>  soy como un pájaro solo sobre el tejado.
 
 ## Salmo 102:8
 
 > Mis enemigos me han insultado todo el día;  
->  Los que se burlan de mí usan mi nombre como una maldición.
+>  los que se burlan de mí usan mi nombre como una maldición.
 
 ## Salmo 102:9
 
-> Porque he comido cenizas como si fueran pan,  
->  Y he mezclado mi bebida con lágrimas
+> Porque como cenizas en lugar de pan,  
+>  y mis lágrimas se mezclan con lo que bebo
 
 ## Salmo 102:10
 
-> A causa de Tu indignación y Tu ira;  
->  Porque me has levantado y arrojado lejos.
+> por Tu indignación y Tu enojo;  
+>  porque me levantaste y luego me arrojaste lejos.
 
 ## Salmo 102:11
 
-> Mis días son como una sombra extendida,  
->  Y me marchito como la hierba.
+> Mis días son como una sombra que se alarga,  
+>  y me voy secando como la hierba.
 
 ---
 
 ## Salmo 102:12
 
 > Pero Tú, Señor, permaneces para siempre,  
->  Y Tu nombre es recordado a través de todas las generaciones.
+>  y cada generación recuerda Tu nombre.
 
 ## Salmo 102:13
 
-> Te levantarás y tendrás misericordia de Sion;  
->  Porque es tiempo de mostrarle favor,  
->  Porque ha llegado el tiempo señalado.
+> Te levantarás y tendrás compasión de Sion,  
+>  porque es hora de mostrarle Tu favor;  
+>  ha llegado el momento fijado.
 
 ## Salmo 102:14
 
-> Ciertamente Tus siervos aprecian sus piedras,  
->  Y tienen compasión de su polvo.
+> Porque Tus siervos aman sus piedras y se compadecen hasta de su polvo.
 
 ## Salmo 102:15
 
-> Así las naciones reverenciarán el nombre del Señor,  
->  Y todos los reyes de la tierra verán Tu gloria.
+> Así las naciones honrarán el nombre del Señor,  
+>  y todos los reyes de la tierra verán Tu gloria.
 
 ## Salmo 102:16
 
-> Porque el Señor ha reconstruido Sion;  
->  Ha revelado Su gloria.
+> Porque el Señor ha vuelto a levantar Sion;  
+>  ha dejado ver Su gloria.
 
 ## Salmo 102:17
 
 > Ha escuchado la oración de los desamparados,  
->  Y no ha desestimado su súplica.
+>  y no ha desestimado su súplica.
 
 ---
 
 ## Salmo 102:18
 
 > Esto será registrado para generaciones futuras,  
->  Para que un pueblo aún por crear alabe al Señor:
+>  para que un pueblo aún por crear alabe al Señor:
 
 ## Salmo 102:19
 
-> Porque Él miró desde Su altura santa;  
->  Desde el cielo el Señor observó la tierra,
+> Porque Él miró hacia abajo desde Su santa altura;  
+>  desde el cielo el Señor contempló la tierra,
 
 ## Salmo 102:20
 
-> Para escuchar los gemidos de los prisioneros,  
->  Para liberar a los condenados a muerte,
+> para oír los lamentos de los presos y dejar libres a los condenados a muerte,
 
 ## Salmo 102:21
 
-> Para que el pueblo proclame el nombre del Señor en Sion,  
->  Y Su alabanza en Jerusalén,
+> para que en Sion se anuncie el nombre del Señor,  
+>  y en Jerusalén Su alabanza,
 
 ## Salmo 102:22
 
 > Cuando los pueblos se reúnan,  
->  Y los reinos, para adorar al Señor.
+>  y los reinos, para adorar al Señor.
 
 ---
 
 ## Salmo 102:23
 
-> Ha debilitado mi fuerza en el camino;  
->  Ha acortado mis días.
+> En pleno camino me ha quitado las fuerzas;  
+>  ha recortado mis días.
 
 ## Salmo 102:24
 
-> Digo, “Dios mío, no me lleves en medio de mis días,  
->  Tus años se extienden a través de todas las generaciones.
+> Y digo: “Dios mío, no me lleves a mitad de mi vida;  
+>  Tus años duran por todas las generaciones.
 
 ## Salmo 102:25
 
-> En tiempos pasados, estableciste los cimientos de la tierra,  
->  Y los cielos son obra de Tus manos.
+> Hace mucho tiempo pusiste los cimientos de la tierra,  
+>  y los cielos los hicieron Tus manos.
 
 ## Salmo 102:26
 
-> Ellos perecerán, pero Tú permaneces;  
->  Todos ellos se desgastarán como una prenda;  
->  Como un paño arruinado los cambiarás, y desaparecerán.
+> Ellos se acabarán, pero Tú sigues;  
+>  todos se gastarán como la ropa;  
+>  los cambiarás como un trapo viejo, y dejarán de existir.
 
 ## Salmo 102:27
 
-> Pero Tú permaneces inmutable,  
->  Y Tus años nunca terminarán.
+> Pero Tú eres siempre el mismo,  
+>  y Tus años no tienen fin.
 
 ## Salmo 102:28
 
-> Los hijos de Tus siervos habitarán seguros,  
->  Y sus descendientes serán establecidos delante de Ti.”
+> Los hijos de Tus siervos vivirán seguros,  
+>  y sus descendientes permanecerán firmes delante de Ti.”

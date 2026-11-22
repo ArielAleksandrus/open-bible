@@ -30,10 +30,10 @@ Porque si el primer pacto hubiera sido sin defecto, no habría habido necesidad 
 
 ## Hebreos 8:8
 
-Porque encontrando falta en el pueblo, dice:
+Pero Dios, al encontrar faltas en el pueblo,
 
->  “He aquí, vienen días, dice el Señor,
->  en que estableceré un nuevo pacto con la casa de Israel y con la casa de Judá.
+>  dice: “Mirad, se acercan días, dice el Señor,
+>  en que haré un nuevo pacto con la casa de Israel y con la casa de Judá.
 
 ## Hebreos 8:9
 

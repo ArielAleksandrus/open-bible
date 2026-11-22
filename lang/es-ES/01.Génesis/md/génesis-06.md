@@ -14,7 +14,7 @@ Entonces el Señor declaró: “Mi Espíritu no contenderá con los humanos inde
 
 ## Génesis 6:4
 
-Los Nephilim estaban en la tierra en aquellos días, y también después, cuando los hijos de Dios fueron a las hijas de los hombres y tuvieron hijos con ellas. Estos fueron los hombres poderosos de antaño, hombres de renombre.
+Los nefilim estaban en la tierra en aquellos días, y también después, cuando los hijos de Dios fueron a las hijas de los hombres y tuvieron hijos con ellas. Estos fueron los hombres poderosos de antaño, hombres de renombre.
 
 ## Génesis 6:5
 
@@ -50,7 +50,7 @@ Dios miró la tierra y vio que estaba corrompida, porque toda carne había corro
 
 ## Génesis 6:13
 
-Entonces Dios dijo a Noé: “El fin de toda carne ha llegado ante Mí, porque la tierra está llena de violencia a causa de ellos; he aquí, estoy a punto de destruirlos junto con la tierra.
+Entonces Dios dijo a Noé: “Ha llegado ante Mí el fin de todo ser viviente, porque por causa de ellos la tierra está llena de violencia; mira, voy a destruirlos junto con la tierra.
 
 ## Génesis 6:14
 
@@ -66,7 +66,7 @@ Construye un techo para el arca, terminándolo a un codo de la parte superior; c
 
 ## Génesis 6:17
 
-He aquí, estoy trayendo aguas de diluvio sobre la tierra para destruir toda carne en la que hay aliento de vida bajo el cielo; todo lo que hay en la tierra perecerá.
+Mira, voy a enviar las aguas de un diluvio sobre la tierra para destruir bajo el cielo a todo ser que tenga aliento de vida; todo lo que hay en la tierra morirá.
 
 ## Génesis 6:18
 

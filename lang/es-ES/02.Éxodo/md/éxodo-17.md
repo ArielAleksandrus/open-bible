@@ -4,7 +4,7 @@
 Toda la comunidad de los israelitas partió por etapas desde el desierto de Sin, siguiendo el mandato del Señor, y acampó en Refidim, donde no había agua para que el pueblo bebiera.
 
 ## Éxodo 17:2
-El pueblo contenció con Moisés, exigiendo: “Danos agua para beber.” Moisés respondió: “¿Por qué discutís conmigo? ¿Por qué ponéis a prueba al Señor?”
+El pueblo discutió con Moisés, exigiendo: “Danos agua para beber.” Moisés respondió: “¿Por qué discutís conmigo? ¿Por qué ponéis a prueba al Señor?”
 
 ## Éxodo 17:3
 El pueblo, sediento de agua, murmuró contra Moisés, diciendo: “¿Por qué nos sacaste de Egipto, para matarnos de sed a nosotros, a nuestros hijos y a nuestro ganado?”
@@ -19,7 +19,7 @@ El Señor instruyó a Moisés: “Pasa delante del pueblo, toma contigo a alguno
 Yo estaré delante de ti allí sobre la roca en Horeb; golpea la roca, y de ella brotará agua para que el pueblo beba.” Moisés lo hizo así a la vista de los ancianos de Israel.
 
 ## Éxodo 17:7
-Llamó a aquel lugar Masá y Meribá por la contención de los israelitas, y porque pusieron a prueba al Señor, preguntando: “¿Está el Señor entre nosotros o no?”
+Llamó a aquel lugar Masá y Meribá por la disputa de los israelitas, y porque pusieron a prueba al Señor, preguntando: “¿Está el Señor entre nosotros o no?”
 
 ## Éxodo 17:8
 Los amalecitas vinieron y libraron batalla contra Israel en Refidim.

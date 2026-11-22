@@ -10,12 +10,12 @@
 ## Salmo 10:2
 
 > En su arrogancia, los malvados persiguen fervientemente a los necesitados;  
->  Que queden atrapados en las maquinaciones que han ideado.
+>  que queden atrapados en las maquinaciones que han ideado.
 
 ## Salmo 10:3
 
 > Porque el malvado se jacta del deseo de su corazón,  
->  Y el avaro maldice y muestra desprecio por el Señor.
+>  y el avaro maldice y muestra desprecio por el Señor.
 
 ## Salmo 10:4
 
@@ -25,20 +25,20 @@
 ## Salmo 10:5
 
 > Sus caminos prosperan en todo momento;  
->  Sin embargo, Tus juicios están fuera de su alcance;  
->  En cuanto a todos sus enemigos, se burla de ellos.
+>  sin embargo, Tus juicios están fuera de su alcance;  
+>  en cuanto a todos sus enemigos, se burla de ellos.
 
 ## Salmo 10:6
 
 > Se dice a sí mismo: “No seré sacudido;  
->  A través de todas las generaciones no enfrentaré adversidad.”
+>  a través de todas las generaciones no enfrentaré adversidad.”
 
 ---
 
 ## Salmo 10:7
 
 > Su boca está llena de maldiciones, engaño y opresión;  
->  Bajo su lengua hay malicia e injusticia.
+>  bajo su lengua hay malicia e injusticia.
 
 ## Salmo 10:8
 
@@ -55,7 +55,7 @@
 ## Salmo 10:10
 
 > Se agacha, se inclina,  
->  Y los desafortunados caen por sus fuertes.
+>  y los desafortunados caen por sus fuertes.
 
 ## Salmo 10:11
 
@@ -90,7 +90,7 @@
 ## Salmo 10:16
 
 > El Señor reina como Rey por los siglos de los siglos;  
->  Las naciones han desaparecido de Su tierra.
+>  las naciones han desaparecido de Su tierra.
 
 ## Salmo 10:17
 
@@ -100,4 +100,4 @@
 ## Salmo 10:18
 
 > Para defender al huérfano y al oprimido,  
->  Para que la humanidad, que es de la tierra, ya no cause temor.
+>  para que la humanidad, que es de la tierra, ya no cause temor.

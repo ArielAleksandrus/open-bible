@@ -4,25 +4,25 @@
 
 ## Salmo 64:1
 
-> Escucha mi voz, Dios, en mi queja;  
->  Protege mi vida del temor al enemigo.
+> Dios, escucha mi voz cuando me quejo;  
+>  Protege mi vida del miedo al enemigo.
 
 ---
 
 ## Salmo 64:2
 
-> Escóndeme de las intrigas secretas de los malhechores,  
->  Del tumulto de los que cometen injusticia,
+> Ocúltame de los planes secretos de los que hacen el mal,  
+>  del alboroto de los que cometen injusticias,
 
 ## Salmo 64:3
 
-> Que han afilado sus lenguas como espada.  
->  Dirigieron palabras duras como sus flechas,
+> Que han afilado su lengua como una espada.  
+>  Lanzaron palabras crueles como si fueran flechas,
 
 ## Salmo 64:4
 
 > Para golpear inesperadamente al inocente;  
->  De repente atacan sin temor.
+>  de repente atacan sin temor.
 
 ---
 
@@ -36,30 +36,30 @@
 
 > Traman injusticias, diciendo,  
 >  “Estamos preparados con un plan astuto”;  
->  Porque los pensamientos internos y el corazón de una persona son profundos.
+>  porque los pensamientos internos y el corazón de una persona son profundos.
 
 ---
 
 ## Salmo 64:7
 
-> Pero Dios enviará una flecha contra ellos;  
->  De repente serán heridos.
+> Pero Dios les disparará una flecha;  
+>  y en un instante caerán heridos.
 
 ## Salmo 64:8
 
-> Así serán hechos para tropezar;  
+> Así tropezarán;  
 >  Sus propias lenguas se volverán contra ellos;  
->  Todos los que los vean moverán la cabeza.
+>  todos los que los vean moverán la cabeza.
 
 ## Salmo 64:9
 
 > Entonces toda la gente estará asombrada,  
->  Y proclamarán las obras de Dios,  
->  Y meditarán en lo que Él ha hecho.
+>  y proclamarán las obras de Dios,  
+>  y meditarán en lo que Él ha hecho.
 
 ---
 
 ## Salmo 64:10
 
 > Los justos se alegrarán en el Señor y buscarán refugio en Él;  
->  Y todos los rectos de corazón se regocijarán.
+>  y todos los de corazón sincero se llenarán de gozo.

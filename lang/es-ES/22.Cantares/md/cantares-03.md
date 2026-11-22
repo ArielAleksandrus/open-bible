@@ -2,73 +2,68 @@
 
 ## Cantar de los Cantares 3:1
 
-En mi lecho, noche tras noche, busqué al que Mi alma ama;  
- Lo busqué pero no lo encontré.
+En mi cama, noche tras noche, busqué al amor de mi vida;  
+ lo busqué, pero no di con él.
 
 ## Cantar de los Cantares 3:2
 
-Debo levantarme ahora y recorrer la ciudad;  
- Por las calles y en las plazas públicas.  
- Debo buscar al que mi alma ama.”  
- Lo busqué pero no lo encontré.
+Tengo que levantarme ya y recorrer la ciudad,  
+ sus calles y sus plazas.  
+ Tengo que buscar al amor de mi vida.  
+ Lo busqué, pero no di con él.
 
 ## Cantar de los Cantares 3:3
 
-Los guardias que patrullan la ciudad me encontraron,  
- Y pregunté,  
- “¿Habéis visto al que mi alma ama?”
+Me encontraron los guardias que vigilan la ciudad,  
+ y les pregunté:  
+ “¿Habéis visto al amor de mi vida?”
 
 ## Cantar de los Cantares 3:4
 
-Apenas los había pasado Cuando encontré al que mi alma ama;  
- Me aferré a él y no lo dejé ir Hasta que lo traje a la casa de mi madre,  
- Y al cuarto de la que me concibió.
+Nada más pasar junto a ellos, encontré al amor de mi vida;  
+ me agarré a él y no lo solté hasta llevarlo a la casa de mi madre,  
+ al cuarto de la mujer que me dio la vida.
 
 ---
 
 ## Cantar de los Cantares 3:5
 
-Os conjuro,  
- Oh hijas de Jerusalén,  
- Por las gacelas o por las ciervas del campo,  
- Que no despertéis ni provoquéis el amor Hasta que le plazca.
+Mujeres de Jerusalén,  
+ os ruego por las gacelas y por las ciervas del campo que no despertéis ni provoquéis el amor hasta que él mismo lo quiera.
 
 ---
 
 ## Cantar de los Cantares 3:6
 
-¿Qué es esto que sube del desierto Como columnas de humo,  
- Perfumado con mirra e incienso,  
- Con todos los polvos aromáticos del mercader?
+¿Qué es eso que viene subiendo del desierto, como una columna de humo,  
+ con olor a mirra y a incienso y a todos los polvos perfumados que venden los comerciantes?
 
 ## Cantar de los Cantares 3:7
 
-He aquí, es el lecho de viaje de Salomón;  
- Sesenta guerreros lo rodean,  
- De los guerreros de Israel.
+¡Mirad! Es la cama de viaje de Salomón;  
+ la rodean sesenta soldados,  
+ de los más valientes de Israel.
 
 ## Cantar de los Cantares 3:8
 
-Todos ellos son expertos en la espada,  
- Expertos en la guerra;  
- Cada uno lleva su espada al costado,  
- Protegiéndose de los terrores de la noche.
+Todos manejan bien la espada y tienen experiencia en la guerra;  
+ cada uno lleva la espada a la cintura,  
+ por si hay peligros en la noche.
 
 ## Cantar de los Cantares 3:9
 
-El rey Salomón se hizo una litera De la madera del Líbano.
+El rey Salomón se hizo un trono portátil con madera del Líbano.
 
 ## Cantar de los Cantares 3:10
 
-Él hizo sus postes de plata,  
- Su respaldo de oro,  
- Y su asiento de tela púrpura,  
- Con su interior amorosamente adornado Por las hijas de Jerusalén.
+Le hizo las columnas de plata,  
+ el respaldo de oro y el asiento de tela de púrpura;  
+ por dentro lo adornaron con cariño las mujeres de Jerusalén.
 
 ---
 
 ## Cantar de los Cantares 3:11
 
-Salid, hijas de Sión,  
- Y contemplad al rey Salomón con la corona Con la que su madre lo coronó El día de su boda,  
- Y el día del gozo de su corazón.
+Salid, mujeres de Sion,  
+ y mirad al rey Salomón con la corona que le puso su madre el día de su boda,  
+ el día en que su corazón estaba lleno de alegría.

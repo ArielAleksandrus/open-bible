@@ -10,7 +10,7 @@ Porque si el mensaje hablado por medio de ángeles era inmutable, y toda transgr
 
 ## Hebreos 2:3
 
-¿cómo escaparemos nosotros si descuidamos una salvación tan grande? Esta salvación, que fue inicialmente anunciada por el Señor, nos fue confirmada por los que le oyeron.
+¿cómo vamos a escapar nosotros si no hacemos caso de una salvación tan grande? Esta salvación fue anunciada primero por el Señor, y luego nos la confirmaron los que le escucharon.
 
 ## Hebreos 2:4
 
@@ -44,7 +44,7 @@ Pero vemos a Jesús, que fue hecho un poco menor que los ángeles por un corto t
 
 ## Hebreos 2:10
 
-Porque convenía que aquel para quien y por quien todo existe, llevando a muchos hijos e hijas a la gloria, perfeccionara al autor de su salvación por medio de sufrimientos.
+Porque era justo que Dios, para quien y por medio de quien existe todo, queriendo llevar a muchos hijos e hijas a la gloria, hiciera perfecto por medio de sufrimientos a Jesús, el que abre el camino de la salvación de ellos.
 
 ## Hebreos 2:11
 

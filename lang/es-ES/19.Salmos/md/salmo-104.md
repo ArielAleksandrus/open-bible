@@ -2,198 +2,192 @@
 
 ## Salmo 104:1
 
-> ¡Bendice, alma mía, al Señor!  
->  Señor, Dios mío, eres muy grande;  
->  Estás vestido de esplendor y majestad,
+> ¡Alma mía, alaba al Señor!  
+>  Señor, Dios mío, ¡qué grande eres!  
+>  Te has vestido de esplendor y majestad,
 
 ---
 
 ## Salmo 104:2
 
-> Te envuelves de luz como de un manto,  
->  Extiendes los cielos como una cortina de tienda.
+> te envuelves en la luz como en un manto y despliegas el cielo como la tela de una tienda.
 
 ## Salmo 104:3
 
-> Él construye las vigas de sus aposentos en las aguas;  
->  Usa las nubes como su carro;  
->  Se mueve sobre las alas del viento;
+> Él pone sobre las aguas las vigas de sus habitaciones de lo alto;  
+>  hace de las nubes su carro y avanza sobre las alas del viento;
 
 ## Salmo 104:4
 
-> Designa los vientos como sus mensajeros,  
->  Fuego llameante como sus servidores.
+> convierte los vientos en sus mensajeros,  
+>  y las llamas de fuego en sus servidores.
 
 ---
 
 ## Salmo 104:5
 
-> Fundó la tierra sobre sus bases,  
->  Para que no sea sacudida por todos los tiempos.
+> Él asentó la tierra sobre sus bases,  
+>  para que nunca jamás se tambalee.
 
 ## Salmo 104:6
 
-> La cubriste con el abismo como con un vestido;  
->  Las aguas se alzaron sobre las montañas.
+> La cubriste con el océano como con una manta;  
+>  las aguas llegaban por encima de las montañas.
 
 ## Salmo 104:7
 
-> A tu reprensión retrocedieron,  
->  Al sonido de tu trueno huyeron.
+> Pero ante tu reprensión se retiraron;  
+>  al oír tu trueno salieron corriendo.
 
 ## Salmo 104:8
 
-> Las montañas ascendieron,  
->  los valles descendieron Al lugar que les designaste.
+> Subieron los montes y bajaron los valles hasta el sitio que les habías señalado.
 
 ## Salmo 104:9
 
-> Pusiste un límite para que no lo crucen,  
->  Para que no vuelvan a inundar la tierra.
+> Les pusiste un límite que no pueden pasar,  
+>  para que nunca vuelvan a inundar la tierra.
 
 ---
 
 ## Salmo 104:10
 
-> Él envía manantiales a los valles;  
->  Fluyen entre las montañas;
+> Él hace que los manantiales corran por los valles y se abran paso entre las montañas;
 
 ## Salmo 104:11
 
-> Proveen bebida a toda bestia del campo;  
->  Los asnos salvajes sacian su sed.
+> allí beben todos los animales del campo,  
+>  y los asnos salvajes calman su sed.
 
 ## Salmo 104:12
 
-> Junto a ellos habitan las aves del cielo;  
->  Cantan entre las ramas.
+> A su lado viven las aves del cielo,  
+>  que cantan entre las ramas.
 
 ## Salmo 104:13
 
-> Riega las montañas desde sus aposentos;  
->  La tierra se llena con el fruto de sus obras.
+> Desde sus habitaciones de lo alto, él riega los montes;  
+>  la tierra queda llena de lo que producen sus obras.
 
 ## Salmo 104:14
 
-> Hace brotar la hierba para el ganado,  
->  Y plantas para el trabajo del hombre,  
->  Para que saquen alimento de la tierra,
+> Hace crecer la hierba para el ganado y las plantas que el ser humano cultiva,  
+>  para que saque su alimento de la tierra,
 
 ## Salmo 104:15
 
-> Y vino, que alegra el corazón del hombre,  
->  Para que su rostro brille con aceite,  
->  Y alimento, que fortalece el corazón del hombre.
+> y el vino, que pone alegre el corazón de la gente,  
+>  y el aceite, que hace brillar el rostro,  
+>  y el pan, que da fuerzas al corazón.
 
 ## Salmo 104:16
 
-> Los árboles del Señor están bien regados,  
->  Los cedros del Líbano que él plantó,
+> Los árboles del Señor tienen agua de sobra,  
+>  los cedros del Líbano que él plantó,
 
 ## Salmo 104:17
 
-> Donde las aves hacen sus nidos,  
->  Y la cigüeña, cuyo hogar está en los abetos.
+> en los que los pájaros hacen sus nidos,  
+>  y la cigüeña, que vive en los abetos.
 
 ## Salmo 104:18
 
-> Las altas montañas son para las cabras montesas;  
->  Los riscos son refugio para los damanes.
+> Los montes altos son de las cabras salvajes;  
+>  entre las rocas se esconden los damanes.
 
 ---
 
 ## Salmo 104:19
 
-> Creó la luna para marcar las estaciones;  
->  El sol conoce su lugar de ocaso.
+> Él hizo la luna para marcar las estaciones;  
+>  el sol sabe cuándo ponerse.
 
 ## Salmo 104:20
 
-> Traes la oscuridad y se hace noche,  
->  En la que se mueven todas las criaturas del bosque.
+> Mandas la oscuridad y cae la noche,  
+>  y entonces salen a moverse todos los animales del bosque.
 
 ## Salmo 104:21
 
-> Los leones jóvenes rugen por su presa,  
->  Y buscan su sustento de Dios.
+> Los leones jóvenes rugen tras su presa y le piden a Dios su comida.
 
 ## Salmo 104:22
 
-> Cuando sale el sol, se retiran,  
->  Y se acuestan en sus guaridas.
+> Cuando amanece,  
+>  se retiran y se echan en sus cuevas.
 
 ## Salmo 104:23
 
-> El hombre sale a su trabajo Y a su labor hasta el atardecer.
+> Entonces la gente sale a trabajar y está en su tarea hasta la tarde.
 
 ---
 
 ## Salmo 104:24
 
-> ¡Señor, cuán numerosas son tus obras!  
->  Con sabiduría las has hecho todas;  
->  La tierra está llena de tus criaturas.
+> ¡Señor, qué cantidad de cosas has hecho!  
+>  Todas las hiciste con sabiduría;  
+>  la tierra está llena de tus criaturas.
 
 ## Salmo 104:25
 
-> Este es el mar, vasto y extenso,  
->  En el que hay incontables criaturas,  
->  Seres pequeños y grandes.
+> Ahí está el mar, enorme y sin fin,  
+>  donde hay criaturas sin cuento,  
+>  seres pequeños y grandes.
 
 ## Salmo 104:26
 
-> Los barcos navegan allí,  
->  Y Leviatán, que tú formaste para retozar en él.
+> Por él van y vienen los barcos,  
+>  y también Leviatán, que tú hiciste para que jugara en él.
 
 ---
 
 ## Salmo 104:27
 
-> Todos ellos dependen de ti Esperan que les des su alimento a su tiempo.
+> Todos ellos esperan de ti que les des la comida a su debido tiempo.
 
 ## Salmo 104:28
 
-> Les ofreces, lo recogen;  
->  Abres tu mano, se llenan de cosas buenas.
+> Tú se la das, y ellos la recogen;  
+>  abres la mano, y quedan satisfechos de cosas buenas.
 
 ## Salmo 104:29
 
-> Escondes tu rostro, se turban;  
->  Retiras su aliento,  
->  expiran Y vuelven a su polvo.
+> Si escondes tu rostro, se asustan;  
+>  si les quitas el aliento,  
+>  mueren y vuelven a ser polvo.
 
 ## Salmo 104:30
 
-> Envías tu Espíritu, son creados;  
->  Y renuevas la faz de la tierra.
+> Si envías tu Espíritu, cobran existencia;  
+>  así renuevas la superficie de la tierra.
 
 ---
 
 ## Salmo 104:31
 
-> Que la gloria del Señor dure para siempre;  
->  Que el Señor se deleite en sus creaciones;
+> ¡Que la gloria del Señor no se acabe nunca!  
+>  ¡Que el Señor disfrute de todo lo que creó!
 
 ## Salmo 104:32
 
-> Él observa la tierra, y tiembla;  
->  Toca las montañas, y humean.
+> Basta que mire la tierra para que tiemble;  
+>  basta que toque los montes para que echen humo.
 
 ---
 
 ## Salmo 104:33
 
-> Cantaré al Señor durante mi vida;  
->  Cantaré alabanzas a mi Dios mientras exista.
+> Cantaré al Señor toda mi vida;  
+>  mientras yo exista, cantaré alabanzas a mi Dios.
 
 ## Salmo 104:34
 
-> Que mi meditación le sea agradable;  
->  En cuanto a mí, encontraré gozo en el Señor.
+> Ojalá le agraden mis pensamientos; yo,  
+>  por mi parte, encontraré mi alegría en el Señor.
 
 ## Salmo 104:35
 
-> Que los pecadores desaparezcan de la tierra Y que los malvados no existan más.  
->  Bendice,  
->  alma mía, al Señor.  
+> Que los pecadores desaparezcan de la tierra y que los malvados dejen de existir.  
+>  Alma mía,  
+>  alaba al Señor.  
 >  ¡Alabado sea el Señor!

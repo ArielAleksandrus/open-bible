@@ -2,11 +2,11 @@
 
 ## 1 Corintios 5:1
 
-Se informa en realidad que hay inmoralidad sexual entre vosotros, y una inmoralidad sexual de tal clase que ni siquiera existe entre los gentiles, a saber, que alguien tiene la mujer de su padre.
+De hecho, se oye decir que hay inmoralidad sexual entre vosotros, y una inmoralidad sexual de tal clase que ni siquiera existe entre los gentiles, a saber, que alguien tiene la mujer de su padre.
 
 ## 1 Corintios 5:2
 
-Os habéis vuelto orgullosos y no habéis lamentado en su lugar, para que el que ha hecho esta acción sea removido de en medio de vosotros.
+Os habéis vuelto orgullosos, en vez de lamentarlo, para que el que ha hecho esta acción sea quitado de en medio de vosotros.
 
 ## 1 Corintios 5:3
 
@@ -30,7 +30,7 @@ Quitad la vieja levadura para que seáis una nueva masa, así como de hecho sois
 
 ## 1 Corintios 5:8
 
-Por tanto, celebremos la fiesta, no con la vieja levadura, ni con la levadura de malicia y maldad, sino con el pan sin levadura de sinceridad y verdad.
+Así que celebremos la fiesta, no con la levadura vieja, la de la maldad y la perversidad, sino con el pan sin levadura, que es la sinceridad y la verdad.
 
 ## 1 Corintios 5:9
 
@@ -42,7 +42,7 @@ no me refería en absoluto a las personas sexualmente inmorales de este mundo, n
 
 ## 1 Corintios 5:11
 
-Pero en realidad, os escribí que no os asociéis con ningún supuesto hermano si es una persona sexualmente inmoral, o avaro, o idólatra, o verbalmente abusivo, o borracho, o estafador; ni siquiera comer con tal persona.
+Pero en realidad, os escribí que no os asociarais con ningún supuesto hermano si es una persona sexualmente inmoral, o avaro, o idólatra, o insultador, o borracho, o estafador; con tal persona ni siquiera comáis.
 
 ## 1 Corintios 5:12
 

@@ -28,7 +28,7 @@ Me dijo: “Estas aguas fluyen hacia la región oriental y descienden al Arabá,
 Todo ser viviente que se mueva dondequiera que fluya el río vivirá. Habrá una gran abundancia de peces, porque estas aguas llegan allí y hacen que el agua salada se vuelva dulce; así que todo vivirá dondequiera que vaya el río.
 
 ## Ezequiel 47:10
-Los pescadores estarán a lo largo de la orilla; desde En Gadi hasta En Eglaim habrá lugares para tender redes. Los peces serán de muchas clases, como los peces del Gran Mar.
+Los pescadores estarán a lo largo de la orilla; desde Engadi hasta En Eglaim habrá lugares para tender redes. Los peces serán de muchas clases, como los peces del Gran Mar.
 
 ## Ezequiel 47:11
 Sin embargo, los pantanos y marismas quedarán salados; se reservarán para la sal.
@@ -37,7 +37,7 @@ Sin embargo, los pantanos y marismas quedarán salados; se reservarán para la s
 En las orillas del río, a ambos lados, crecerán toda clase de árboles para alimento. Sus hojas no se marchitarán, ni su fruto fallará. Darán fruto cada mes porque el agua del santuario fluye hacia ellos. Su fruto será para alimento y sus hojas para curación.”
 
 ## Ezequiel 47:13
-Así dice el Señor Soberano: “Estos son los límites por los cuales dividiréis la tierra entre las doce tribus de Israel, con José recibiendo dos porciones.
+Así dice el Señor Dios: “Estos son los límites por los cuales dividiréis la tierra entre las doce tribus de Israel, con José recibiendo dos porciones.
 
 ## Ezequiel 47:14
 Debéis dividirla equitativamente entre ellos, porque juré darla a vuestros antepasados, y esta tierra se convertirá en vuestra herencia.
@@ -67,4 +67,4 @@ El límite se extenderá desde el mar hasta Hazar Enán, en la frontera de Damas
 Debéis asignarla como herencia para vosotros y para los extranjeros que residen entre vosotros que tienen hijos. Debéis considerarlos como israelitas nativos; compartirán una herencia con vosotros entre las tribus de Israel.
 
 ## Ezequiel 47:23
-En la tribu en la que resida un extranjero, allí le concederéis su herencia,” declara el Señor Soberano.
+En la tribu en la que resida un extranjero, allí le concederéis su herencia,” declara el Señor Dios.

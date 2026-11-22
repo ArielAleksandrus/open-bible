@@ -42,7 +42,7 @@ Pero cuando llegue lo completo, lo que es parcial desaparecerá.
 
 ## 1 Corintios 13:11
 
-Cuando era niño, hablaba como niño, pensaba como niño, razonaba como niño; cuando me hice adulto, dejé atrás las cosas de niño.
+Cuando era niño, hablaba, pensaba y razonaba como un niño; cuando me hice adulto, dejé atrás las cosas propias de la niñez.
 
 ## 1 Corintios 13:12
 
@@ -50,4 +50,4 @@ Porque ahora vemos solo un reflejo como en un espejo, entonces veremos cara a ca
 
 ## 1 Corintios 13:13
 
-Y ahora permanecen estos tres: la fe, la esperanza y el amor. Pero el mayor de ellos es el amor.
+Ahora quedan estas tres cosas: la fe, la esperanza y el amor. Pero la más grande de las tres es el amor.

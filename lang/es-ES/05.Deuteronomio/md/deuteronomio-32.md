@@ -118,7 +118,7 @@ Si poseyeran sabiduría, comprenderían esto; discernirían su destino final.
 
 ## Deuteronomio 32:30
 
-¿Cómo podría uno haber perseguido a mil, y dos haber puesto en fuga a diez mil, si su Roca no los hubiera entregado, y el Señor no los hubiera entregado?
+¿Cómo podría uno haber perseguido a mil, y dos haber puesto en fuga a diez mil, si su Roca no los hubiera abandonado, y el Señor no los hubiera entregado?
 
 ## Deuteronomio 32:31
 
@@ -182,11 +182,11 @@ Y así, cuando Moisés terminó de decir estas palabras a todo Israel:
 
 ## Deuteronomio 32:46
 
-les dijo: “Tomen a pecho todas las palabras con las que os advierto hoy, para que las instruyáis a vuestros hijos, para que tengan cuidado de seguir todas las palabras de esta ley.
+les dijo: “Tomad a pecho todas las palabras con las que os advierto hoy, para que las enseñéis a vuestros hijos, para que tengan cuidado de seguir todas las palabras de esta ley.
 
 ## Deuteronomio 32:47
 
-Porque no es una palabra vacía para vosotros, sino vuestra propia vida, y por esta palabra viviréis mucho tiempo en la tierra que estáis cruzando el Jordán para poseer.”
+Porque no es una palabra vacía para vosotros, sino vuestra propia vida, y por esta palabra viviréis mucho tiempo en la tierra que vais a poseer al otro lado del Jordán.”
 
 ## Deuteronomio 32:48
 
@@ -202,7 +202,7 @@ Y morirás en el monte al que asciendes y serás reunido a tu pueblo, tal como A
 
 ## Deuteronomio 32:51
 
-porque rompiste la fe conmigo en medio del pueblo de Israel en las aguas de Meribá-Cades, en el desierto de Zin, porque no me santificaste en medio del pueblo de Israel.
+porque me fuiste infiel en medio del pueblo de Israel en las aguas de Meribá-Cades, en el desierto de Zin, porque no me santificaste en medio del pueblo de Israel.
 
 ## Deuteronomio 32:52
 

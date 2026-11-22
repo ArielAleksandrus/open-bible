@@ -52,7 +52,7 @@ Cuando los israelitas oyeron esto, toda la asamblea se reunió en Silo para ir a
 
 ## Josué 22:13
 
-Así que los israelitas enviaron a Fineas, hijo de Eleazar, el sacerdote, a la tierra de Galaad —a los rubenitas, gaditas y la media tribu de Manasés—.
+Así que los israelitas enviaron a Finees, hijo de Eleazar, el sacerdote, a la tierra de Galaad —a los rubenitas, gaditas y la media tribu de Manasés—.
 
 ## Josué 22:14
 
@@ -110,7 +110,7 @@ Por eso dijimos: ‘Preparémonos y construyamos un altar, pero no para holocaus
 
 ## Josué 22:27
 
-En cambio, será un testigo entre nosotros y vosotros y las generaciones que sigan, de que adoraremos al Señor en su santuario con nuestros holocaustos, sacrificios y ofrendas de comunión. Entonces, en el futuro, vuestros descendientes no podrán decir a los nuestros: ‘No tenéis parte en el Señor.’
+En cambio, será un testigo entre nosotros y vosotros y las generaciones que sigan, de que adoraremos al Señor en su santuario con nuestros holocaustos, sacrificios y ofrendas de paz. Entonces, en el futuro, vuestros descendientes no podrán decir a los nuestros: ‘No tenéis parte en el Señor.’
 
 ## Josué 22:28
 
@@ -122,17 +122,17 @@ Lejos de nosotros rebelarnos contra el Señor y apartarnos de Él hoy construyen
 
 ## Josué 22:30
 
-Cuando Fineas el sacerdote y los líderes de la comunidad —los jefes de los clanes de los israelitas— oyeron lo que los rubenitas, gaditas y Manasés tenían que decir, se complacieron.
+Cuando Finees el sacerdote y los líderes de la comunidad —los jefes de los clanes de los israelitas— oyeron lo que los rubenitas, gaditas y Manasés tenían que decir, se complacieron.
 
 ## Josué 22:31
 
-Y Fineas, hijo de Eleazar, el sacerdote, dijo a los rubenitas, gaditas y Manasés: “Hoy sabemos que el Señor está con nosotros, porque no habéis sido infieles al Señor en este asunto. Ahora habéis salvado a los israelitas de la mano del Señor.”
+Y Finees, hijo de Eleazar, el sacerdote, dijo a los rubenitas, gaditas y Manasés: “Hoy sabemos que el Señor está con nosotros, porque no habéis sido infieles al Señor en este asunto. Ahora habéis salvado a los israelitas de la mano del Señor.”
 
 ---
 
 ## Josué 22:32
 
-Entonces Fineas, hijo de Eleazar, el sacerdote, y los líderes regresaron a Canaán de su reunión con los rubenitas y gaditas en Galaad y reportaron a los israelitas.
+Entonces Finees, hijo de Eleazar, el sacerdote, y los líderes regresaron a Canaán de su reunión con los rubenitas y gaditas en Galaad y reportaron a los israelitas.
 
 ## Josué 22:33
 

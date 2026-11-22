@@ -77,7 +77,7 @@ Por lo tanto, Él tiene misericordia de quien quiere tener misericordia, y endur
 
 ## Romanos 9:19
 
-Entonces podrías preguntar: “¿Por qué todavía encuentra culpa? Porque ¿quién puede oponerse a su voluntad?”
+Entonces podrías preguntar: “¿Por qué todavía nos culpa? Porque ¿quién puede oponerse a su voluntad?”
 
 ## Romanos 9:20
 
@@ -89,11 +89,11 @@ Pero ¿quién eres tú, simple humano, para replicar a Dios? ¿Dirá lo formado 
 
 ## Romanos 9:22
 
-¿Qué si Dios, queriendo mostrar su ira y hacer conocer su poder, soportó con mucha paciencia los objetos de su ira preparados para destrucción?
+¿Y qué si Dios, queriendo mostrar su ira y hacer conocer su poder, soportó con mucha paciencia los objetos de su ira preparados para destrucción?
 
 ## Romanos 9:23
 
-¿Qué si lo hizo para dar a conocer las riquezas de su gloria sobre los objetos de su misericordia, a quienes preparó de antemano para gloria,
+¿Y qué si lo hizo para dar a conocer las riquezas de su gloria sobre los objetos de su misericordia, a quienes preparó de antemano para gloria,
 
 ## Romanos 9:24
 
@@ -128,7 +128,7 @@ Isaías declara respecto a Israel:
 
 Y tal como dijo Isaías anteriormente:
 
->  “Si el Señor Todopoderoso no nos hubiera dejado descendientes,
+>  “Si el Señor de los ejércitos no nos hubiera dejado descendientes,
 >  habríamos llegado a ser como Sodoma,
 >  y habríamos sido como Gomorra.
 > ”
@@ -149,6 +149,6 @@ pero Israel, en busca de una ley de justicia, no alcanzó esa ley.
 
 como dice la Escritura:
 
->  “Miren, pongo en Sion una piedra que hace tropezar a la gente y una roca que los hace caer,
+>  “Mirad, pongo en Sion una piedra que hace tropezar a la gente y una roca que los hace caer,
 >  y el que cree en Él nunca será avergonzado.
 > ”

@@ -2,18 +2,18 @@
 
 ## Job 40:1
 
-Entonces el Señor se dirigió a Job,
+Entonces el Señor se dirigió a Job:
 
 ## Job 40:2
 
-> “¿Contenderá el que encuentra falta con el Todopoderoso?
+> “¿Contenderá con el Todopoderoso el que le busca faltas?
 >  Que responda el que desafía a Dios.”
 
 ---
 
 ## Job 40:3
 
-Job respondió al Señor, y dijo,
+Job respondió al Señor y dijo:
 
 ## Job 40:4
 
@@ -29,7 +29,7 @@ Job respondió al Señor, y dijo,
 
 ## Job 40:6
 
-Entonces el Señor habló a Job desde el torbellino,
+Entonces el Señor habló a Job desde el torbellino:
 
 ## Job 40:7
 
@@ -70,14 +70,14 @@ Entonces el Señor habló a Job desde el torbellino,
 
 ## Job 40:14
 
-> Entonces te reconoceré que tu propia mano derecha puede librarte.
+> Entonces yo también reconoceré que tu propia mano derecha puede librarte.
 
 ---
 
 ## Job 40:15
 
-> He aquí, Behemot, que hice junto contigo;
->  come hierba como un buey.
+> Mira a Behemot, al que hice como te hice a ti;
+>  se alimenta de hierba como un buey.
 
 ## Job 40:16
 
@@ -96,7 +96,7 @@ Entonces el Señor habló a Job desde el torbellino,
 
 ## Job 40:19
 
-> Es el primero de los trabajos de Dios;
+> Es la primera de las obras de Dios;
 >  su Hacedor puede acercarse a él con Su espada.
 
 ## Job 40:20

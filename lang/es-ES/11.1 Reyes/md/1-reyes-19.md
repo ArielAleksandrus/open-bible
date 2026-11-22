@@ -21,7 +21,7 @@ Elías, lleno de miedo, se levantó y huyó para salvar su vida,
 
 Pero él mismo se internó un día de camino en el desierto,  
  y llegó y se sentó bajo un arbusto de retama;  
- y pidió que se muriera, y dijo,  
+ y deseó morirse, y dijo,  
  “¡Basta ya! Ahora, Señor, quita mi vida, porque no soy mejor que mis padres.”
 
 ## 1 Reyes 19:5
@@ -64,18 +64,18 @@ Luego llegó a una cueva y pasó la noche allí;
 
 ## 1 Reyes 19:11
 
-Entonces Él dijo,  
- “Sal y ponte en el monte delante del Señor.”  
- Y he aquí, el Señor pasaba!  
- Y un gran y poderoso viento desgarraba los montes y rompía las peñas delante del Señor;  
+Entonces Él dijo:  
+ “Sal y quédate de pie en el monte delante del Señor.  
+” ¡Y mira, el Señor iba pasando!  
+ Un viento fuerte y violento arrancaba los montes y hacía pedazos las rocas delante del Señor,  
  pero el Señor no estaba en el viento.  
- Y tras el viento,  
- un terremoto; pero el Señor no estaba en el terremoto.
+ Después del viento vino un terremoto,  
+ pero el Señor no estaba en el terremoto.
 
 ## 1 Reyes 19:12
 
-Y tras el terremoto, un fuego; pero el Señor no estaba en el fuego.  
- Y tras el fuego, el sonido de un susurro apacible.
+Después del terremoto vino un fuego, pero el Señor no estaba en el fuego.  
+ Y después del fuego se oyó el sonido de un susurro suave.
 
 ## 1 Reyes 19:13
 

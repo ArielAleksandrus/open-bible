@@ -6,7 +6,7 @@ Hijo mío, si aceptas mis palabras y atesoras mis mandamientos dentro de ti,
 
 ## Proverbios 2:2
 
-Entonces escucha atentamente la sabiduría y abre tu corazón al entendimiento—
+prestando oído atento a la sabiduría y abriendo tu corazón al entendimiento—
 
 ## Proverbios 2:3
 
@@ -14,7 +14,7 @@ En verdad, si clamas por discernimiento y alzas tu voz por entendimiento,
 
 ## Proverbios 2:4
 
-Si lo buscas como a la plata y lo escudriñas como a un tesoro escondido,
+si la buscas como quien busca plata y la persigues como a un tesoro escondido,
 
 ## Proverbios 2:5
 
@@ -26,7 +26,7 @@ Porque el Señor concede sabiduría; de su boca fluyen conocimiento y entendimie
 
 ## Proverbios 2:7
 
-Él reserva sabiduría sana para los rectos; es un escudo para los que caminan con integridad,
+Él guarda la verdadera sabiduría para los que hacen lo recto; protege como un escudo a los que viven sin tacha,
 
 ## Proverbios 2:8
 
@@ -36,7 +36,7 @@ Guardando las sendas de la justicia y vigilando el camino de sus fieles.
 
 ## Proverbios 2:9
 
-Entonces percibirás lo que es correcto, justo y equitativo —cada buen camino—.
+Entonces percibirás lo que es correcto, justo y equitativo —todo buen camino—.
 
 ## Proverbios 2:10
 
@@ -62,7 +62,7 @@ Que se deleitan en hacer el mal y se regocijan en la perversidad del mal,
 
 ## Proverbios 2:15
 
-Cuyos caminos son torcidos y son engañosos en sus acciones.
+Cuyos caminos son torcidos y que obran con engaño.
 
 ---
 
@@ -72,7 +72,7 @@ Para salvarte de la mujer adúltera, de la mujer extranjera que halaga con sus p
 
 ## Proverbios 2:17
 
-Que deja al compañero de su juventud y olvida el pacto de su Dios.
+que dejó al compañero de su juventud y se olvidó del pacto de su Dios.
 
 ## Proverbios 2:18
 
@@ -86,11 +86,11 @@ Ninguno de los que van a ella regresa, ni alcanzan las sendas de la vida.
 
 ## Proverbios 2:20
 
-Así caminarás en los caminos de la gente buena y seguirás las sendas de los justos.
+Así andarás por donde anda la gente buena y no te saldrás del camino de los justos.
 
 ## Proverbios 2:21
 
-Porque los rectos habitarán la tierra, y los íntegros permanecerán en ella;
+Porque los que obran con rectitud vivirán en la tierra, y los que no tienen tacha se quedarán en ella;
 
 ## Proverbios 2:22
 

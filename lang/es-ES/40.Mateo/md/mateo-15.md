@@ -10,7 +10,7 @@ Entonces algunos fariseos y escribas vinieron a Jesús desde Jerusalén y le pre
 
 ## Mateo 15:3
 
-Jesús respondió: “¿Y por qué ustedes quebrantan el mandamiento de Dios por causa de su tradición?
+Jesús respondió: “¿Y por qué vosotros quebrantáis el mandamiento de Dios por causa de vuestra tradición?
 
 ## Mateo 15:4
 
@@ -18,15 +18,15 @@ Porque Dios dijo: ‘Honra a tu padre y a tu madre,’ y, ‘Cualquiera que habl
 
 ## Mateo 15:5
 
-Pero ustedes dicen que si alguien declara a su padre o madre: ‘Cualquier ayuda que podrías haber recibido de mí es una ofrenda a Dios,’
+Pero vosotros decís que si alguien declara a su padre o madre: ‘Cualquier ayuda que podrías haber recibido de mí es una ofrenda a Dios,’
 
 ## Mateo 15:6
 
-no están obligados a cumplir su deber con su padre o madre con ello. Así ustedes invalidan la palabra de Dios por causa de su tradición.
+no está obligado a cumplir su deber con su padre o madre con ello. Así vosotros invalidáis la palabra de Dios por causa de vuestra tradición.
 
 ## Mateo 15:7
 
-¡Hipócritas! Isaías tenía razón cuando profetizó sobre ustedes:
+¡Hipócritas! Isaías tenía razón cuando profetizó sobre vosotros:
 
 ## Mateo 15:8
 
@@ -36,17 +36,17 @@ no están obligados a cumplir su deber con su padre o madre con ello. Así usted
 ## Mateo 15:9
 
 > Su adoración es en vano;
->  sus enseñanzas no son más que instrucciones humanas.’
+>  sus enseñanzas no son más que instrucciones humanas.’”
 
 ---
 
 ## Mateo 15:10
 
-Jesús reunió a la multitud y dijo: “Escuchen y entiendan.
+Jesús reunió a la multitud y dijo: “Escuchad y entended.
 
 ## Mateo 15:11
 
-No es lo que entra en la boca lo que contamina a una persona, sino lo que sale de la boca, esto los contamina.”
+Lo que contamina a una persona no es lo que entra por la boca, sino lo que sale de ella; eso es lo que la contamina.”
 
 ---
 
@@ -60,7 +60,7 @@ Entonces los discípulos se acercaron a él y le dijeron: “¿Sabes que los far
 
 ## Mateo 15:14
 
-Déjenlos; son guías ciegos. Si un ciego guía a otro ciego, ambos caerán en un hoyo.”
+Dejadlos; son guías ciegos. Si un ciego guía a otro ciego, ambos caerán en un hoyo.”
 
 ---
 
@@ -70,11 +70,11 @@ Pedro dijo: “Ayúdanos a entender la parábola.”
 
 ## Mateo 15:16
 
-“¿Todavía les falta entendimiento?” les preguntó Jesús.
+“¿Todavía os falta entendimiento?” les preguntó Jesús.
 
 ## Mateo 15:17
 
-“¿No ven que todo lo que entra en la boca va al estómago y luego se elimina?
+“¿No veis que todo lo que entra en la boca va al estómago y luego se elimina?
 
 ## Mateo 15:18
 
@@ -86,7 +86,7 @@ Porque del corazón salen malos pensamientos: actos de asesinato, adulterio, inm
 
 ## Mateo 15:20
 
-Estas son las cosas que realmente contaminan a una persona; sin embargo, comer con las manos sin lavar no los hace impuros.”
+Estas son las cosas que realmente contaminan a una persona; sin embargo, comer con las manos sin lavar no la hace impura.”
 
 ---
 
@@ -148,7 +148,7 @@ Sus discípulos respondieron: “¿Dónde podríamos conseguir suficiente pan en
 
 ## Mateo 15:34
 
-“¿Cuántos panes tienen?” preguntó Jesús. “Siete,” respondieron, “y unos pocos peces pequeños.”
+“¿Cuántos panes tenéis?” preguntó Jesús. “Siete,” respondieron, “y unos pocos peces pequeños.”
 
 ## Mateo 15:35
 

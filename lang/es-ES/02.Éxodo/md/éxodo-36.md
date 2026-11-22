@@ -2,7 +2,7 @@
 
 ## Éxodo 36:1
 
-Bezalel, Oholiab y todos los individuos hábiles a quienes el Señor ha impartido sabiduría y entendimiento para ejecutar toda la obra de construcción del santuario, llevarán a cabo el trabajo de acuerdo con todo lo que el Señor ha mandado.
+Bezalel, Oholiab y todos los individuos hábiles a quienes el Señor ha impartido sabiduría y entendimiento para ejecutar toda la obra de construcción del santuario, llevarán a cabo el trabajo de acuerdo con todo lo que el Señor ha mandado.”
 
 ## Éxodo 36:2
 
@@ -18,11 +18,11 @@ Todos los trabajadores hábiles que participaban en la obra del santuario dejaro
 
 ## Éxodo 36:5
 
-y le informaron a Moisés: "El pueblo está trayendo mucho más de lo necesario para la obra que el Señor nos ha mandado hacer."
+y le informaron a Moisés: “El pueblo está trayendo mucho más de lo necesario para la obra que el Señor nos ha mandado hacer.”
 
 ## Éxodo 36:6
 
-Entonces Moisés emitió una orden y envió una proclamación por todo el campamento: "Ningún hombre o mujer debe hacer más ofrendas para el santuario." Así, se impidió al pueblo traer más.
+Entonces Moisés emitió una orden y envió una proclamación por todo el campamento: “Ningún hombre o mujer debe hacer más ofrendas para el santuario.” Así, se impidió al pueblo traer más.
 
 ## Éxodo 36:7
 

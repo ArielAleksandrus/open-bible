@@ -22,7 +22,7 @@ Recibirás bendiciones en tus entradas y salidas.
 El Señor hará que tus enemigos que se levanten contra ti sean derrotados delante de ti. Vendrán contra ti por un camino, pero huirán de ti por siete.
 
 ## Deuteronomio 28:8
-El Señor ordenará una bendición sobre tus graneros y sobre todo lo que pongas tu mano, y te bendecirá en la tierra que Él te da.
+El Señor ordenará una bendición sobre tus graneros y sobre todo aquello en que pongas tu mano, y te bendecirá en la tierra que Él te da.
 
 ## Deuteronomio 28:9
 El Señor te establecerá como Su pueblo santo, como te juró, si guardas los mandamientos del Señor tu Dios y andas en Sus caminos.
@@ -61,7 +61,7 @@ Encontrarás maldiciones en tus entradas y salidas.
 El Señor enviará sobre ti maldiciones, confusión y reprensión en todo lo que emprendas hacer, hasta que seas destruido y llegues a una ruina repentina a causa del mal que has hecho al abandonarlo.
 
 ## Deuteronomio 28:21
-El Señor te afligirá con enfermedades hasta que te haya eliminado de la tierra que estás entrando para poseer.
+El Señor te afligirá con enfermedades hasta que te haya eliminado de la tierra en la que vas a entrar para poseerla.
 
 ## Deuteronomio 28:22
 El Señor te golpeará con enfermedad consumidora, inflamación, fiebre, calor febril, tizón y moho, que te afligirán hasta que perezcas.
@@ -166,10 +166,10 @@ Incluso el hombre más amable y sensible entre vosotros perderá la compasión p
 y se negará a compartir cualquier parte de la carne de sus hijos que esté consumiendo. Será todo lo que le quede debido a la dificultad que tu enemigo te impondrá durante el asedio de todas tus ciudades.
 
 ## Deuteronomio 28:56
-La mujer más amable y sensible entre vosotros —tan delicada y tierna que no se atrevería a tocar el suelo con la planta de su pie— envidiará al esposo que ama y a su propio hijo o hija
+La mujer más amable y sensible entre vosotros —tan delicada y tierna que no se atrevería a tocar el suelo con la planta de su pie— negará al esposo que ama y a su propio hijo o hija
 
 ## Deuteronomio 28:57
-el posparto de su vientre y los hijos que da a luz. En su extrema necesidad, tiene la intención de consumirlos en secreto debido a la dificultad que tu enemigo te impondrá durante el asedio de tus ciudades.
+la placenta que sale de su vientre y los hijos que da a luz. En su extrema necesidad, tiene la intención de consumirlos en secreto debido a la dificultad que tu enemigo te impondrá durante el asedio de tus ciudades.
 
 ## Deuteronomio 28:58
 Si no sigues cuidadosamente todas las palabras de esta ley, que están escritas en este libro, y no tienes reverencia por este nombre glorioso y temible —el Señor tu Dios—
@@ -187,7 +187,7 @@ El Señor también traerá sobre ti toda clase de enfermedades y desastres no re
 Tú que eras tan numeroso como las estrellas del cielo quedarás con solo unos pocos, porque no obedeciste al Señor tu Dios.
 
 ## Deuteronomio 28:63
-Así como al Señor le agradó hacerte prosperar y aumentar en número, así le agradará llevarte a la ruina y destrucción. Serás arrancado de la tierra que estás entrando para poseer.
+Así como al Señor le agradó hacerte prosperar y aumentar en número, así le agradará llevarte a la ruina y destrucción. Serás arrancado de la tierra en la que vas a entrar para poseerla.
 
 ## Deuteronomio 28:64
 Entonces el Señor te dispersará entre todas las naciones, de un extremo de la tierra al otro. Allí servirás a otros dioses —dioses de madera y piedra, que ni tú ni tus antepasados conocieron—.

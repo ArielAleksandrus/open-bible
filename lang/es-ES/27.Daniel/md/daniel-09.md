@@ -79,4 +79,4 @@ Sabe y entiende esto: Desde la emisión del decreto para restaurar y reconstruir
 Después de las sesenta y dos ‘semanas’, el Ungido será cortado y no tendrá nada. El pueblo del gobernante que ha de venir destruirá la ciudad y el santuario. El fin vendrá como una inundación; la guerra continuará hasta el fin, y las desolaciones han sido decretadas.
 
 ## Daniel 9:27
-Él hará un firme acuerdo con muchos por una ‘semana’. En la mitad de la ‘semana’, pondrá fin al sacrificio y la ofrenda. Y en el templo, establecerá una abominación que causa desolación, hasta que el fin que está decretado sea derramado sobre él.
+Él hará un firme acuerdo con muchos por una ‘semana’. En la mitad de la ‘semana’, pondrá fin al sacrificio y la ofrenda. Y en el templo, establecerá una abominación que causa desolación, hasta que el fin que está decretado sea derramado sobre él.”

@@ -2,109 +2,107 @@
 
 ## Salmo 116:1
 
-> Amo al Señor,  
->  porque Él escucha Mi voz y mis súplicas.
+> Yo amo al Señor,  
+>  porque Él oye mi voz cuando le suplico.
 
 ## Salmo 116:2
 
-> Porque Él ha inclinado su oído hacia mí,  
->  Por eso lo invocaré todos mis días.
+> Ya que me ha prestado oído,  
+>  lo llamaré todos los días de mi vida.
 
 ---
 
 ## Salmo 116:3
 
-> Los lazos de la muerte me rodearon Y los terrores del sepulcro se apoderaron de mí;  
->  Encontré angustia y tristeza.
+> Me tenían atrapado las trampas de la muerte, y los horrores de la tumba me alcanzaron;  
+>  me encontré con angustia y dolor.
 
 ## Salmo 116:4
 
-> Entonces invoqué el nombre del Señor:  
->  “Por favor, Señor, preserva mi vida.”
+> Entonces clamé al nombre del Señor:  
+>  “¡Te lo ruego, Señor, salva mi vida!”
 
 ---
 
 ## Salmo 116:5
 
-> El Señor es clemente y justo;  
->  En verdad, nuestro Dios es compasivo.
+> El Señor es bondadoso y justo;  
+>  sí, nuestro Dios está lleno de compasión.
 
 ## Salmo 116:6
 
-> El Señor protege a los de corazón sencillo;  
->  Fui abatido, y Él me libró.
+> El Señor cuida a la gente sencilla;  
+>  yo estaba hundido, y Él me salvó.
 
 ---
 
 ## Salmo 116:7
 
-> Vuelve a tu paz, alma mía,  
->  Porque el Señor ha sido generoso contigo.
+> Alma mía, vuelve a estar en paz,  
+>  porque el Señor ha sido generoso contigo.
 
 ## Salmo 116:8
 
-> Porque Tú has rescatado mi alma de la muerte,  
->  Mis ojos del llanto,  
->  Mis pies de tropezar.
+> Porque Tú has librado mi vida de la muerte,  
+>  has secado las lágrimas de mis ojos y has impedido que mis pies tropiecen.
 
 ## Salmo 116:9
 
-> Caminaré delante del Señor En la tierra de los vivientes.
+> Seguiré caminando delante del Señor en el mundo de los vivos.
 
 ---
 
 ## Salmo 116:10
 
-> Confié incluso cuando dije,  
+> Confié incluso cuando dije:  
 >  “Estoy muy afligido.”
 
 ## Salmo 116:11
 
-> Declaré en mi consternación,  
+> Declaré en mi consternación:  
 >  “Todos los hombres son engañosos.”
 
 ---
 
 ## Salmo 116:12
 
-> ¿Cómo puedo pagar al Señor Por toda su bondad hacia mí?
+> ¿Con qué le pagaré al Señor todo el bien que me ha hecho?
 
 ---
 
 ## Salmo 116:13
 
-> Levantaré la copa de la salvación,  
->  E invocaré el nombre del Señor.
+> Alzaré la copa de la salvación y clamaré al nombre del Señor.
 
 ## Salmo 116:14
 
-> Cumpliré mis promesas al Señor En la asamblea de su pueblo.
+> Cumpliré lo que le prometí al Señor, delante de todo Su pueblo reunido.
 
 ---
 
 ## Salmo 116:15
 
-> Preciosa a los ojos del Señor Es la muerte de sus fieles.
+> A los ojos del Señor, la partida de sus fieles es algo de gran valor.
 
 ## Salmo 116:16
 
-> Señor, verdaderamente soy tu siervo;  
->  Soy tu siervo, hijo de tu sierva,  
->  Tú me has liberado de mis cadenas.
+> Señor, de verdad soy tu siervo;  
+>  soy tu siervo, hijo de tu sierva;  
+>  Tú me has soltado de mis ataduras.
 
 ---
 
 ## Salmo 116:17
 
-> A ti ofreceré un sacrificio de acción de gracias,  
->  E invocaré el nombre del Señor.
+> Te ofreceré un sacrificio para darte gracias,  
+>  y clamaré al nombre del Señor.
 
 ## Salmo 116:18
 
-> Cumpliré mis promesas al Señor En la asamblea de su pueblo.
+> Cumpliré lo que le prometí al Señor, delante de todo Su pueblo reunido,
 
 ## Salmo 116:19
 
-> En los atrios de la casa del Señor,  
->  En medio de ti, Jerusalén.  
+> en los patios de la casa del Señor,  
+>  en medio de ti, Jerusalén.  
 >  ¡Alabado sea el Señor!

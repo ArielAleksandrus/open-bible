@@ -17,7 +17,7 @@ En el noveno día del cuarto mes, el hambre era severa en la ciudad,
 
 ## 2 Reyes 25:4
 
-Entonces la ciudad fue brecha,  
+Entonces se abrió una brecha en la ciudad,  
  y todos los hombres de guerra huyeron de noche por el camino de la puerta entre los dos muros junto al jardín del rey,  
  aunque los caldeos estaban alrededor de la ciudad.  
  Y se fueron por el camino del Arabá.
@@ -26,7 +26,7 @@ Entonces la ciudad fue brecha,
 
 Sin embargo, el ejército de los caldeos persiguió al rey,  
  y lo alcanzaron en las llanuras de Jericó,  
- y todo su ejército se dispersó de él.
+ y todo su ejército lo abandonó y se dispersó.
 
 ## 2 Reyes 25:6
 
@@ -137,8 +137,8 @@ Cuando todos los capitanes de las fuerzas, ellos y sus hombres,
  fueron a Gedalías en Mizpa,  
  a saber, Ismael hijo de Netanías,  
  Johanan hijo de Carea,  
- Seraías hijo de Tanhumet el Netofatita,  
- y Jaazanías hijo del Maacatita, ellos y sus hombres.
+ Seraías hijo de Tanhumet el netofatita,  
+ y Jaazanías hijo del maacatita, ellos y sus hombres.
 
 ## 2 Reyes 25:24
 
@@ -149,7 +149,7 @@ Entonces Gedalías les juró a ellos y a sus hombres y les dijo,
 ## 2 Reyes 25:25
 
 Pero en el séptimo mes, Ismael hijo de Netanías, hijo de Elisama,  
- de la familia real, vino con diez hombres y mataron a Gedalías de modo que murió,  
+ de la familia real, vino con diez hombres e hirieron a Gedalías, y murió,  
  junto con los judíos y los caldeos que estaban con él en Mizpa.
 
 ## 2 Reyes 25:26

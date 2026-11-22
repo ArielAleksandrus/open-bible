@@ -63,7 +63,7 @@ Y ahora me estás diciendo,
 ## 1 Reyes 18:12
 
 Y sucederá que cuando te deje,  
- el Espíritu del Señor te llevará donde no sé,  
+ el Espíritu del Señor te llevará a donde yo no sepa,  
  así que cuando venga y le diga a Acab y no te encuentre, me matará,  
  aunque yo tu siervo he reverenciado al Señor desde mi juventud.
 
@@ -243,7 +243,7 @@ Entonces Elías les dijo,
 ## 1 Reyes 18:41
 
 Elías entonces dijo a Acab,  
- “Sube, come y bebe; porque hay el sonido de una gran tormenta de lluvia.”
+ “Sube, come y bebe; porque ya se oye el ruido de una gran lluvia.”
 
 ## 1 Reyes 18:42
 
@@ -272,5 +272,5 @@ Mientras tanto, el cielo se oscureció con nubes y viento,
 
 ## 1 Reyes 18:46
 
-Entonces la mano del Señor estaba sobre Elías,  
+Entonces la mano del Señor vino sobre Elías,  
  y se ciñó su manto y corrió delante de Acab hasta Jezreel.

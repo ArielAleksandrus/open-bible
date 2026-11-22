@@ -10,7 +10,7 @@ Un mensaje del Señor vino a mí:
 
 ## Ezequiel 16:3
 
-y di, ‘Esto es lo que dice el Señor Soberano a Jerusalén: Tu origen y nacimiento fueron en la tierra de los cananeos; tu padre era un amorreo y tu madre una hitita.
+y di, ‘Esto es lo que dice el Señor Dios a Jerusalén: Tu origen y nacimiento fueron en la tierra de los cananeos; tu padre era un amorreo y tu madre una hitita.
 
 ## Ezequiel 16:4
 
@@ -30,7 +30,7 @@ Te hice crecer como una planta del campo. Creciste y te desarrollaste, alcanzand
 
 ## Ezequiel 16:8
 
-“‘Más tarde pasé junto a ti, y cuando te vi, estabas en la edad del amor. Extendí el borde de mi manto sobre ti y cubrí tu desnudez. Te di mi juramento solemne y entré en un pacto contigo, declara el Señor Soberano, y te convertiste en mía.
+“‘Más tarde pasé junto a ti, y cuando te vi, estabas en la edad del amor. Extendí el borde de mi manto sobre ti y cubrí tu desnudez. Te di mi juramento solemne y entré en un pacto contigo, declara el Señor Dios, y te convertiste en mía.
 
 ## Ezequiel 16:9
 
@@ -50,11 +50,11 @@ y coloqué un anillo en tu nariz, pendientes en tus orejas, y una hermosa corona
 
 ## Ezequiel 16:13
 
-Así fuiste adornada con oro y plata; tus ropas eran de lino fino, seda y tela bordada. Tu comida era flor de harina, miel y aceite de oliva. Te hiciste extremadamente hermosa y avanzaste a la realeza.
+Así fuiste adornada con oro y plata; tus ropas eran de lino fino, seda y tela bordada. Tu comida era flor de harina, miel y aceite de oliva. Te hiciste extremadamente hermosa y llegaste a ser reina.
 
 ## Ezequiel 16:14
 
-Tu fama se extendió entre las naciones a causa de tu belleza, porque era perfecta debido al esplendor que te había otorgado, declara el Señor Soberano.
+Tu fama se extendió entre las naciones a causa de tu belleza, porque era perfecta debido al esplendor que te había otorgado, declara el Señor Dios.
 
 ## Ezequiel 16:15
 
@@ -74,7 +74,7 @@ Y tomaste tus ropas bordadas para adornarlas, y ofreciste mi aceite e incienso d
 
 ## Ezequiel 16:19
 
-También la comida que te proporcioné —la flor de harina, el aceite de oliva y la miel que te di para comer— la ofreciste como aroma suave delante de ellas. Eso es lo que pasó, declara el Señor Soberano.
+También la comida que te proporcioné —la flor de harina, el aceite de oliva y la miel que te di para comer— la ofreciste como aroma suave delante de ellas. Eso es lo que pasó, declara el Señor Dios.
 
 ## Ezequiel 16:20
 
@@ -90,7 +90,7 @@ En todas tus prácticas abominables y tu prostitución, no recordaste los días 
 
 ## Ezequiel 16:23
 
-“‘¡Ay! ¡Ay de ti, declara el Señor Soberano. Además de toda tu maldad,
+“‘¡Ay! ¡Ay de ti!, declara el Señor Dios. Además de toda tu maldad,
 
 ## Ezequiel 16:24
 
@@ -98,7 +98,7 @@ construiste un montículo para ti y hiciste un lugar alto en cada plaza pública
 
 ## Ezequiel 16:25
 
-En cada esquina de la calle, construiste tus lugares altos y degradabas tu belleza, abriendo tus piernas con creciente promiscuidad a cada transeúnte.
+En cada esquina de la calle, construiste tus lugares altos y degradaste tu belleza, abriendo tus piernas con creciente promiscuidad a cada transeúnte.
 
 ## Ezequiel 16:26
 
@@ -118,7 +118,7 @@ Entonces expandiste tu promiscuidad para incluir a Babilonia, una tierra de come
 
 ## Ezequiel 16:30
 
-“‘¡Qué febril es tu corazón, declara el Señor Soberano, cuando haces todas estas cosas, actuando como una prostituta descarada!
+“‘¡Qué febril es tu corazón, declara el Señor Dios, cuando haces todas estas cosas, actuando como una prostituta descarada!
 
 ## Ezequiel 16:31
 
@@ -134,15 +134,15 @@ Todas las prostitutas reciben regalos, pero tú das regalos a todos tus amantes,
 
 ## Ezequiel 16:34
 
-Así que en tu prostitución, no eres como las demás; nadie corre tras de ti por tus favores. Eres todo lo contrario, porque das pago y no se te da a ti.
+Así que en tu prostitución, no eres como las demás; nadie corre tras de ti por tus favores. Eres todo lo contrario, porque tú pagas y a ti no te pagan.
 
 ## Ezequiel 16:35
 
-“‘Por lo tanto, escucha la palabra del Señor, tú que has actuado como una prostituta!
+“‘Por lo tanto, ¡escucha la palabra del Señor, tú que has actuado como una prostituta!
 
 ## Ezequiel 16:36
 
-Esto es lo que dice el Señor Soberano: Porque tu lascivia fue derramada y tu desnudez expuesta en tu promiscuidad con tus amantes y con todos tus ídolos detestables, y por la sangre de tus hijos que les diste,
+Esto es lo que dice el Señor Dios: Porque tu lascivia fue derramada y tu desnudez expuesta en tu promiscuidad con tus amantes y con todos tus ídolos detestables, y por la sangre de tus hijos que les diste,
 
 ## Ezequiel 16:37
 
@@ -170,7 +170,7 @@ Entonces mi ira contra ti se calmará, y mi celo se apartará de ti; estaré cal
 
 ## Ezequiel 16:43
 
-“‘Porque no recordaste los días de tu juventud sino que me enfureciste con todas estas cosas, ciertamente haré caer sobre tu cabeza lo que has hecho, declara el Señor Soberano. ¿No añadiste lascivia a todas tus otras prácticas abominables?
+“‘Porque no recordaste los días de tu juventud sino que me enfureciste con todas estas cosas, ciertamente haré caer sobre tu cabeza lo que has hecho, declara el Señor Dios. ¿No añadiste lascivia a todas tus otras prácticas abominables?
 
 ## Ezequiel 16:44
 
@@ -190,7 +190,7 @@ No solo seguiste sus caminos y cometiste sus abominaciones, sino que en todos tu
 
 ## Ezequiel 16:48
 
-Ciertamente, tan cierto como que vivo, declara el Señor Soberano: tu hermana Sodoma y sus hijas nunca hicieron lo que tú y tus hijas han hecho.
+Tan cierto como que vivo, declara el Señor Dios: tu hermana Sodoma y sus hijas nunca hicieron lo que tú y tus hijas han hecho.
 
 ## Ezequiel 16:49
 
@@ -218,7 +218,7 @@ para que soportes tu desgracia y te avergüences de todo lo que has hecho al ofr
 
 ## Ezequiel 16:55
 
-Y tus hermanas, Sodoma con sus hijas y Samaria con sus hijas, volverán a su estado anterior; y tú y tus hijas volverán a su estado anterior.
+Y tus hermanas, Sodoma con sus hijas y Samaria con sus hijas, volverán a su estado anterior; y tú y tus hijas volveréis a vuestro estado anterior.
 
 ## Ezequiel 16:56
 
@@ -234,7 +234,7 @@ Soportarás las consecuencias de tu lascivia y tus prácticas abominables, decla
 
 ## Ezequiel 16:59
 
-“‘Esto es lo que dice el Señor Soberano: Trataré contigo según tus acciones, porque has despreciado mi juramento al romper el pacto.
+“‘Esto es lo que dice el Señor Dios: Trataré contigo según tus acciones, porque has despreciado mi juramento al romper el pacto.
 
 ## Ezequiel 16:60
 
@@ -250,4 +250,4 @@ Así que estableceré mi pacto contigo, para que sepas que yo soy el Señor.
 
 ## Ezequiel 16:63
 
-Entonces, cuando haya hecho expiación por ti por todo lo que has hecho, recordarás y te avergonzarás y nunca más abrirás tu boca debido a tu humillación, declara el Señor Soberano.’”
+Entonces, cuando haya hecho expiación por ti por todo lo que has hecho, recordarás y te avergonzarás y nunca más abrirás tu boca debido a tu humillación, declara el Señor Dios.’”

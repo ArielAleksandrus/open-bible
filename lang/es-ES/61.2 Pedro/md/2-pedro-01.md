@@ -3,7 +3,7 @@
 ## 2 Pedro 1:1
 
 Simón Pedro, siervo y apóstol de Jesucristo,  
- A los que han recibido una fe del mismo valor que la nuestra, por la justicia de nuestro Dios y Salvador, Jesucristo:
+ a los que han recibido una fe del mismo valor que la nuestra, por la justicia de nuestro Dios y Salvador, Jesucristo:
 
 ## 2 Pedro 1:2
 
@@ -55,7 +55,7 @@ Considero justo, mientras esté en este cuerpo terrenal, despertaros con recorda
 
 ## 2 Pedro 1:14
 
-sabiendo que la remoción de mi cuerpo terrenal es inminente, como nuestro Señor Jesucristo me ha dejado claro.
+sabiendo que pronto he de dejar mi cuerpo terrenal, como nuestro Señor Jesucristo me ha dejado claro.
 
 ## 2 Pedro 1:15
 
@@ -67,7 +67,7 @@ Porque no seguimos historias ingeniosamente inventadas cuando os dimos a conocer
 
 ## 2 Pedro 1:17
 
-Porque cuando Él recibió honor y gloria de Dios el Padre, tal declaración como esta le fue hecha por la Majestuosa Gloria: “Este es Mi Hijo amado en quien me complazco”—
+Porque cuando Él recibió honor y gloria de Dios el Padre, la Majestuosa Gloria le dirigió esta declaración: “Este es Mi Hijo amado en quien me complazco”,
 
 ## 2 Pedro 1:18
 
@@ -79,8 +79,8 @@ Y así tenemos la palabra profética confirmada, a la cual hacéis bien en prest
 
 ## 2 Pedro 1:20
 
-Pero sabed esto antes que nada, que ninguna profecía de la Escritura proviene de la interpretación de uno mismo,
+Pero, antes que nada, tened esto claro: ninguna profecía de la Escritura nace de la interpretación personal de alguien,
 
 ## 2 Pedro 1:21
 
-porque ninguna profecía fue jamás hecha por voluntad humana, sino que hombres movidos por el Espíritu Santo hablaron de parte de Dios.
+porque ninguna profecía ha venido nunca por iniciativa humana, sino que hubo hombres que, impulsados por el Espíritu Santo, hablaron de parte de Dios.

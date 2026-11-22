@@ -100,4 +100,4 @@ La mujer dio a luz un hijo y lo llamó Sansón. Él creció, y el Señor lo bend
 
 ## Jueces 13:25
 
-El Espíritu del Señor comenzó a moverlo mientras estaba en Mahaneh Dan, entre Zora y Estaol.
+El Espíritu del Señor comenzó a moverlo mientras estaba en Mahane Dan, entre Zora y Estaol.

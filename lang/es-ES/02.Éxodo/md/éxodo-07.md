@@ -90,7 +90,7 @@ Pero los magos egipcios hicieron lo mismo con sus artes secretas, y el corazón 
 
 ## Éxodo 7:23
 
-El faraón se volvió y entró en su palacio, y no tomó esto a pecho.
+El faraón se volvió y entró en su palacio, y ni siquiera esto tomó a pecho.
 
 ## Éxodo 7:24
 

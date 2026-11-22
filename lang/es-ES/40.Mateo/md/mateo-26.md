@@ -46,7 +46,7 @@ Pero Jesús, consciente de esto, les dijo, “¿Por qué molestáis a esta mujer
 
 ## Mateo 26:11
 
-Porque siempre tendréis a los pobres con vosotros, pero a mí no siempre me tendréis.
+A los pobres siempre los tendréis con vosotros, pero a mí no siempre me tendréis.
 
 ## Mateo 26:12
 
@@ -136,10 +136,10 @@ Después de haber cantado un himno, salieron al Monte de los Olivos.
 
 ## Mateo 26:31
 
-Entonces Jesús les dijo, “Esta noche todos caeréis por mi causa, porque está escrito:
+Entonces Jesús les dijo: “Esta noche todos os vais a apartar por causa de mí, porque está escrito:
 
->  ‘Heriré al pastor,
->  y las ovejas del rebaño serán dispersadas.’
+>  ‘Golpearé al pastor,
+>  y las ovejas del rebaño se dispersarán.’
 
 ## Mateo 26:32
 
@@ -147,7 +147,7 @@ Sin embargo, una vez que haya resucitado, iré delante de vosotros a Galilea.”
 
 ## Mateo 26:33
 
-Pedro le respondió, “Aunque todos caigan por tu causa, yo nunca caeré.”
+Pedro le respondió, “Aunque todos tropiecen por causa de ti, yo nunca tropezaré.”
 
 ## Mateo 26:34
 
@@ -169,11 +169,11 @@ Tomó consigo a Pedro y a los dos hijos de Zebedeo, y comenzó a entristecerse y
 
 ## Mateo 26:38
 
-Entonces les dijo, “Mi alma está muy triste, hasta el punto de la muerte; quedaos aquí y velad conmigo.”
+Entonces les dijo: “Siento en el alma una tristeza tan grande que me lleva al borde de la muerte; quedaos aquí y permaneced despiertos conmigo.”
 
 ## Mateo 26:39
 
-Fue un poco más allá, cayó sobre su rostro, y oró, “Padre mío, si es posible, pase de mí esta copa; pero no sea como yo quiero, sino como tú quieres.”
+Avanzó un poco más, cayó rostro en tierra y oró: “Padre mío, si es posible, aparta de mí esta copa; pero que no se haga lo que yo quiero, sino lo que quieres tú.”
 
 ## Mateo 26:40
 
@@ -181,11 +181,11 @@ Vino a los discípulos y los encontró durmiendo, y dijo a Pedro, “¿Así que 
 
 ## Mateo 26:41
 
-Velad y orad, para que no caigáis en tentación; el espíritu está dispuesto, pero la carne es débil.”
+Permaneced despiertos y orad, para que no caigáis en la tentación; el espíritu quiere, pero la carne es débil.”
 
 ## Mateo 26:42
 
-Se apartó de nuevo por segunda vez y oró, “Padre mío, si esta copa no puede pasar sin que yo la beba, hágase tu voluntad.”
+Se apartó por segunda vez y oró: “Padre mío, si no es posible que esta copa pase sin que yo la beba, que se haga tu voluntad.”
 
 ## Mateo 26:43
 
@@ -197,7 +197,7 @@ Los dejó de nuevo, se apartó y oró por tercera vez, diciendo lo mismo una vez
 
 ## Mateo 26:45
 
-Entonces regresó a los discípulos y les dijo, “¿Todavía estáis durmiendo y descansando? Mirad, la hora está cerca, y el Hijo del Hombre está siendo traicionado en manos de pecadores.
+Entonces regresó a los discípulos y les dijo, “¿Todavía estáis durmiendo y descansando? Mirad, la hora está cerca, y el Hijo del Hombre es entregado en manos de pecadores.
 
 ## Mateo 26:46
 
@@ -211,7 +211,7 @@ Mientras aún hablaba, llegó Judas, uno de los Doce, acompañado de una gran mu
 
 ## Mateo 26:48
 
-Ahora el traidor les había dado una señal, diciendo, “A quien yo bese, ese es; arrestadle.”
+El traidor les había dado una señal, diciendo, “A quien yo bese, ese es; arrestadle.”
 
 ## Mateo 26:49
 
@@ -227,7 +227,7 @@ Y he aquí, uno de los que estaban con Jesús extendió su mano, sacó su espada
 
 ## Mateo 26:52
 
-Entonces Jesús le dijo, “Vuelve tu espada a su lugar; porque todos los que tomen espada, a espada perecerán.
+Entonces Jesús le dijo: “Guarda tu espada en su sitio, porque todos los que empuñan la espada morirán a espada.
 
 ## Mateo 26:53
 
@@ -277,7 +277,7 @@ Pero Jesús permaneció en silencio. El sumo sacerdote le dijo, “Te conjuro po
 
 ## Mateo 26:64
 
-Jesús le dijo, “Tú lo has dicho. Pero os digo a todos: Desde ahora veréis al Hijo del Hombre sentado a la diestra del poder, y viniendo sobre las nubes del cielo.”
+Jesús le dijo: “Tú mismo lo has dicho. Pero os digo a todos: de ahora en adelante veréis al Hijo del Hombre sentado a la derecha del Poderoso y viniendo sobre las nubes del cielo.”
 
 ## Mateo 26:65
 
@@ -285,7 +285,7 @@ Entonces el sumo sacerdote rasgó sus vestiduras y dijo, “¡Ha blasfemado! ¿Q
 
 ## Mateo 26:66
 
-¿Qué os parece?” Ellos respondieron, “¡Es reo de muerte!”
+¿Qué opináis?” Ellos respondieron: “¡Merece morir!”
 
 ## Mateo 26:67
 

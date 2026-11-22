@@ -20,7 +20,7 @@ Jesús le instruyó, “Mira que no se lo digas a nadie; pero ve, muéstrate al 
 
 ## Mateo 8:5
 
-Al entrar en Capernaum, un centurión se acercó a Él, buscando ayuda.
+Al entrar en Capernaúm, un centurión se acercó a Él, buscando ayuda.
 
 ## Mateo 8:6
 
@@ -32,7 +32,7 @@ Jesús le respondió, “Iré a él y lo sanaré.”
 
 ## Mateo 8:8
 
-El centurión contestó, “Señor, no soy digno de que entres bajo mi techo, pero solo di la palabra, y mi siervo será sanado.
+El centurión respondió: “Señor, yo no merezco que entres en mi casa; basta con que digas una palabra, y mi siervo quedará sano.
 
 ## Mateo 8:9
 
@@ -87,7 +87,7 @@ Entonces un escriba se acercó a Él y dijo, “Maestro, te seguiré dondequiera
 
 ## Mateo 8:20
 
-Jesús respondió, “Las zorras tienen madrigueras y las aves del cielo tienen nidos, pero el Hijo del Hombre no tiene dónde recostar Su cabeza.”
+Jesús respondió: “Los zorros tienen sus madrigueras y los pájaros tienen sus nidos, pero el Hijo del Hombre no tiene ni dónde apoyar la cabeza.”
 
 ## Mateo 8:21
 

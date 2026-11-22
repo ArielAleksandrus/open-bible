@@ -74,7 +74,7 @@ Cuando Saúl envió mensajeros para apoderarse de David, ella dijo: “Está enf
 
 ## 1 Samuel 19:15
 
-Entonces Saúl envió a los mensajeros a ver a David, diciendo: “Tráiganmelo en la cama, para que lo mate.”
+Entonces Saúl envió a los mensajeros a ver a David, diciendo: “Traédmelo en la cama, para que lo mate.”
 
 ## 1 Samuel 19:16
 

@@ -22,11 +22,11 @@ Aquí están los nombres de los hombres que te asistirán: de Rubén, Elizur hij
 
 ## Números 1:6
 
-de la tribu de Simeón, Shelumiel, hijo de Zurisadai;
+de la tribu de Simeón, Selumiel, hijo de Zurisadai;
 
 ## Números 1:7
 
-de la tribu de Judá, Nahsón, hijo de Aminadab;
+de la tribu de Judá, Naasón, hijo de Aminadab;
 
 ## Números 1:8
 
@@ -82,7 +82,7 @@ De los descendientes de Rubén, el primogénito de Israel: Todos los hombres de 
 
 ## Números 1:21
 
-El recuento de la tribu de Rubén fue de 46,500.
+El recuento de la tribu de Rubén fue de 46 500.
 
 ## Números 1:22
 
@@ -90,7 +90,7 @@ De los descendientes de Simeón: Todos los hombres de veinte años o más que er
 
 ## Números 1:23
 
-El recuento de la tribu de Simeón fue de 59,300.
+El recuento de la tribu de Simeón fue de 59 300.
 
 ## Números 1:24
 
@@ -98,7 +98,7 @@ De los descendientes de Gad: Todos los hombres de veinte años o más que eran e
 
 ## Números 1:25
 
-El recuento de la tribu de Gad fue de 45,650.
+El recuento de la tribu de Gad fue de 45 650.
 
 ## Números 1:26
 
@@ -106,7 +106,7 @@ De los descendientes de Judá: Todos los hombres de veinte años o más que eran
 
 ## Números 1:27
 
-El recuento de la tribu de Judá fue de 74,600.
+El recuento de la tribu de Judá fue de 74 600.
 
 ## Números 1:28
 
@@ -114,7 +114,7 @@ De los descendientes de Isacar: Todos los hombres de veinte años o más que era
 
 ## Números 1:29
 
-El recuento de la tribu de Isacar fue de 54,400.
+El recuento de la tribu de Isacar fue de 54 400.
 
 ## Números 1:30
 
@@ -122,7 +122,7 @@ De los descendientes de Zabulón: Todos los hombres de veinte años o más que e
 
 ## Números 1:31
 
-El recuento de la tribu de Zabulón fue de 57,400.
+El recuento de la tribu de Zabulón fue de 57 400.
 
 ## Números 1:32
 
@@ -130,7 +130,7 @@ De los descendientes de José: De la tribu de Efraín: Todos los hombres elegibl
 
 ## Números 1:33
 
-El recuento de la tribu de Efraín fue de 40,500.
+El recuento de la tribu de Efraín fue de 40 500.
 
 ## Números 1:34
 
@@ -138,7 +138,7 @@ De los descendientes de Manasés: Todos los hombres de veinte años o más que e
 
 ## Números 1:35
 
-El recuento de la tribu de Manasés fue de 32,200.
+El recuento de la tribu de Manasés fue de 32 200.
 
 ## Números 1:36
 
@@ -146,7 +146,7 @@ De los descendientes de Benjamín: Todos los hombres de veinte años o más que 
 
 ## Números 1:37
 
-El recuento de la tribu de Benjamín fue de 35,400.
+El recuento de la tribu de Benjamín fue de 35 400.
 
 ## Números 1:38
 
@@ -154,7 +154,7 @@ De los descendientes de Dan: Todos los hombres de veinte años o más que eran e
 
 ## Números 1:39
 
-El recuento de la tribu de Dan fue de 62,700.
+El recuento de la tribu de Dan fue de 62 700.
 
 ## Números 1:40
 
@@ -162,7 +162,7 @@ De los descendientes de Aser: Todos los hombres de veinte años o más que eran 
 
 ## Números 1:41
 
-El recuento de la tribu de Aser fue de 41,500.
+El recuento de la tribu de Aser fue de 41 500.
 
 ## Números 1:42
 
@@ -170,7 +170,7 @@ De los descendientes de Neftalí: Todos los hombres de veinte años o más que e
 
 ## Números 1:43
 
-El recuento de la tribu de Neftalí fue de 53,400.
+El recuento de la tribu de Neftalí fue de 53 400.
 
 ## Números 1:44
 
@@ -182,7 +182,7 @@ Todos los israelitas de veinte años o más que eran elegibles para el servicio 
 
 ## Números 1:46
 
-Su número total fue de 603,550.
+Su número total fue de 603 550.
 
 ## Números 1:47
 

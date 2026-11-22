@@ -10,7 +10,7 @@ Mi objetivo es que sus corazones sean alentados, estando unidos en amor, y que a
 
 ## Colosenses 2:3
 
-en quien están escondidos todos los tesoros de la sabiduría y del conocimiento.
+porque en Él se esconden todas las riquezas de la sabiduría y del conocimiento.
 
 ## Colosenses 2:4
 
@@ -22,11 +22,11 @@ Porque aunque estoy ausente en cuerpo, estoy con vosotros en espíritu, regocij�
 
 ## Colosenses 2:6
 
-Por tanto, de la manera que habéis recibido a Cristo Jesús como Señor, continuad andando en Él,
+Por eso, ya que habéis aceptado a Cristo Jesús como Señor, seguid viviendo unidos a Él,
 
 ## Colosenses 2:7
 
-arraigados y edificados en Él, y confirmados en la fe como fuisteis enseñados, rebosando de gratitud.
+con raíces bien firmes en Él, construyendo vuestra vida sobre Él y afianzados en la fe que se os enseñó, y dando gracias a Dios sin cesar.
 
 ## Colosenses 2:8
 
@@ -34,27 +34,27 @@ Cuidaos de que nadie os lleve cautivos por medio de filosofías vacías y engañ
 
 ## Colosenses 2:9
 
-Porque en Él habita corporalmente toda la plenitud de la naturaleza divina,
+Porque en Cristo vive, en forma corporal, toda la plenitud de lo que Dios es,
 
 ## Colosenses 2:10
 
-y en Él habéis sido hechos completos. Él es la cabeza sobre todo gobernante y autoridad.
+y unidos a Él lo tenéis todo. Él está por encima de todo gobernante y de toda autoridad.
 
 ## Colosenses 2:11
 
-En Él también fuisteis circuncidados con una circuncisión no hecha por manos humanas, al despojaros del cuerpo de la carne, por la circuncisión de Cristo,
+Unidos a Él, también fuisteis circuncidados, pero no con una circuncisión hecha por manos humanas, sino con la de Cristo, al quitaros de encima vuestra naturaleza pecadora,
 
 ## Colosenses 2:12
 
-habiendo sido sepultados con Él en el bautismo, en el cual también fuisteis resucitados con Él mediante la fe en la poderosa obra de Dios, que le resucitó de entre los muertos.
+porque en el bautismo fuisteis enterrados con Él, y en el bautismo también fuisteis levantados con Él, por la fe en el poder de Dios, que lo levantó de entre los muertos.
 
 ## Colosenses 2:13
 
-Y cuando estabais muertos en vuestros delitos y en la incircuncisión de vuestra carne, Dios os dio vida juntamente con Él, habiéndonos perdonado todos nuestros delitos,
+Vosotros estabais muertos a causa de vuestros pecados y porque vuestra naturaleza no estaba circuncidada, pero Dios os dio vida junto con Cristo y nos perdonó todos los pecados,
 
 ## Colosenses 2:14
 
-habiendo cancelado el acta de los decretos que había contra nosotros, que nos era adversa. Esto lo quitó de en medio, clavándolo en la cruz.
+borrando el documento de deuda que había contra nosotros, con todas sus exigencias legales. Lo quitó de en medio y lo clavó en la cruz.
 
 ## Colosenses 2:15
 
@@ -62,7 +62,7 @@ Desarmó a los gobernantes y autoridades y los exhibió públicamente, triunfand
 
 ## Colosenses 2:16
 
-Por tanto, que nadie os juzgue en cuestiones de comida y bebida, o con respecto a una festividad, una luna nueva o un día de reposo.
+Así que no dejéis que nadie os juzgue por lo que coméis o bebéis, ni por no celebrar una fiesta, la luna nueva o el sábado.
 
 ## Colosenses 2:17
 
@@ -82,7 +82,7 @@ Si habéis muerto con Cristo a las cosas de este mundo, ¿por qué actuar como s
 
 ## Colosenses 2:21
 
-“¡No manejes, no gustes, no toques!”?
+“¡No toques esto, no pruebes aquello, no lo toques con la mano!”
 
 ## Colosenses 2:22
 

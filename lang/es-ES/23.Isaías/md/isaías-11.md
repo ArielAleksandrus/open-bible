@@ -6,41 +6,41 @@ Un brote surgirá del tronco de Jesé, y de sus raíces un Retoño dará fruto.
 
 ## Isaías 11:2
 
-El Espíritu del Señor reposará sobre él: el espíritu de sabiduría y entendimiento, el espíritu de consejo y poder, el espíritu de conocimiento y del temor del Señor.
+Sobre él descansará el Espíritu del Señor: el espíritu que da sabiduría e inteligencia, el espíritu que da consejo y fuerza, el espíritu que da conocimiento y temor del Señor.
 
 ## Isaías 11:3
 
-Él se deleitará en el temor del Señor. No juzgará por lo que vean sus ojos, ni decidirá por lo que oigan sus oídos;
+Su alegría será respetar al Señor. No juzgará por las apariencias ni decidirá por lo que oiga decir;
 
 ## Isaías 11:4
 
-sino que juzgará con justicia a los pobres, y con equidad decidirá por los humildes de la tierra. Golpeará la tierra con la vara de su boca, y con el aliento de sus labios matará al impío.
+sino que juzgará con justicia a los pobres y defenderá con rectitud a los humildes del país. Sus palabras serán una vara que golpeará la tierra, y con el soplo de sus labios dará muerte al malvado.
 
 ## Isaías 11:5
 
-La justicia será el cinturón alrededor de su cintura, y la fidelidad el ceñidor de sus caderas.
+La justicia será el cinturón que lleve en la cintura, y la fidelidad, la faja que le ciña las caderas.
 
 ## Isaías 11:6
 
-El lobo habitará con el cordero, y el leopardo se echará con el cabrito, el becerro y el león joven y el animal cebado juntos; y un niño pequeño los guiará.
+El lobo vivirá junto al cordero, y el leopardo se echará a descansar con el cabrito; el ternero, el león joven y el novillo engordado andarán juntos, y un niño pequeño los llevará.
 
 ## Isaías 11:7
 
-La vaca y el oso pastarán, sus crías se echarán juntas, y el león comerá paja como el buey.
+La vaca pastará junto a la osa, sus crías se echarán juntas, y el león comerá paja como el buey.
 
 ## Isaías 11:8
 
-El niño de pecho jugará junto al agujero de la cobra, y el niño destetado pondrá su mano en el nido de la víbora.
+El bebé jugará junto a la madriguera de la cobra, y el niño ya destetado meterá la mano en el nido de la víbora.
 
 ## Isaías 11:9
 
-No causarán daño ni destrucción en todo mi monte santo, porque la tierra estará llena del conocimiento del Señor como las aguas cubren el mar.
+En todo mi monte santo nadie hará daño ni destruirá, porque el conocimiento del Señor llenará la tierra como el agua llena el mar.
 
 ---
 
 ## Isaías 11:10
 
-En aquel día, la Raíz de Jesé se alzará como un estandarte para los pueblos; las naciones acudirán a él, y su lugar de descanso será glorioso.
+Aquel día, la Raíz de Jesé se alzará como una bandera para los pueblos; las naciones irán a buscarlo, y el lugar donde él descanse estará lleno de gloria.
 
 ## Isaías 11:11
 
@@ -48,11 +48,11 @@ En aquel día, el Señor extenderá su mano por segunda vez para reclamar al rem
 
 ## Isaías 11:12
 
-Él levantará un estandarte para las naciones y reunirá a los desterrados de Israel; juntará a los dispersos de Judá de los cuatro confines de la tierra.
+Levantará una bandera para las naciones y reunirá a los israelitas desterrados; juntará a la gente de Judá que anda dispersa por los cuatro rincones de la tierra.
 
 ## Isaías 11:13
 
-La envidia de Efraín desaparecerá, y los que hostigan a Judá serán eliminados; Efraín no tendrá envidia de Judá, ni Judá hostigará a Efraín.
+Se acabarán los celos de Efraín, y los que acosan a Judá serán eliminados; Efraín ya no tendrá celos de Judá, ni Judá acosará a Efraín.
 
 ## Isaías 11:14
 
@@ -64,4 +64,4 @@ El Señor destruirá completamente la lengua del mar de Egipto; con un viento ab
 
 ## Isaías 11:16
 
-Habrá una carretera desde Asiria para el remanente de su pueblo que quede, tal como la hubo para Israel cuando subieron de la tierra de Egipto.
+Habrá una calzada desde Asiria para el remanente de su pueblo que quede, tal como la hubo para Israel cuando subieron de la tierra de Egipto.

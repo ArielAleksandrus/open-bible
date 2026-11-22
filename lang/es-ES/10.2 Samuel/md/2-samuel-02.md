@@ -10,7 +10,7 @@ Después, David buscó la guía del Señor, preguntando,
 
 ## 2 Samuel 2:2
 
-Así que David subió allí, acompañado por sus dos esposas: Ahinoam de Jezreel y Abigail, quien había sido la esposa de Nabal el Carmelita.
+Así que David subió allí, acompañado por sus dos esposas: Ahinoam de Jezreel y Abigail, quien había sido la esposa de Nabal el carmelita.
 
 ## 2 Samuel 2:3
 
@@ -82,7 +82,7 @@ Entonces Abner dijo a Joab,
 
 ## 2 Samuel 2:15
 
-Así que se levantaron y avanzaron por cuenta: doce por Benjamín e Is-boset, hijo de Saúl,  
+Así que se levantaron y avanzaron en número igual: doce por Benjamín e Is-boset, hijo de Saúl,  
  y doce de los siervos de David.
 
 ## 2 Samuel 2:16
@@ -101,7 +101,7 @@ Y la batalla se volvió muy severa ese día,
 ## 2 Samuel 2:18
 
 Ahora bien, los tres hijos de Sarvia estaban allí: Joab, Abisai y Asael.  
- Y Asael era tan rápido como uno de los gacelas en el campo.
+ Y Asael era tan rápido como una de las gacelas en el campo.
 
 ## 2 Samuel 2:19
 

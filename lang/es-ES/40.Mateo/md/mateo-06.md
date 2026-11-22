@@ -2,11 +2,11 @@
 
 ## Mateo 6:1
 
-“Ten cuidado de no mostrar tu justicia delante de los demás para ser visto por ellos; de lo contrario, no tendrás recompensa de tu Padre que está en los cielos.
+“Tened cuidado de no exhibir vuestra justicia ante los demás para llamar su atención; de lo contrario, no recibiréis ninguna recompensa de vuestro Padre que está en el cielo.
 
 ## Mateo 6:2
 
-“Por lo tanto, cuando des a los pobres, no lo anuncies con trompetas, como hacen los hipócritas en las sinagogas y en las calles, para ser alabados por los demás. En verdad os digo que ya han recibido su recompensa.
+“Así que, cuando ayudes a los pobres, no lo anuncies a son de trompeta, como hacen los hipócritas en las sinagogas y en las calles para que la gente los alabe. En verdad os digo que ya han recibido toda su recompensa.
 
 ## Mateo 6:3
 
@@ -20,25 +20,25 @@ para que tu donación permanezca en privado. Entonces tu Padre, que observa lo q
 
 ## Mateo 6:5
 
-“Y cuando ores, no seas como los hipócritas, porque les gusta estar de pie y orar en las sinagogas y en las esquinas de las calles para ser vistos por los demás. En verdad os digo que ya tienen su recompensa.
+“Y cuando oréis, no seáis como los hipócritas, a quienes les encanta orar de pie en las sinagogas y en las esquinas de las calles para que la gente los vea. En verdad os digo que ya tienen toda su recompensa.
 
 ## Mateo 6:6
 
-Pero cuando ores, entra en tu habitación, cierra la puerta y ora a tu Padre, que es invisible. Entonces tu Padre, que observa lo que se hace en secreto, te recompensará.
+Tú, en cambio, cuando ores, entra en tu cuarto, cierra la puerta y ora a tu Padre, a quien no se ve. Así tu Padre, que ve lo que haces en privado, te dará tu recompensa.
 
 ## Mateo 6:7
 
-Y cuando ores, no uses repeticiones sin sentido como los paganos, porque piensan que serán escuchados por sus muchas palabras.
+Y al orar, no repitáis palabras sin pensar, como hacen los paganos, que creen que serán escuchados por hablar mucho.
 
 ## Mateo 6:8
 
-No los imites: tu Padre es consciente de tus necesidades incluso antes de que se las pidas.
+No los imitéis: vuestro Padre es consciente de vuestras necesidades incluso antes de que se las pidáis.
 
 ---
 
 ## Mateo 6:9
 
-“Ora de esta manera:
+“Orad de esta manera:
 
 >  ‘Padre nuestro que estás en los cielos,
 >  santificado sea tu nombre,
@@ -70,63 +70,63 @@ No los imites: tu Padre es consciente de tus necesidades incluso antes de que se
 
 ## Mateo 6:14
 
-Porque si perdonas a los demás cuando pecan contra ti, tu Padre celestial también te perdonará.
+Porque si perdonáis a los demás cuando pecan contra vosotros, vuestro Padre celestial también os perdonará.
 
 ## Mateo 6:15
 
-Pero si no perdonas a los demás, tu Padre tampoco te perdonará.
+Pero si no perdonáis a los demás, vuestro Padre tampoco os perdonará.
 
 ---
 
 ## Mateo 6:16
 
-“Cuando ayunes, no pongas cara triste como los hipócritas, porque desfiguran sus rostros para mostrar a los demás que están ayunando. En verdad os digo que ya han recibido su recompensa.
+“Cuando ayunéis, no pongáis cara larga como los hipócritas, que desfiguran su rostro para que todos vean que están ayunando. En verdad os digo que ya han recibido toda su recompensa.
 
 ## Mateo 6:17
 
-Pero cuando ayunes, cuida tu apariencia ungiendo tu cabeza y lavando tu rostro,
+Tú, en cambio, cuando ayunes, cuida tu aspecto: ponte aceite en la cabeza y lávate la cara,
 
 ## Mateo 6:18
 
-para que tu ayuno no sea evidente a los demás, sino solo a tu Padre, que es invisible; y tu Padre, que observa lo que se hace en secreto, te recompensará.
+para que los demás no noten que ayunas, sino solo tu Padre, a quien no se ve; y tu Padre, que ve lo que haces en privado, te dará tu recompensa.
 
 ---
 
 ## Mateo 6:19
 
-“No acumuléis para vosotros tesoros en la tierra, donde la polilla y el óxido destruyen, y donde los ladrones irrumpen y roban.
+“No os guardéis tesoros aquí en la tierra, donde la polilla y el óxido los destruyen y donde los ladrones entran a robarlos.
 
 ## Mateo 6:20
 
-En cambio, acumulad tesoros en el cielo, donde ni la polilla ni el óxido destruyen, y donde los ladrones no irrumpen ni roban.
+Guardaos más bien tesoros en el cielo, donde ni la polilla ni el óxido los destruyen y donde los ladrones no entran a robarlos.
 
 ## Mateo 6:21
 
-Porque donde esté tu tesoro, allí estará también tu corazón.
+Porque allí donde tengas tu tesoro, allí tendrás también el corazón.
 
 ---
 
 ## Mateo 6:22
 
-“El ojo es la lámpara del cuerpo. Si tus ojos son claros, todo tu cuerpo estará lleno de luz.
+“El ojo es como una lámpara para el cuerpo. Si tus ojos ven con claridad, todo tu cuerpo estará iluminado.
 
 ## Mateo 6:23
 
-Pero si tus ojos no son claros, todo tu cuerpo estará lleno de oscuridad. Si entonces la luz que hay en ti es oscuridad, ¡cuán grande es esa oscuridad!
+Pero si tus ojos no ven con claridad, todo tu cuerpo estará a oscuras. Y si la luz que hay en ti es oscuridad, ¡qué grande será esa oscuridad!
 
 ## Mateo 6:24
 
-“Nadie puede servir a dos señores. Odiará a uno y amará al otro, o se dedicará a uno y despreciará al otro. No podéis servir a Dios y a las riquezas.
+“Nadie puede estar al servicio de dos amos, porque odiará a uno y amará al otro, o será fiel a uno y despreciará al otro. No podéis servir a la vez a Dios y al dinero.
 
 ---
 
 ## Mateo 6:25
 
-“Por eso os digo, no os preocupéis por vuestra vida, qué comeréis o beberéis, ni por vuestro cuerpo, qué vestiréis. ¿No es la vida más que el alimento, y el cuerpo más que el vestido?
+“Por eso os digo: no viváis angustiados por vuestra vida, por lo que vais a comer o beber, ni por vuestro cuerpo, por lo que vais a vestir. ¿Acaso la vida no vale más que la comida, y el cuerpo más que la ropa?
 
 ## Mateo 6:26
 
-Observad las aves del cielo; no siembran ni cosechan ni almacenan en graneros, y sin embargo vuestro Padre celestial las alimenta. ¿No valéis vosotros mucho más que ellas?
+Fijaos en las aves que vuelan por el cielo: no siembran, ni cosechan, ni guardan en graneros, y aun así vuestro Padre del cielo les da de comer. ¿No valéis vosotros mucho más que ellas?
 
 ## Mateo 6:27
 
@@ -134,30 +134,30 @@ Observad las aves del cielo; no siembran ni cosechan ni almacenan en graneros, y
 
 ## Mateo 6:28
 
-“¿Y por qué os preocupáis por el vestido? Considerad cómo crecen las flores del campo. No trabajan ni hilan,
+“¿Y por qué os preocupa tanto la ropa? Mirad cómo crecen las flores del campo: no trabajan ni tejen,
 
 ## Mateo 6:29
 
-sin embargo os digo que ni siquiera Salomón en toda su gloria se vistió como una de ellas.
+y sin embargo os digo que ni siquiera Salomón, con todo su esplendor, llegó a vestirse tan bien como cualquiera de ellas.
 
 ## Mateo 6:30
 
-Si así viste Dios la hierba del campo, que hoy está aquí y mañana es echada al fuego, ¿no os vestirá mucho más a vosotros —hombres de poca fe—?
+Si Dios viste así a la hierba del campo, que hoy está y mañana se echa al fuego, ¿no hará mucho más por vestiros a vosotros, gente de poca fe?
 
 ---
 
 ## Mateo 6:31
 
-Así que no os preocupéis, diciendo, ‘¿Qué comeremos?’ o ‘¿Qué beberemos?’ o ‘¿Qué vestiremos?’
+Así que no viváis angustiados, preguntándoos: ‘¿Qué vamos a comer?’, ‘¿Qué vamos a beber?’ o ‘¿Con qué nos vamos a vestir?’
 
 ## Mateo 6:32
 
-Porque los paganos buscan con afán todas estas cosas, y vuestro Padre celestial sabe que las necesitáis.
+Porque los paganos andan detrás de todas estas cosas, y vuestro Padre del cielo ya sabe que las necesitáis.
 
 ## Mateo 6:33
 
-Pero buscad primero su reino y su justicia, y todas estas cosas os serán añadidas.
+Vosotros, en cambio, buscad ante todo su reino y su justicia, y además recibiréis todas estas cosas.
 
 ## Mateo 6:34
 
-Por lo tanto, no os preocupéis por el mañana, porque el mañana se cuidará de sí mismo. Cada día tiene suficiente con su propio mal.
+Por eso, no os angustiéis por el día de mañana, que el mañana ya se ocupará de sí mismo. A cada día le bastan sus propios problemas.

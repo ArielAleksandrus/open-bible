@@ -25,10 +25,10 @@ Pero vosotros habéis deshonrado al pobre. ¿No son los ricos los que os oprimen
 Si realmente cumplís la ley real que se encuentra en la Escritura: “Amarás a tu prójimo como a ti mismo,” hacéis bien.
 
 ## Santiago 2:9
-Pero si mostráis parcialidad, cometéis pecado y sois convictos por la ley como transgresores.
+Pero si mostráis parcialidad, cometéis pecado y la ley os declara culpables como transgresores.
 
 ## Santiago 2:10
-Porque cualquiera que guarda toda la ley, pero tropieza en un solo punto, se hace culpable de todos.
+Porque el que cumple toda la ley pero falla en un solo punto es culpable de haberla quebrantado toda.
 
 ## Santiago 2:11
 Porque el que dijo: “No cometas adulterio,” también dijo: “No mates.” Si no cometes adulterio, pero matas, te has convertido en transgresor de la ley.
@@ -37,31 +37,31 @@ Porque el que dijo: “No cometas adulterio,” también dijo: “No mates.” S
 Así hablad y así actuad como quienes han de ser juzgados por la ley que da libertad.
 
 ## Santiago 2:13
-Porque juicio sin misericordia se mostrará a cualquiera que no haya sido misericordioso. La misericordia triunfa sobre el juicio.
+Porque el que no ha tenido compasión será juzgado sin compasión. La compasión sale victoriosa frente al juicio.
 
 ## Santiago 2:14
-¿Qué provecho hay, hermanos míos, si alguien dice tener fe pero carece de obras? ¿Puede esa clase de fe salvarle?
+Hermanos y hermanas míos, ¿de qué le sirve a alguien decir que tiene fe si no lo demuestra con hechos? ¿Puede salvarle esa clase de fe?
 
 ## Santiago 2:15
 Si un hermano o hermana carece de ropa y de alimento diario,
 
 ## Santiago 2:16
-y uno de vosotros les dice: “Id en paz; abrigaos y saciaos,” pero no hacéis nada por sus necesidades físicas, ¿de qué sirve?
+y uno de vosotros les dice: “Id en paz; abrigaos y saciaos,” pero no hace nada por sus necesidades físicas, ¿de qué sirve?
 
 ## Santiago 2:17
-De la misma manera, la fe por sí sola, si no va acompañada de obras, está muerta.
+Lo mismo pasa con la fe: si no va acompañada de hechos, está muerta por sí sola.
 
 ## Santiago 2:18
-Pero alguien podría decir: “Tú tienes fe y yo tengo obras.” Muéstrame tu fe sin obras, y yo te mostraré mi fe por mis obras.
+Pero alguien podría decir: “Tú tienes fe, y yo tengo hechos.” Pues muéstrame tu fe sin hechos, y yo te mostraré mi fe por medio de lo que hago.
 
 ## Santiago 2:19
-Reconoces que hay un solo Dios. ¡Bien hecho! Incluso los demonios lo reconocen, y tiemblan.
+Tú reconoces que hay un solo Dios. ¡Muy bien! También los demonios lo reconocen, y tiemblan de miedo.
 
 ## Santiago 2:20
 Persona necia, ¿quieres pruebas de que la fe sin obras es inútil?
 
 ## Santiago 2:21
-¿No fue nuestro padre Abraham justificado por obras cuando ofreció a su hijo Isaac sobre el altar?
+¿No fue por sus hechos por lo que nuestro padre Abraham fue declarado justo, cuando ofreció a su hijo Isaac sobre el altar?
 
 ## Santiago 2:22
 Ves que su fe y sus acciones estaban en armonía, y su fe se completó con lo que hizo.
@@ -76,4 +76,4 @@ Ves que una persona es justificada por lo que hace y no solo por la fe.
 De la misma manera, ¿no fue Rahab la prostituta justificada por obras cuando recibió a los mensajeros y los envió por otro camino?
 
 ## Santiago 2:26
-Así como el cuerpo sin el espíritu está muerto, también la fe sin obras está muerta.
+Así como el cuerpo sin espíritu no tiene vida, también la fe sin hechos no tiene vida.

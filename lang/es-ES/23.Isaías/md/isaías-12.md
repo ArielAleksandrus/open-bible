@@ -1,19 +1,19 @@
 # Isaías Capítulo 12
 
 ## Isaías 12:1
-En aquel día dirás: “Te daré gracias, Señor. Aunque estabas enojado conmigo, tu ira se ha apartado y me has dado consuelo.
+Aquel día dirás: “Te doy gracias, Señor. Estabas enojado conmigo, pero se te pasó el enojo y me has consolado.
 
 ## Isaías 12:2
-He aquí, Dios es mi salvación; confiaré y no temeré. El Señor Dios es mi fortaleza y mi canción; él se ha convertido en mi salvación.”
+¡Dios es quien me salva! Confiaré en Él y no tendré miedo. El Señor Dios es mi fuerza y el motivo de mi canto; Él es mi salvación.”
 
 ## Isaías 12:3
-Con alegría sacarás agua de los manantiales de la salvación.
+Con alegría sacaréis agua de los pozos de la salvación.
 
 ## Isaías 12:4
-Y en aquel día dirás: “Alabad al Señor, invocad su nombre; haced conocer sus obras entre las naciones, y recordad que su nombre es exaltado.
+Y aquel día diréis: “Alabad al Señor, llamadlo por su nombre; contad a las naciones lo que ha hecho, y que no olviden que su nombre está por encima de todo.
 
 ## Isaías 12:5
-Cantad al Señor, porque ha hecho cosas maravillosas; que esto sea conocido por toda la tierra.
+Cantadle al Señor, porque ha hecho maravillas; que lo sepa el mundo entero.
 
 ## Isaías 12:6
-Gritad en voz alta y cantad de alegría, vosotros que habitáis en Sion, porque grande en medio de vosotros es el Santo de Israel.”
+Gritad de júbilo y cantad de alegría, habitantes de Sion, porque el Santo de Israel está en medio de vosotros con toda su grandeza.”

@@ -10,22 +10,22 @@ Porque os ofrezco una enseñanza sólida; no abandonéis mi guía.
 
 ## Proverbios 4:3
 
-Cuando yo era un hijo para mi padre, tierno y querido por mi madre,
+Cuando yo era niño en casa de mi padre, tierno y querido por mi madre,
 
 ## Proverbios 4:4
 
-Él me instruyó y dijo,
+él me enseñaba y me decía:
 
->  “Que tu corazón agarre mis palabras;
->  guarda mis mandamientos y vivirás.
+>  “Agárrate de corazón a mis palabras;
+>  cumple mis mandamientos y vivirás.
 
 ## Proverbios 4:5
 
-Busca la sabiduría, busca el entendimiento; no olvides ni te apartes de las palabras de mi boca.
+Busca la sabiduría, busca la inteligencia; no te olvides de lo que te digo ni te apartes de ello.
 
 ## Proverbios 4:6
 
-No abandones la sabiduría, y ella te protegerá; ámala, y ella velará por ti.
+No dejes la sabiduría, y ella te protegerá; quiérela, y ella te cuidará.
 
 ## Proverbios 4:7
 
@@ -37,7 +37,7 @@ Valórala, y ella te exaltará; abrázala, y ella te honrará.
 
 ## Proverbios 4:9
 
-Ella pondrá una guirnalda de gracia sobre tu cabeza y te presentará con una corona de esplendor.”
+Ella pondrá una guirnalda de gracia sobre tu cabeza y te dará una corona de esplendor.”
 
 ---
 
@@ -63,7 +63,7 @@ No entres en el camino de los malvados ni andes por el camino de los malhechores
 
 ## Proverbios 4:15
 
-Evítalo, no pases por él; apártate de él y sigue tu camino.
+Evítalo, no vayas por ahí; da la vuelta y sigue tu camino.
 
 ## Proverbios 4:16
 
@@ -77,7 +77,7 @@ Consumen el pan de la maldad y beben el vino de la violencia.
 
 ## Proverbios 4:18
 
-Pero el camino de los justos es como la luz de la mañana, que va en aumento hasta que el día alcanza su plenitud.
+El camino de los justos, en cambio, es como la luz del amanecer, que brilla cada vez más hasta que llega el pleno día.
 
 ## Proverbios 4:19
 
@@ -95,11 +95,11 @@ Guárdalos siempre a la vista; mantenlos cerca de tu corazón.
 
 ## Proverbios 4:22
 
-Porque son vida para quienes los hallan y salud para todo el cuerpo.
+Porque dan vida a los que las encuentran y salud a todo el cuerpo.
 
 ## Proverbios 4:23
 
-Protege tu corazón con toda diligencia, porque de él mana la vida.
+Cuida tu corazón con todo empeño, porque de él brota la vida.
 
 ## Proverbios 4:24
 
@@ -115,4 +115,4 @@ Reflexiona sobre el camino de tus pies, y todos tus caminos serán seguros.
 
 ## Proverbios 4:27
 
-No te desvíes ni a la derecha ni a la izquierda; aparta tu pie del mal.
+No te desvíes ni a un lado ni al otro; mantén tus pasos lejos del mal.

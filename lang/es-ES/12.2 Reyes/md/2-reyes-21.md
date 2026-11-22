@@ -77,7 +77,7 @@ por lo tanto, esto es lo que dice el Señor, el Dios de Israel:
 > Y extenderé sobre Jerusalén la cuerda de medir de Samaria,  
 >  y el nivel de la casa de Acab,  
 >  y limpiaré Jerusalén como se limpia un plato,  
->  volviéndolo boca abajo.
+>  que se friega y se pone boca abajo.
 
 ## 2 Reyes 21:14
 

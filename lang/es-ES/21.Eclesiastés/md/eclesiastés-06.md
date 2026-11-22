@@ -4,7 +4,7 @@
 He observado un mal bajo el sol, y es común entre la humanidad:
 
 ## Eclesiastés 6:2
-Dios concede a los individuos riquezas, bienes y honor, de modo que no les falta nada de lo que su corazón desea, pero Dios no les permite la capacidad de disfrutarlos, y en su lugar, un extraño los disfruta. Esto es vanidad y una grave desgracia.
+Dios concede a los individuos riquezas, bienes y honor, de modo que no les falta nada de lo que su corazón desea, pero Dios no les da la capacidad de disfrutarlos, y en su lugar, un extraño los disfruta. Esto es vanidad y una grave desgracia.
 
 ## Eclesiastés 6:3
 Si un hombre tiene cien hijos y vive muchos años, por muy largo que sea, pero no puede disfrutar de su riqueza y no recibe un entierro digno, entonces digo que un niño nacido muerto está mejor que él.

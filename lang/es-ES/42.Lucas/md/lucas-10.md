@@ -6,57 +6,57 @@ Después de esto, el Señor designó a otros setenta y dos y los envió de dos e
 
 ## Lucas 10:2
 
-Les dijo: “La cosecha es abundante, pero los obreros son pocos. Por tanto, pidan al Señor de la cosecha que envíe obreros a su campo de cosecha.
+Les dijo: “La cosecha es abundante, pero los obreros son pocos. Por tanto, pedid al Señor de la cosecha que envíe obreros a su campo de cosecha.
 
 ## Lucas 10:3
 
-¡Vayan! He aquí, yo los envío como corderos en medio de lobos.
+¡Id! He aquí, yo os envío como corderos en medio de lobos.
 
 ## Lucas 10:4
 
-No lleven bolsa, ni alforja, ni sandalias, y no saluden a nadie por el camino.
+No llevéis bolsa, ni alforja, ni sandalias, y no saludéis a nadie por el camino.
 
 ## Lucas 10:5
 
-Cuando entren en una casa, comiencen diciendo: ‘Paz sea sobre esta casa.’
+Cuando entréis en una casa, comenzad diciendo: ‘Paz sea sobre esta casa.’
 
 ## Lucas 10:6
 
-Si hay allí una persona de paz, su paz reposará sobre ella; si no, volverá a ustedes.
+Si hay allí una persona de paz, vuestra paz reposará sobre ella; si no, volverá a vosotros.
 
 ## Lucas 10:7
 
-Permanezcan en esa casa, comiendo y bebiendo lo que les den, porque el obrero merece su salario. No se muden de casa en casa.
+Permaneced en esa casa, comiendo y bebiendo lo que os den, porque el obrero merece su salario. No os mudéis de casa en casa.
 
 ## Lucas 10:8
 
-Cuando entren en una ciudad y sean recibidos, coman lo que les pongan delante.
+Cuando entréis en una ciudad y seáis recibidos, comed lo que os pongan delante.
 
 ## Lucas 10:9
 
-Curen a los enfermos que haya allí y díganles: ‘El reino de Dios se ha acercado a ustedes.’
+Curad a los enfermos que haya allí y decidles: ‘El reino de Dios se ha acercado a vosotros.’
 
 ## Lucas 10:10
 
-Sin embargo, si entran en una ciudad y no son recibidos, salgan a sus calles y declaren,
+Sin embargo, si entráis en una ciudad y no sois recibidos, salid a sus calles y declarad,
 
 ## Lucas 10:11
 
-‘Aun el polvo de su ciudad que se nos ha pegado a los pies, lo sacudimos contra ustedes. Pero sepan esto: el reino de Dios se ha acercado.’
+‘Aun el polvo de vuestra ciudad que se nos ha pegado a los pies, lo sacudimos contra vosotros. Pero sabed esto: el reino de Dios se ha acercado.’
 
 ## Lucas 10:12
 
-Les digo que en aquel día será más tolerable para Sodoma que para esa ciudad.
+Os digo que en aquel día será más tolerable para Sodoma que para esa ciudad.
 
 ---
 
 ## Lucas 10:13
 
-“¡Ay de ti, Corazín! ¡Ay de ti, Betsaida! Porque si en Tiro y Sidón se hubieran hecho los milagros que se hicieron en ustedes, hace tiempo que se habrían arrepentido, sentados en cilicio y ceniza.
+“¡Ay de ti, Corazín! ¡Ay de ti, Betsaida! Si los milagros que se hicieron en vosotras se hubieran hecho en Tiro y en Sidón, hace mucho que se habrían arrepentido, sentados en cilicio y ceniza.
 
 ## Lucas 10:14
 
-Sin embargo, en el día del juicio será más tolerable para Tiro y Sidón que para ustedes.
+Sin embargo, en el día del juicio será más tolerable para Tiro y Sidón que para vosotras.
 
 ## Lucas 10:15
 
@@ -64,7 +64,7 @@ Y tú, Capernaúm, ¿serás levantada hasta el cielo? No, serás abatida hasta e
 
 ## Lucas 10:16
 
-“Quien los escucha a ustedes, me escucha a mí; quien los rechaza a ustedes, me rechaza a mí; y quien me rechaza a mí, rechaza al que me envió.”
+“Quien os escucha a vosotros, me escucha a mí; quien os rechaza a vosotros, me rechaza a mí; y quien me rechaza a mí, rechaza al que me envió.”
 
 ---
 
@@ -78,17 +78,17 @@ Los setenta y dos regresaron con alegría, diciendo: “Señor, hasta los demoni
 
 ## Lucas 10:19
 
-Les he dado autoridad para pisotear serpientes y escorpiones y para vencer todo el poder del enemigo; nada les hará daño.
+Os he dado autoridad para pisotear serpientes y escorpiones y para vencer todo el poder del enemigo; nada os hará daño.
 
 ## Lucas 10:20
 
-Sin embargo, no se alegren de que los espíritus se les sometan, sino alégrense de que sus nombres están escritos en el cielo.”
+Sin embargo, no os alegréis de que los espíritus se os sometan, sino alegraos de que vuestros nombres están escritos en el cielo.”
 
 ---
 
 ## Lucas 10:21
 
-En ese momento, Jesús, lleno de alegría por el Espíritu Santo, dijo: “Te alabo, Padre, Señor del cielo y de la tierra, porque has escondido estas cosas de los sabios y entendidos, y las has revelado a los niños. Sí, Padre, porque así te agradó.
+En ese momento, Jesús, lleno de alegría por el Espíritu Santo, dijo: “Te alabo, Padre, Señor del cielo y de la tierra, porque has ocultado estas cosas a los sabios y a los instruidos, y se las has revelado a los niños. Sí, Padre, porque así lo quisiste.
 
 ## Lucas 10:22
 
@@ -96,11 +96,11 @@ En ese momento, Jesús, lleno de alegría por el Espíritu Santo, dijo: “Te al
 
 ## Lucas 10:23
 
-Luego se volvió a sus discípulos y les dijo en privado: “Bienaventurados los ojos que ven lo que ustedes ven.
+Luego se volvió a sus discípulos y les dijo en privado: “Bienaventurados los ojos que ven lo que vosotros veis.
 
 ## Lucas 10:24
 
-Porque les digo que muchos profetas y reyes desearon ver lo que ustedes ven, pero no lo vieron, y oír lo que ustedes oyen, pero no lo oyeron.”
+Porque os digo que muchos profetas y reyes desearon ver lo que vosotros veis, pero no lo vieron, y oír lo que vosotros oís, pero no lo oyeron.”
 
 ---
 

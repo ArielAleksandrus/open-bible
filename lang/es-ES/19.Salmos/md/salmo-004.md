@@ -20,21 +20,21 @@
 ## Salmo 4:3
 
 > Pero entended que el Señor ha escogido al fiel para Sí;  
->  El Señor escucha cuando a Él clamo.
+>  el Señor escucha cuando a Él clamo.
 
 ---
 
 ## Salmo 4:4
 
-> Temblad, y no pequéis;  
->  Reflexionad en vuestro corazón estando en vuestra cama, y callad.
+> Temed con reverencia y no pequéis;  
+>  en vuestra cama, pensadlo en silencio dentro de vuestro corazón, y quedaos quietos.
 
 >  Selah
 
 ## Salmo 4:5
 
 > Ofreced sacrificios de justicia,  
->  Y poned vuestra confianza en el Señor.
+>  y poned vuestra confianza en el Señor.
 
 ---
 
@@ -46,11 +46,11 @@
 ## Salmo 4:7
 
 > Has llenado mi corazón de alegría,  
->  Más que cuando abundan su grano y su vino nuevo.
+>  más que cuando abundan su grano y su vino nuevo.
 
 ---
 
 ## Salmo 4:8
 
 > En paz me acostaré y dormiré,  
->  Porque sólo Tú, Señor, me proporcionas seguridad.
+>  porque sólo Tú, Señor, me proporcionas seguridad.

@@ -16,7 +16,7 @@ Los haré objeto de horror para todos los reinos de la tierra por causa de Manas
 “¿Quién tendrá compasión de ti, Jerusalén? ¿Quién llorará por ti? ¿Quién se desviará para preguntar por tu bienestar?
 
 ## Jeremías 15:6
-Me has abandonado,” declara el Señor. “Sigues retrocediendo. Así que extenderé Mi mano contra ti y te destruiré; estoy cansado de ceder.
+Me has abandonado,” declara el Señor. “Sigues apartándote de mí. Así que extenderé Mi mano contra ti y te destruiré; estoy cansado de ceder.
 
 ## Jeremías 15:7
 Los aventaré con una horquilla en las puertas de la tierra; los dejaré sin hijos y destruiré a Mi pueblo, porque no se han arrepentido de sus caminos.
@@ -43,7 +43,7 @@ Daré tus riquezas y tus tesoros como despojo, sin costo, por todos tus pecados 
 Haré que tus enemigos lleven tus posesiones a una tierra que no conoces, porque se ha encendido un fuego en Mi ira, y arderá contra ti.”
 
 ## Jeremías 15:15
-Tú lo sabes, Señor; recuérdame y toma nota de mí. Véngame de mis perseguidores. No me quites la vida, en vista de Tu paciencia; considera cómo sufro el reproche por Tu causa.
+Tú lo sabes, Señor; recuérdame y toma nota de mí. Véngame de mis perseguidores. Por tu paciencia, no me quites la vida; considera cómo sufro el reproche por Tu causa.
 
 ## Jeremías 15:16
 Tus palabras fueron halladas, y las comí; fueron mi gozo y la delicia de mi corazón, porque llevo Tu nombre, Señor Dios de los ejércitos.

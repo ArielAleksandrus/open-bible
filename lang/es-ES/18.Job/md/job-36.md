@@ -2,7 +2,7 @@
 
 ## Job 36:1
 
-Eliú continuó hablando y dijo:
+Elihú continuó hablando y dijo:
 
 ## Job 36:2
 
@@ -115,7 +115,7 @@ Eliú continuó hablando y dijo:
 ## Job 36:23
 
 > ¿Quién ha trazado Su camino para Él,
->  o quién ha dicho, ‘Has hecho mal’?
+>  o quién ha dicho: ‘Has hecho mal’?
 
 ## Job 36:24
 

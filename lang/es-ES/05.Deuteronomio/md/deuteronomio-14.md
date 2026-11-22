@@ -58,7 +58,7 @@ cualquier especie de cuervo,
 
 ## Deuteronomio 14:15
 
-el avestruz, el búho, la gaviota y cualquier tipo de halcón,
+el avestruz, el búho, la gaviota y cualquier tipo de gavilán,
 
 ## Deuteronomio 14:16
 

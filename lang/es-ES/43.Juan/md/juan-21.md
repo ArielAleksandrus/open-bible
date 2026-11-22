@@ -22,7 +22,7 @@ Jesús les llamó, “Hijos, ¿tenéis algo de pescado?” Ellos respondieron, �
 
 ## Juan 21:6
 
-Él les instruyó, “Echad la red a la derecha de la barca, y encontraréis.” La echaron, y no podían sacarla por la gran cantidad de peces.
+Él les dijo: “Echad la red por el lado derecho de la barca y encontraréis peces.” La echaron, y no podían sacarla de tantos peces que había.
 
 ## Juan 21:7
 
@@ -38,7 +38,7 @@ Al llegar a tierra, vieron un fuego de carbón con pescado encima, y pan.
 
 ## Juan 21:10
 
-Jesús les instruyó, “Traed los peces que acabáis de pescar.”
+Jesús les dijo, “Traed los peces que acabáis de pescar.”
 
 ## Juan 21:11
 
@@ -60,7 +60,7 @@ Esta era ya la tercera ocasión que Jesús se aparecía a los discípulos despu�
 
 ## Juan 21:15
 
-Después de haber comido, Jesús dijo a Simón Pedro, “Simón, hijo de Juan, ¿me amas más que estos?” Él respondió, “Sí, Señor, tú sabes que te amo.” Jesús dijo, “Apacienta mis corderos.”
+Cuando terminaron de comer, Jesús le preguntó a Simón Pedro: “Simón, hijo de Juan, ¿me amas más que estos?” Él le contestó: “Sí, Señor, tú sabes que te amo.” Jesús le dijo: “Da de comer a mis corderos.”
 
 ## Juan 21:16
 
@@ -68,7 +68,7 @@ Le preguntó de nuevo, “Simón, hijo de Juan, ¿me amas?” Él respondió, �
 
 ## Juan 21:17
 
-Le preguntó por tercera vez, “Simón, hijo de Juan, ¿me amas?” Pedro se entristeció porque Jesús le preguntó por tercera vez, “¿Me amas?” Él dijo, “Señor, tú lo sabes todo; tú sabes que te amo.” Jesús dijo, “Apacienta mis ovejas.
+Por tercera vez le preguntó: “Simón, hijo de Juan, ¿me amas?” Pedro se puso triste porque Jesús le había preguntado por tercera vez: “¿Me amas?” Y le contestó: “Señor, tú lo sabes todo; tú sabes que te amo.” Jesús le dijo: “Da de comer a mis ovejas.
 
 ## Juan 21:18
 

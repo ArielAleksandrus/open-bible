@@ -10,7 +10,7 @@ Y he aquí, un hombre de Dios vino de Judá a Betel por la palabra del Señor,
 Y clamó contra el altar por la palabra del Señor, y dijo,  
  “Altar, altar, así dice el Señor:  
  ‘He aquí, nacerá un hijo a la casa de David,  
- Josías por nombre;  
+ llamado Josías;  
  y sobre ti sacrificará a los sacerdotes de los lugares altos que queman incienso sobre ti,  
  y sobre ti se quemarán huesos humanos.’”
 
@@ -93,7 +93,7 @@ Y persiguió al hombre de Dios,
  y lo encontró sentado bajo una encina.  
  Y le dijo,  
  “¿Eres tú el hombre de Dios que vino de Judá?”  
- Y él respondió, “Yo soy.”
+ Y él respondió, “Sí, soy yo.”
 
 ## 1 Reyes 13:15
 
@@ -214,8 +214,8 @@ Porque ciertamente se cumplirá la palabra que clamó por la palabra del Señor 
 
 Después de este evento, Jeroboam no se apartó de su mal camino,  
  sino que nuevamente hizo sacerdotes de los lugares altos de entre todo el pueblo;  
- a cualquiera que quería, lo ordenaba,  
- así se convirtieron en sacerdotes de los lugares altos.
+ a cualquiera que lo deseaba lo consagraba,  
+ y así se convertía en sacerdote de los lugares altos.
 
 ## 1 Reyes 13:34
 

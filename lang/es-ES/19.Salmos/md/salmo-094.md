@@ -3,7 +3,7 @@
 ## Salmo 94:1
 
 > Señor, Dios que trae justicia,  
->  Dios que trae justicia, ¡revelate!
+>  Dios que trae justicia, ¡revélate!
 
 ## Salmo 94:2
 
@@ -13,29 +13,29 @@
 ## Salmo 94:3
 
 > ¿Hasta cuándo, Señor,  
->  los malvados —¿Hasta cuándo prevalecerán los malvados—?
+>  los malvados, hasta cuándo prevalecerán los malvados?
 
 ---
 
 ## Salmo 94:4
 
 > Derraman palabras, hablan con arrogancia;  
->  Todos los que hacen el mal se jactan.
+>  todos los que hacen el mal se jactan.
 
 ## Salmo 94:5
 
 > Oprimen a Tu pueblo, Señor,  
->  Y dañan Tu herencia.
+>  y dañan Tu herencia.
 
 ## Salmo 94:6
 
 > Quitan la vida a la viuda y al extranjero,  
->  Y matan a los huérfanos.
+>  y matan a los huérfanos.
 
 ## Salmo 94:7
 
 > Han dicho: “El Señor no observa,  
->  Ni el Dios de Jacob se da cuenta.”
+>  ni el Dios de Jacob se da cuenta.”
 
 ---
 
@@ -46,62 +46,62 @@
 
 ## Salmo 94:9
 
-> El que creó el oído, ¿no oye?  
->  El que formó el ojo, ¿no ve?
+> El que hizo el oído, ¿acaso no va a oír?  
+>  El que dio forma al ojo, ¿acaso no va a ver?
 
 ## Salmo 94:10
 
 > El que instruye a las naciones, ¿no corregirá,  
->  El que imparte conocimiento a la humanidad?
+>  el que imparte conocimiento a la humanidad?
 
 ## Salmo 94:11
 
 > El Señor conoce los pensamientos de la humanidad,  
->  Que son solo un aliento fugaz.
+>  que son solo un aliento fugaz.
 
 ---
 
 ## Salmo 94:12
 
 > Bendito es aquel a quien corriges, Señor,  
->  Y a quien instruyes de Tu Ley,
+>  y a quien instruyes de Tu Ley,
 
 ## Salmo 94:13
 
 > Para que le des alivio en los días de angustia,  
->  Hasta que se prepare un hoyo para los malvados.
+>  hasta que se prepare un hoyo para los malvados.
 
 ## Salmo 94:14
 
-> Porque el Señor no abandonará a Su pueblo,  
->  Ni dejará Su herencia.
+> Porque el Señor no dejará solo a Su pueblo,  
+>  ni abandonará a los que son Su herencia.
 
 ## Salmo 94:15
 
 > Porque la justicia volverá a ser justa,  
->  Y todos los rectos de corazón la seguirán.
+>  y todos los rectos de corazón la seguirán.
 
 ---
 
 ## Salmo 94:16
 
-> ¿Quién se levantará por mí contra los malhechores?  
->  ¿Quién estará conmigo contra los que hacen el mal?
+> ¿Quién me defenderá de los que hacen el mal?  
+>  ¿Quién se pondrá de mi lado frente a los malvados?
 
 ## Salmo 94:17
 
-> Si el Señor no hubiera sido mi apoyo,  
->  Mi alma pronto habría habitado en el silencio.
+> Si el Señor no me hubiera ayudado,  
+>  muy pronto mi alma habría ido a parar al lugar del silencio.
 
 ## Salmo 94:18
 
-> Si dijera: “Mi pie ha resbalado,”  
->  Tu misericordia, Señor, me sostendrá.
+> Si llego a decir: “Mi pie se ha resbalado,  
+> ” Tu misericordia, Señor, me sostiene.
 
 ## Salmo 94:19
 
-> Cuando mis pensamientos ansiosos aumentan dentro de mí,  
->  Tu consuelo trae alegría a mi alma.
+> Cuando la angustia se me amontona por dentro,  
+>  Tu consuelo me llena el alma de alegría.
 
 ---
 
@@ -112,15 +112,15 @@
 
 ## Salmo 94:21
 
-> Se juntan contra la vida del justo Y condenan a muerte al inocente.
+> Se unen contra la vida del que es justo y mandan a la muerte al que no tiene culpa.
 
 ## Salmo 94:22
 
-> Pero el Señor ha sido mi refugio,  
->  Y mi Dios la roca de mi protección.
+> Pero el Señor ha sido mi refugio;  
+>  mi Dios es la roca donde me protejo.
 
 ## Salmo 94:23
 
-> Ha devuelto su maldad sobre ellos,  
->  Y los destruirá en su maldad;  
->  El Señor nuestro Dios los destruirá.
+> Ha hecho caer sobre ellos su propio mal,  
+>  y por su maldad acabará con ellos;  
+>  el Señor nuestro Dios acabará con ellos.

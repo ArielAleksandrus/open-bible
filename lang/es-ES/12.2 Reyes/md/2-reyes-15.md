@@ -23,9 +23,9 @@ Sin embargo, los lugares altos no fueron quitados;
 
 ## 2 Reyes 15:5
 
-Y el Señor afligió al rey, causándole ser leproso hasta el día de su muerte.  
+Y el Señor afligió al rey, y quedó leproso hasta el día de su muerte.  
  Residió en una casa separada,  
- mientras Jotam, el hijo del rey, gestionaba la casa,  
+ mientras Jotam, el hijo del rey, estaba a cargo del palacio,  
  juzgando al pueblo de la tierra.
 
 ## 2 Reyes 15:6
@@ -110,12 +110,12 @@ Hizo lo malo ante los ojos del Señor;
 
 Pul rey de Asiria vino contra la tierra,  
  y Menajem dio a Pul mil talentos de plata,  
- para que su apoyo estuviera con él para asegurar el reino bajo su gobierno.
+ para que lo apoyara y afianzara el reino en su mano.
 
 ## 2 Reyes 15:20
 
 Entonces Menajem exigió el dinero de Israel,  
- de todos los hombres poderosos de riqueza, cincuenta siclos de plata de cada hombre,  
+ de todos los hombres ricos, cincuenta siclos de plata de cada hombre,  
  para dar al rey de Asiria.  
  Así que el rey de Asiria se retiró y no permaneció en la tierra.
 
@@ -147,7 +147,7 @@ Hizo lo malo ante los ojos del Señor;
 
 Entonces Pecaj hijo de Remalías, su oficial,  
  conspiró contra él y lo hirió en Samaria, en la ciudadela de la casa del rey,  
- junto con Argob y Arieh, y con cincuenta hombres de los galaaditas.  
+ junto con Argob y Arié, y con cincuenta hombres de los galaaditas.  
  Y lo mató y tomó el trono en su lugar.
 
 ## 2 Reyes 15:26
@@ -202,7 +202,7 @@ Tenía veinticinco años cuando comenzó a reinar,
 ## 2 Reyes 15:34
 
 Hizo lo correcto ante los ojos del Señor;  
- siguió en todos los caminos de su padre Uzías.
+ anduvo en todos los caminos de su padre Uzías.
 
 ## 2 Reyes 15:35
 
@@ -217,7 +217,7 @@ En cuanto a los otros hechos de Jotam y sus logros,
 
 ## 2 Reyes 15:37
 
-En ese tiempo, el Señor inició el envío de Rezín rey de Aram y Pecaj hijo de Remalías contra Judá.
+En ese tiempo, el Señor comenzó a enviar contra Judá a Rezín rey de Aram y a Pecaj hijo de Remalías.
 
 ## 2 Reyes 15:38
 

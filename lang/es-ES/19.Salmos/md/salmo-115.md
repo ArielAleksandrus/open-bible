@@ -2,84 +2,84 @@
 
 ## Salmo 115:1
 
-> No a nosotros, oh Señor, no a nosotros,  
->  Sino a tu nombre da la gloria,  
->  Por tu misericordia y tu fidelidad.
+> No a nosotros, Señor, no a nosotros,  
+>  sino a tu nombre le corresponde la gloria,  
+>  por tu misericordia y tu fidelidad.
 
 ---
 
 ## Salmo 115:2
 
-> ¿Por qué han de decir las naciones:  
->  “¿Dónde está ahora su Dios?”
+> ¿Por qué tienen que preguntar las naciones:  
+>  “¿Y dónde está ahora su Dios?”
 
 ## Salmo 115:3
 
-> Nuestro Dios está en los cielos;  
->  Él hace todo lo que desea.
+> Pero nuestro Dios está en el cielo;  
+>  Él hace todo lo que quiere.
 
 ## Salmo 115:4
 
-> Sus ídolos son de plata y oro,  
->  Obra de manos humanas.
+> Los ídolos de ellos están hechos de plata y oro;  
+>  los fabricaron manos humanas.
 
 ## Salmo 115:5
 
-> Tienen boca, pero no hablan;  
->  Tienen ojos, pero no ven;
+> Tienen boca, y no pueden hablar;  
+>  tienen ojos, y son incapaces de ver;
 
 ## Salmo 115:6
 
-> Tienen oídos, pero no oyen;  
->  Tienen nariz, pero no huelen;
+> tienen oídos, y no pueden oír;  
+>  tienen nariz, y son incapaces de oler;
 
 ## Salmo 115:7
 
-> Tienen manos, pero no palpan;  
->  Tienen pies, pero no caminan;  
->  No emiten sonido con su garganta.
+> tienen manos, y no pueden tocar;  
+>  tienen pies, y son incapaces de andar;  
+>  de su garganta no sale ni un sonido.
 
 ## Salmo 115:8
 
-> Quienes los hacen serán como ellos,  
->  Así como todos los que confían en ellos.
+> Los que los fabrican acabarán siendo como ellos,  
+>  igual que todos los que confían en ellos.
 
 ---
 
 ## Salmo 115:9
 
-> Oh Israel, confía en el Señor;  
->  Él es tu ayuda y tu escudo.
+> Israel, pon tu confianza en el Señor;  
+>  Él te ayuda y te protege como un escudo.
 
 ## Salmo 115:10
 
-> Casa de Aarón, confía en el Señor;  
->  Él es tu ayuda y tu escudo.
+> Familia de Aarón, pon tu confianza en el Señor;  
+>  Él te ayuda y te protege como un escudo.
 
 ## Salmo 115:11
 
-> Vosotros que teméis al Señor, confiad en el Señor;  
->  Él es vuestra ayuda y vuestro escudo.
+> Vosotros, los que honráis al Señor, poned vuestra confianza en el Señor;  
+>  Él os ayuda y os protege como un escudo.
 
 ---
 
 ## Salmo 115:12
 
-> El Señor se acuerda de nosotros y nos bendecirá.  
->  Bendecirá la casa de Israel;  
->  Bendecirá la casa de Aarón.
+> El Señor se acuerda de nosotros y nos llenará de bendiciones.  
+>  Bendecirá al pueblo de Israel;  
+>  bendecirá a la familia de Aarón.
 
 ## Salmo 115:13
 
-> Bendecirá a los que temen al Señor,  
->  Tanto a pequeños como a grandes.
+> Bendecirá a los que honran al Señor,  
+>  sean pequeños o grandes.
 
 ---
 
 ## Salmo 115:14
 
 > Que el Señor os haga prosperar,  
->  A vosotros y a vuestros hijos.
+>  a vosotros y a vuestros hijos.
 
 ## Salmo 115:15
 
@@ -91,14 +91,14 @@
 ## Salmo 115:16
 
 > Los cielos pertenecen al Señor,  
->  Pero la tierra la ha confiado a la humanidad.
+>  pero la tierra la ha confiado a la humanidad.
 
 ## Salmo 115:17
 
 > Los muertos no alaban al Señor,  
->  Ni ninguno de los que descienden al silencio;
+>  ni ninguno de los que bajan al lugar del silencio;
 
 ## Salmo 115:18
 
-> Pero nosotros bendeciremos al Señor Desde ahora y para siempre.  
+> pero nosotros alabaremos al Señor desde ahora y para siempre.  
 >  ¡Alabado sea el Señor!

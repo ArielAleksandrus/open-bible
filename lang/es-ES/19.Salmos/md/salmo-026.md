@@ -4,8 +4,8 @@
 
 ## Salmo 26:1
 
-> Hazme justicia, Señor, porque he andado en mi integridad,  
->  Y he confiado en el Señor sin titubear.
+> Señor, demuestra que estoy en lo justo, porque he vivido con integridad,  
+>  y he confiado en el Señor sin dudar ni un momento.
 
 ## Salmo 26:2
 
@@ -15,24 +15,24 @@
 ## Salmo 26:3
 
 > Porque Tu amor constante está delante de mis ojos,  
->  Y he seguido Tu verdad.
+>  y he seguido Tu verdad.
 
 ---
 
 ## Salmo 26:4
 
 > No me asocio con personas engañosas,  
->  Ni me uniré con pretendientes.
+>  ni me uniré con hipócritas.
 
 ## Salmo 26:5
 
-> Detesto la reunión de los malhechores,  
->  Y no me sentaré con los impíos.
+> Me repugna la compañía de los que hacen el mal,  
+>  y no me voy a sentar al lado de los malvados.
 
 ## Salmo 26:6
 
 > Lavaré mis manos en inocencia,  
->  Y rodearé Tu altar, Señor,
+>  y rodearé Tu altar, Señor,
 
 ## Salmo 26:7
 
@@ -43,17 +43,17 @@
 ## Salmo 26:8
 
 > Señor, aprecio la morada de Tu casa,  
->  Y el lugar donde habita Tu gloria.
+>  y el lugar donde habita Tu gloria.
 
 ## Salmo 26:9
 
 > No juntes mi alma con los pecadores,  
->  Ni mi vida con los que derraman sangre,
+>  ni mi vida con los que derraman sangre,
 
 ## Salmo 26:10
 
 > En cuyas manos hay maquinaciones malvadas,  
->  Y cuya mano derecha está llena de sobornos.
+>  y cuya mano derecha está llena de sobornos.
 
 ## Salmo 26:11
 
@@ -65,4 +65,4 @@
 ## Salmo 26:12
 
 > Mi pie está en terreno firme;  
->  En las congregaciones, alabaré al Señor.
+>  en las congregaciones, alabaré al Señor.

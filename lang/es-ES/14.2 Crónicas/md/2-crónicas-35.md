@@ -29,28 +29,28 @@ Además, estad en el lugar santo según las secciones de las casas de vuestros p
 
 ## 2 Crónicas 35:6
 
-Ahora sacrificad los animales de la Pascua, santificaos, y preparaos para vuestros compatriotas para llevar a cabo la palabra del Señor por mano de Moisés.”
+Ahora sacrificad los animales de la Pascua, santificaos, y preparadlo todo para vuestros compatriotas para llevar a cabo la palabra del Señor por mano de Moisés.”
 
 ---
 
 ## 2 Crónicas 35:7
 
 Josías contribuyó a los hijos del pueblo, rebaños de corderos y cabritos, todos para las ofrendas de la Pascua,  
- a todos los que estaban presentes, en número de 30,000, junto con 3,000 toros; estos eran de la propiedad del rey.
+ a todos los que estaban presentes, en número de 30 000, junto con 3 000 toros; estos eran de la propiedad del rey.
 
 ---
 
 ## 2 Crónicas 35:8
 
 Sus oficiales también contribuyeron con una ofrenda voluntaria para el pueblo, los sacerdotes y los levitas.  
- Hilkías, Zacarías y Jehiel, los oficiales de la casa de Dios, dieron a los sacerdotes para las ofrendas de la Pascua 2,  
-600 del ganado menor, y 300 toros.
+ Hilcías, Zacarías y Jehiel, los oficiales de la casa de Dios, dieron a los sacerdotes para las ofrendas de la Pascua 2 600 del ganado menor,  
+ y 300 toros.
 
 ## 2 Crónicas 35:9
 
 Conanías, Semaías y Natanael sus hermanos, y Hasabías, Jeiel y Jozabad,  
- los líderes de los levitas, proveyeron para los levitas para las ofrendas de la Pascua 5,  
-000 del ganado menor, y 500 toros.
+ los líderes de los levitas, proveyeron para los levitas para las ofrendas de la Pascua 5 000 del ganado menor,  
+ y 500 toros.
 
 ---
 
@@ -66,7 +66,7 @@ Sacrificaron los animales de la Pascua, y mientras los sacerdotes rociaban la sa
 
 ## 2 Crónicas 35:12
 
-Luego retiraron las ofrendas quemadas para que pudieran darlas a las secciones de las casas de los padres de los hijos del pueblo,  
+Luego retiraron los holocaustos para que pudieran darlas a las secciones de las casas de los padres de los hijos del pueblo,  
  para presentarlas al Señor, como está escrito en el Libro de Moisés.  
  Hicieron esto también con los toros.
 
@@ -78,7 +78,7 @@ Así que asaron los animales de la Pascua al fuego según la ordenanza,
 ## 2 Crónicas 35:14
 
 Después, se prepararon para ellos mismos y para los sacerdotes,  
- ya que los sacerdotes, los hijos de Aarón, estaban ocupados ofreciendo las ofrendas quemadas y la grasa hasta la noche.  
+ ya que los sacerdotes, los hijos de Aarón, estaban ocupados ofreciendo los holocaustos y la grasa hasta la noche.  
  Así, los levitas se prepararon para ellos mismos y para los sacerdotes, los hijos de Aarón.
 
 ---
@@ -95,7 +95,7 @@ Los cantores, los hijos de Asaf, estaban en sus posiciones según el mandato de 
 ## 2 Crónicas 35:16
 
 Así se organizó todo el servicio del Señor en ese día para observar la Pascua,  
- y para ofrecer ofrendas quemadas en el altar del Señor según el mandato del rey Josías.
+ y para ofrecer holocaustos en el altar del Señor según el mandato del rey Josías.
 
 ## 2 Crónicas 35:17
 
@@ -123,10 +123,10 @@ Después de todo esto, cuando Josías había puesto en orden el templo,
 ## 2 Crónicas 35:21
 
 Pero Necao le envió mensajeros, diciendo,  
- “¿Qué negocio tenemos el uno con el otro, rey de Judá?  
+ “¿Qué tengo yo contigo, rey de Judá?  
  No vengo contra ti hoy, sino contra la casa con la que estoy en guerra;  
  y Dios me ha dicho que me apresure.  
- Detente por tu propio bien de interferir con Dios que está conmigo, para que no te destruya.”
+ Por tu propio bien, deja de oponerte a Dios, que está conmigo, para que no te destruya.”
 
 ---
 

@@ -4,25 +4,24 @@
 
 ## Salmo 32:1
 
-> Bienaventurado aquel cuya transgresión es perdonada,  
->  Cuyo pecado es cubierto.
+> Feliz la persona a quien se le han perdonado sus faltas y se le ha borrado su pecado.
 
 ## Salmo 32:2
 
-> Bienaventurado el hombre a quien el Señor no culpa de iniquidad,  
->  Y en cuyo espíritu no hay engaño.
+> Feliz aquel a quien el Señor no le toma en cuenta su culpa,  
+>  y que no tiene en su interior ninguna falsedad.
 
 ---
 
 ## Salmo 32:3
 
-> Mientras callé,  
->  se envejecieron mis huesos En mi gemir todo el día.
+> Mientras no quise hablar de mi falta,  
+>  mi cuerpo se fue debilitando de tanto gemir todo el día.
 
 ## Salmo 32:4
 
-> Porque de día y de noche se agravó sobre mí tu mano;  
->  Se volvió mi verdor en sequedades de verano.
+> Porque de día y de noche tu mano pesaba sobre mí; me quedé sin fuerzas,  
+>  como la tierra seca por el calor del verano.
 
 >  Selah
 
@@ -30,10 +29,10 @@
 
 ## Salmo 32:5
 
-> Mi pecado te declaré,  
->  Y no encubrí mi iniquidad.  
->  Dije: “Confesaré mis transgresiones al Señor”;  
->  Y tú perdonaste la maldad de mi pecado.
+> Te reconocí mi falta,  
+>  no te escondí mi culpa; dije:  
+>  “Voy a confesarle al Señor mis rebeliones”;  
+>  y tú me perdonaste la culpa de mi pecado.
 
 >  Selah
 
@@ -41,14 +40,14 @@
 
 ## Salmo 32:6
 
-> Por esto orará a ti todo santo en el tiempo en que puedas ser hallado;  
->  Ciertamente en la inundación de muchas aguas no llegarán éstas a él.
+> Por eso, que todo el que te es fiel te busque en oración mientras puede encontrarte;  
+>  aunque lleguen grandes inundaciones, las aguas no lo alcanzarán.
 
 ## Salmo 32:7
 
 > Tú eres mi refugio;  
->  Me guardarás de la angustia;  
->  Con cánticos de liberación me rodearás.
+>  me proteges del peligro;  
+>  me rodeas de cantos de victoria.
 
 >  Selah
 
@@ -56,23 +55,23 @@
 
 ## Salmo 32:8
 
-> Te haré entender, y te enseñaré el camino en que debes andar;  
->  Sobre ti fijaré mis ojos.
+> Yo te guiaré y te enseñaré el camino que debes seguir;  
+>  te aconsejaré y no te quitaré la vista de encima.
 
 ## Salmo 32:9
 
-> No seáis como el caballo, o como el mulo, sin entendimiento,  
->  Que han de ser sujetados con cabestro y con freno,  
->  Porque si no, no se acercan a ti.
+> No seáis como el caballo o la mula,  
+>  que no entienden nada y hay que sujetarlos con bocado y riendas,  
+>  porque de otro modo no se acercan a ti.
 
 ## Salmo 32:10
 
-> Muchos dolores habrá para el impío,  
->  Mas al que espera en el Señor, le rodea la misericordia.
+> El malvado tiene muchos sufrimientos,  
+>  pero el que confía en el Señor estará rodeado de su bondad.
 
 ---
 
 ## Salmo 32:11
 
-> Alegraos en el Señor y gozaos, justos;  
->  Y cantad con júbilo todos vosotros los rectos de corazón.
+> Justos, alegraos en el Señor y estad contentos;  
+>  ¡gritad de alegría todos los de corazón sincero!

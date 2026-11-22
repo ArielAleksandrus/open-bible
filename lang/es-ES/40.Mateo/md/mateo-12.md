@@ -86,9 +86,8 @@ Esto fue para cumplir lo que había sido dicho por el profeta Isaías:
 
 ## Mateo 12:20
 
-> No quebrará la caña cascada,
->  ni apagará la mecha que humea,
->  hasta que lleve la justicia a la victoria.
+> No romperá la caña doblada ni apagará la mecha que apenas humea,
+>  hasta que haga triunfar la justicia.
 
 ## Mateo 12:21
 
@@ -110,7 +109,7 @@ Pero cuando los fariseos oyeron esto, dijeron, “Este hombre expulsa demonios s
 
 ## Mateo 12:25
 
-Conociendo sus pensamientos, Jesús les dijo, “Todo reino dividido contra sí mismo es desolado, y toda ciudad o casa dividida contra sí misma no permanecerá.
+Jesús, que sabía lo que estaban pensando, les dijo: “Todo reino dividido contra sí mismo queda arruinado, y ninguna ciudad o familia dividida contra sí misma se mantendrá en pie.
 
 ## Mateo 12:26
 
@@ -130,7 +129,7 @@ Pero si yo expulso demonios por el Espíritu de Dios, entonces ciertamente el re
 
 ## Mateo 12:30
 
-El que no está conmigo, está contra mí, y el que no recoge conmigo, desparrama.
+Quien no está conmigo está en mi contra, y quien no recoge conmigo, esparce.
 
 ---
 
@@ -150,19 +149,19 @@ Cultivad un árbol para que sea bueno, y su fruto será bueno; o dejad que un á
 
 ## Mateo 12:34
 
-¡Generación de víboras! ¿Cómo podéis hablar cosas buenas siendo malos? Porque de la abundancia del corazón habla la boca.
+¡Camada de víboras! ¿Cómo podéis decir algo bueno, si sois malos? Porque la boca habla de lo que está lleno el corazón.
 
 ## Mateo 12:35
 
-El hombre bueno saca cosas buenas del buen tesoro de su corazón, y el hombre malo saca cosas malas del mal tesoro.
+La persona buena saca cosas buenas del bien que tiene guardado, y la persona mala saca cosas malas del mal que tiene guardado.
 
 ## Mateo 12:36
 
-Pero os digo que todos tendrán que dar cuenta en el día del juicio por cada palabra ociosa que hayan hablado.
+Pero os digo que, en el día del juicio, todos tendrán que dar cuenta de cada palabra descuidada que hayan dicho.
 
 ## Mateo 12:37
 
-Porque por tus palabras serás justificado, y por tus palabras serás condenado.”
+Porque por tus palabras serás declarado inocente, y por tus palabras serás condenado.”
 
 ---
 

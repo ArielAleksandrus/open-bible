@@ -6,27 +6,27 @@ Y Dios declaró todas estas palabras:
 
 ## Éxodo 20:2
 
-“Yo soy el Señor tu Dios, que te sacó de la tierra de Egipto, de la casa de servidumbre.
+“Yo soy el Señor tu Dios, el que te libró de Egipto, de la tierra donde vivías como esclavo.
 
 ## Éxodo 20:3
 
-“No tendrás otros dioses delante de mí.
+“No tendrás ningún otro dios fuera de mí.
 
 ## Éxodo 20:4
 
-“No te harás un ídolo en forma de cosa alguna en el cielo arriba, ni en la tierra abajo, ni en las aguas debajo de la tierra.
+“No te fabricarás ningún ídolo con la forma de nada de lo que hay arriba en el cielo, abajo en la tierra o en las aguas que están debajo de la tierra.
 
 ## Éxodo 20:5
 
-No te inclinarás ante ellos ni los servirás; porque yo, el Señor tu Dios, soy un Dios celoso, que visita la iniquidad de los padres sobre los hijos hasta la tercera y cuarta generación de los que me odian,
+No te postrarás ante ellos ni les rendirás culto, porque yo, el Señor tu Dios, soy un Dios celoso, que pido cuentas por la maldad de los padres a sus hijos, hasta la tercera y la cuarta generación de los que me odian,
 
 ## Éxodo 20:6
 
-pero extiende misericordia a miles que me aman y guardan mis mandamientos.
+pero trato con bondad a miles que me aman y cumplen mis mandamientos.
 
 ## Éxodo 20:7
 
-“No tomarás el nombre del Señor tu Dios en vano, porque el Señor no dejará sin castigo a quien tome su nombre en vano.
+“No uses el nombre del Señor tu Dios en vano, porque el Señor no dejará sin castigo a nadie que use mal su nombre.
 
 ## Éxodo 20:8
 
@@ -34,19 +34,19 @@ pero extiende misericordia a miles que me aman y guardan mis mandamientos.
 
 ## Éxodo 20:9
 
-Seis días trabajarás y harás todas tus tareas,
+Tienes seis días para trabajar y hacer todas tus tareas,
 
 ## Éxodo 20:10
 
-pero el séptimo día es día de reposo para el Señor tu Dios. En él no harás trabajo alguno, ni tú, ni tu hijo o hija, ni tu siervo o sierva, ni tu ganado, ni el extranjero que reside en tus ciudades.
+pero el séptimo día es un día de reposo dedicado al Señor tu Dios. Ese día no harás ningún trabajo, ni tú, ni tu hijo, ni tu hija, ni tu siervo, ni tu sierva, ni tu ganado, ni el extranjero que vive en tus ciudades.
 
 ## Éxodo 20:11
 
-Porque en seis días el Señor hizo los cielos y la tierra, el mar, y todo lo que hay en ellos, y descansó el séptimo día. Por eso el Señor bendijo el día de reposo y lo santificó.
+Porque en seis días el Señor creó los cielos y la tierra, el mar y todo lo que hay en ellos, y el séptimo día descansó. Por eso el Señor bendijo el día de reposo y lo declaró santo.
 
 ## Éxodo 20:12
 
-“Honra a tu padre y a tu madre, para que tus días se alarguen en la tierra que el Señor tu Dios te da.
+“Honra a tu padre y a tu madre, para que tengas una larga vida en la tierra que el Señor tu Dios te da.
 
 ## Éxodo 20:13
 
@@ -66,7 +66,7 @@ Porque en seis días el Señor hizo los cielos y la tierra, el mar, y todo lo qu
 
 ## Éxodo 20:17
 
-“No codiciarás la casa de tu prójimo. No codiciarás la esposa de tu prójimo, ni su siervo o sierva, ni su buey o asno, ni cosa alguna que pertenezca a tu prójimo.”
+“No desees la casa de tu prójimo. No desees la esposa de tu prójimo, ni su siervo ni su sierva, ni su buey ni su burro, ni nada que le pertenezca.”
 
 ## Éxodo 20:18
 
@@ -74,7 +74,7 @@ Cuando todo el pueblo vio los truenos y los relámpagos, y oyó el sonido de la 
 
 ## Éxodo 20:19
 
-Y dijeron a Moisés: “Háblanos tú, y escucharemos; pero no deje que Dios nos hable, o moriremos.”
+Y dijeron a Moisés: “Háblanos tú, y escucharemos; pero no dejes que Dios nos hable, o moriremos.”
 
 ## Éxodo 20:20
 
@@ -94,7 +94,7 @@ No hagáis dioses junto a mí; dioses de plata o dioses de oro, no os los haréi
 
 ## Éxodo 20:24
 
-Hazme un altar de tierra, y sacrifica en él tus holocaustos y ofrendas de paz, tus ovejas y tus bueyes. En todo lugar donde haga que mi nombre sea recordado, vendré a ti y te bendeciré.
+Me harás un altar de tierra, y en él sacrificarás tus holocaustos y tus ofrendas de paz, tus ovejas y tus bueyes. En cualquier lugar donde yo disponga que se recuerde mi nombre, iré a ti y te daré mi bendición.
 
 ## Éxodo 20:25
 

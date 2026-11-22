@@ -14,9 +14,9 @@ Después de estos acontecimientos,
 David decidió,
 
 >  “Mostraré bondad a Hanún, el hijo de Nahás,  
->  ya que su padre fue bondadoso conmigo.  
-> ” Así, David envió mensajeros para ofrecer condolencias por la muerte de su padre.  
->  Los siervos de David entraron en la tierra de los hijos de Amón a Hanún para expresar su simpatía.
+>  ya que su padre fue bondadoso conmigo.”  
+>  Así, David envió mensajeros para ofrecer condolencias por la muerte de su padre.  
+>  Los siervos de David llegaron a la tierra de los hijos de Amón, ante Hanún, para expresar su simpatía.
 
 ---
 
@@ -79,7 +79,7 @@ Al enterarse de esto,
 
 Y los hijos de Amón salieron y se alinearon para la batalla a la entrada de la ciudad,
 
->  y los reyes que habían venido estaban por sí mismos en el campo.
+>  y los reyes que habían venido estaban aparte en el campo.
 
 ---
 

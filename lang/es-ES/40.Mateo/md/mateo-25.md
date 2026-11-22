@@ -76,7 +76,7 @@ Pero el que había recibido un talento se fue, cavó un hoyo en la tierra y esco
 
 ## Mateo 25:19
 
-Después de un período significativo, el señor de esos siervos regresó y ajustó cuentas con ellos.
+Después de mucho tiempo, el señor de esos siervos regresó y ajustó cuentas con ellos.
 
 ## Mateo 25:20
 
@@ -84,7 +84,7 @@ El que había recibido cinco talentos se presentó, trayendo cinco más, diciend
 
 ## Mateo 25:21
 
-Su señor le respondió: ‘Bien hecho, buen y fiel siervo. Has sido fiel en lo poco; te pondré a cargo de muchas cosas. Entra en el gozo de tu señor.’
+Su señor le respondió: ‘¡Muy bien, siervo bueno y fiel! Has sido fiel con lo poco; ahora te encargaré de mucho más. Ven a compartir la alegría de tu señor.’
 
 ## Mateo 25:22
 
@@ -92,7 +92,7 @@ El que tenía dos talentos también se presentó y dijo: ‘Señor, me confiaste
 
 ## Mateo 25:23
 
-Su señor le respondió: ‘Bien hecho, buen y fiel siervo. Has sido fiel en lo poco; te pondré a cargo de muchas cosas. Entra en el gozo de tu señor.’
+Su señor le respondió: ‘¡Muy bien, siervo bueno y fiel! Has sido fiel con lo poco; ahora te encargaré de mucho más. Ven a compartir la alegría de tu señor.’
 
 ## Mateo 25:24
 
@@ -138,15 +138,15 @@ Colocará a las ovejas a su derecha y a los cabritos a su izquierda.
 
 ## Mateo 25:34
 
-Entonces el Rey dirá a los de su derecha: ‘Venid, vosotros que sois bendecidos por mi Padre; heredad el reino preparado para vosotros desde la fundación del mundo.
+Entonces el Rey dirá a los que estén a su derecha: ‘Venid, vosotros, a quienes mi Padre ha bendecido; recibid como herencia el reino que se os preparó desde la creación del mundo.
 
 ## Mateo 25:35
 
-Porque cuando tuve hambre, me disteis de comer, cuando tuve sed, me disteis de beber, y cuando fui forastero, me acogisteis,
+Porque cuando tenía hambre, me disteis comida; cuando tenía sed, me disteis algo de beber; y cuando era un extranjero, me acogisteis,
 
 ## Mateo 25:36
 
-Necesité ropa y me proporcionasteis, estuve enfermo y me cuidasteis, estuve en prisión y me visitasteis.’
+Necesité ropa y me vestisteis, estuve enfermo y me cuidasteis, estuve en prisión y me visitasteis.’
 
 ## Mateo 25:37
 
@@ -154,7 +154,7 @@ Sin embargo, los justos le responderán: ‘Señor, ¿cuándo te vimos hambrient
 
 ## Mateo 25:38
 
-¿Cuándo te vimos forastero y te acogimos, o falto de ropa y te proporcionamos?
+¿Cuándo te vimos forastero y te acogimos, o falto de ropa y te vestimos?
 
 ## Mateo 25:39
 
@@ -166,7 +166,7 @@ El Rey responderá: ‘En verdad os digo, lo que hicisteis por uno de los más p
 
 ## Mateo 25:41
 
-Entonces dirá a los de su izquierda: ‘Apartaos de mí, vosotros que sois malditos, y entrad en el fuego eterno preparado para el diablo y sus ángeles.
+Luego dirá a los que estén a su izquierda: ‘Alejaos de mí, vosotros, los malditos, y entrad en el fuego eterno preparado para el diablo y sus ángeles.
 
 ## Mateo 25:42
 
@@ -174,7 +174,7 @@ Porque cuando tuve hambre no me disteis de comer, cuando tuve sed y no me distei
 
 ## Mateo 25:43
 
-Cuando fui forastero y no me acogisteis, cuando necesité ropa y no me proporcionasteis, cuando estuve enfermo y en prisión y no me cuidasteis.’
+Cuando fui forastero y no me acogisteis, cuando necesité ropa y no me vestisteis, cuando estuve enfermo y en prisión y no me cuidasteis.’
 
 ## Mateo 25:44
 
@@ -186,4 +186,4 @@ Ellos también responderán: ‘Señor, ¿cuándo te vimos hambriento o sediento
 
 ## Mateo 25:46
 
-Entonces se irán al castigo eterno, pero los justos a la vida eterna.”
+Entonces estos se irán a un castigo que no tiene fin, pero los justos, a una vida que no tiene fin.”

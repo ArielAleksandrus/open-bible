@@ -130,4 +130,4 @@ Así que ten cuidado de hacer tal como el Señor tu Dios te ha mandado; no te de
 
 ## Deuteronomio 5:33
 
-Sigue todo lo que el Señor tu Dios te ha mandado, para que vivas y prosperes y prolongues tus días en la tierra que poseerás.
+Sigue todo lo que el Señor tu Dios te ha mandado, para que vivas y prosperes y prolongues tus días en la tierra que poseerás.”

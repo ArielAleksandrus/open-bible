@@ -18,7 +18,7 @@ Y el Señor le dijo: “Recorre la ciudad de Jerusalén y marca en la frente a a
 
 ## Ezequiel 9:5
 
-A los otros les dijo en mi oído: “Seguidle por la ciudad y golpead; que vuestro ojo no muestre piedad y no perdonéis.
+A los otros les dijo, mientras yo lo oía: “Seguidle por la ciudad y golpead; que vuestro ojo no muestre piedad y no perdonéis.
 
 ## Ezequiel 9:6
 

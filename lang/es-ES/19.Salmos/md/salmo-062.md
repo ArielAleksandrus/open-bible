@@ -4,28 +4,28 @@
 
 ## Salmo 62:1
 
-> Mi alma espera en silencio solo en Dios;  
->  De Él viene mi salvación.
+> Solo en Dios encuentra reposo mi alma mientras espera en silencio;  
+>  Él es quien me salva.
 
 ## Salmo 62:2
 
 > Solo Él es mi roca y mi salvación,  
->  Mi fortaleza; no seré grandemente conmovido.
+>  Mi fortaleza; no habrá nada que me haga caer del todo.
 
 ---
 
 ## Salmo 62:3
 
 > ¿Hasta cuándo atacaréis a un hombre,  
->  Para derribarlo, todos vosotros,  
->  Como una pared que se inclina, como una cerca que se tambalea?
+>  para derribarlo, todos vosotros,  
+>  como una pared que se inclina, como una cerca que se tambalea?
 
 ## Salmo 62:4
 
-> Solo han ideado derribarlo de su alta posición;  
->  Se complacen en la falsedad;  
->  Bendicen con su boca,  
->  Pero por dentro maldicen.
+> Solo piensan en cómo hacerlo caer de su alto puesto;  
+>  disfrutan con la mentira;  
+>  Dicen bendiciones con la boca,  
+>  pero por dentro maldicen.
 
 >  Selah
 
@@ -33,24 +33,24 @@
 
 ## Salmo 62:5
 
-> Alma mía, permanece en silencio solo ante Dios,  
->  Porque de Él viene mi esperanza.
+> Alma mía, quédate en silencio ante Dios, solo ante Él,  
+>  porque de Él viene lo que espero.
 
 ## Salmo 62:6
 
 > Solo Él es mi roca y mi salvación,  
->  Mi refugio; no seré conmovido.
+>  Mi refugio; nada me hará caer.
 
 ## Salmo 62:7
 
-> Mi salvación y mi honor dependen de Dios;  
->  La roca de mi fortaleza, mi refugio está en Dios.
+> Mi salvación y mi honra dependen de Dios;  
+>  Él es la roca que me da fuerza, en Dios encuentro mi refugio.
 
 ## Salmo 62:8
 
-> Confía en Él en todo momento, pueblo;  
->  Derramad vuestro corazón delante de Él;  
->  Dios es un refugio para nosotros.
+> Pueblo, poned en Él vuestra confianza en todo momento;  
+>  Abridle vuestro corazón;  
+>  Dios es nuestro refugio.
 
 >  Selah
 
@@ -59,24 +59,24 @@
 ## Salmo 62:9
 
 > La gente de baja condición no es más que un soplo, y los de rango son un engaño;  
->  En la balanza suben.  
+>  en la balanza suben.  
 >  Juntos son más ligeros que el aire.
 
 ## Salmo 62:10
 
-> No confiéis en la opresión,  
->  Y no pongáis vana esperanza en el robo;  
->  Si las riquezas aumentan, no fijéis vuestro corazón en ellas.
+> No contéis con la opresión,  
+>  y no pongáis falsas esperanzas en lo robado;  
+>  si vuestras riquezas crecen, no os apeguéis a ellas.
 
 ---
 
 ## Salmo 62:11
 
-> Dios ha hablado una vez;  
->  Dos veces he oído esto:  
->  Que el poder pertenece a Dios;
+> Dios ha hablado una vez,  
+>  Y yo lo he oído dos veces:  
+>  Que el poder es de Dios;
 
 ## Salmo 62:12
 
-> Y tuyo es el amor constante, Señor,  
->  Porque tú pagas a cada uno según sus obras.
+> Y que el amor fiel también es tuyo, Señor,  
+>  porque tú das a cada persona lo que merecen sus obras.

@@ -48,11 +48,11 @@ Cuando la gente lo vio, seleccionaron a treinta compañeros para que estuvieran 
 
 ## Jueces 14:12
 
-Sansón les dijo: “Déjenme proponerles un acertijo. Si pueden resolverlo dentro de los siete días del banquete, les daré treinta prendas de lino y treinta mudas de ropa.
+Sansón les dijo: “Dejadme proponeros un acertijo. Si podéis resolverlo dentro de los siete días del banquete, os daré treinta prendas de lino y treinta mudas de ropa.
 
 ## Jueces 14:13
 
-Pero si no pueden resolverlo, deben darme treinta prendas de lino y treinta mudas de ropa.” Ellos respondieron: “Cuéntanos tu acertijo, para que lo escuchemos.”
+Pero si no podéis resolverlo, debéis darme treinta prendas de lino y treinta mudas de ropa.” Ellos respondieron: “Cuéntanos tu acertijo, para que lo escuchemos.”
 
 ## Jueces 14:14
 
@@ -84,8 +84,8 @@ Antes del atardecer del séptimo día, los hombres de la ciudad le dijeron:
 
  Sansón respondió:
 
->  “Si no hubieran arado con mi novilla,
->  no habrían resuelto mi acertijo.”
+>  “Si no hubierais arado con mi novilla,
+>  no habríais resuelto mi acertijo.”
 
 ## Jueces 14:19
 

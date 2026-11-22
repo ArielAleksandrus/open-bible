@@ -26,7 +26,7 @@ Cuando se toque una segunda alarma, los campamentos al lado sur partirán. Se de
 
 ## Números 10:7
 
-Para convocar a la asamblea, toca las trompetas, pero no suenes una alarma.
+Para convocar a la asamblea, toca las trompetas, pero no toques la alarma.
 
 ## Números 10:8
 
@@ -54,7 +54,7 @@ Partieron por primera vez a la orden del Señor dada por medio de Moisés.
 
 ## Números 10:14
 
-La bandera del campamento de Judá partió primero, por sus divisiones, con Nahsón hijo de Aminadab al mando.
+La bandera del campamento de Judá partió primero, por sus divisiones, con Naasón hijo de Aminadab al mando.
 
 ## Números 10:15
 
@@ -98,7 +98,7 @@ y Abidán hijo de Gedeoni dirigía la división de la tribu de Benjamín.
 
 ## Números 10:25
 
-Finalmente, la bandera del campamento de Dan, que formaba la retaguardia de todos los campamentos, partió por sus divisiones, con Ahiézer hijo de Amisadai al mando.
+Finalmente, la bandera del campamento de Dan, que formaba la retaguardia de todos los campamentos, partió por sus divisiones, con Ahiezer hijo de Amisadai al mando.
 
 ## Números 10:26
 

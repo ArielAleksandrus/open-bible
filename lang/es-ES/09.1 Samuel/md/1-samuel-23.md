@@ -53,7 +53,7 @@ Entonces David dijo: “Señor Dios de Israel, Tu siervo ha oído con certeza qu
 
 ## 1 Samuel 23:11
 
-¿Entregarán los hombres de Keila a mí en sus manos? ¿Descenderá Saúl tal como Tu siervo ha oído?  
+¿Me entregarán los hombres de Keila en sus manos? ¿Descenderá Saúl tal como Tu siervo ha oído?  
  Señor Dios de Israel, te ruego, dile a Tu siervo.”  
  Y el Señor dijo: “Él descenderá.”
 
@@ -143,7 +143,7 @@ Y Saúl iba por un lado de la montaña, y David y sus hombres por el otro lado d
 
 ## 1 Samuel 23:27
 
-Pero un mensajero vino a Saúl, diciendo: “Apresúrate y ven,  
+Pero un mensajero vino a Saúl, diciendo: “¡Apresúrate y ven,  
  porque los filisteos han lanzado un ataque contra la tierra!”
 
 ## 1 Samuel 23:28

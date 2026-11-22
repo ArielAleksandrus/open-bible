@@ -14,11 +14,11 @@ Mientras estaban de pie en sus lugares, leyeron del Libro de la Ley del Señor s
 
 ## Nehemías 9:4
 
-De pie sobre la plataforma de los levitas estaban Jesúa, Baní, Cadmiel, Sebanías, Buní, Serebías, Baní y Quenaní, y clamaron con fuertes voces al Señor su Dios.
+De pie sobre la plataforma de los levitas estaban Jesúa, Bani, Cadmiel, Sebanías, Buni, Serebías, Bani y Quenaní, y clamaron con fuertes voces al Señor su Dios.
 
 ## Nehemías 9:5
 
-Entonces los levitas —Jesúa, Cadmiel, Baní, Hasabneías, Serebías, Hodías, Sebanías y Petahías— dijeron: “Levantaos, bendecid al Señor vuestro Dios, que es de eternidad a eternidad. Sea bendito y exaltado tu glorioso nombre sobre toda bendición y alabanza.
+Entonces los levitas —Jesúa, Cadmiel, Bani, Hasabneías, Serebías, Hodías, Sebanías y Petahías— dijeron: “Levantaos, bendecid al Señor vuestro Dios, que es de eternidad a eternidad. Sea bendito y exaltado tu glorioso nombre sobre toda bendición y alabanza.
 
 ## Nehemías 9:6
 
@@ -38,7 +38,7 @@ Viste la aflicción de nuestros antepasados en Egipto, y escuchaste su clamor ju
 
 ## Nehemías 9:10
 
-Hiciste señales y maravillas contra Faraón, contra todos sus siervos y todo el pueblo de su tierra, porque sabías cómo los trataron con arrogancia. Te hiciste un nombre, que permanece hasta hoy.
+Hiciste señales y maravillas contra el faraón, contra todos sus siervos y todo el pueblo de su tierra, porque sabías cómo los trataron con arrogancia. Te hiciste un nombre, que permanece hasta hoy.
 
 ## Nehemías 9:11
 
@@ -78,7 +78,7 @@ En tu gran compasión, no los abandonaste en el desierto. La columna de nube no 
 
 ## Nehemías 9:20
 
-Les diste tu buen Espíritu para instruirlos, no les negaste tu maná de sus bocas, y les diste agua para su sed.
+Les diste tu buen Espíritu para instruirlos, no retiraste tu maná de sus bocas, y les diste agua para su sed.
 
 ## Nehemías 9:21
 
@@ -114,7 +114,7 @@ Pero tan pronto como tuvieron descanso, volvieron a hacer el mal ante ti; por lo
 
 ## Nehemías 9:29
 
-Les advertiste que volvieran a tu ley, pero actuaron con arrogancia y no escucharon tus mandamientos. Pecaron contra tus ordenanzas, que, si una persona las sigue, vivirá por ellas. Volvieron un hombro terco y endurecieron su cuello, negándose a escuchar.
+Les advertiste que volvieran a tu ley, pero actuaron con arrogancia y no escucharon tus mandamientos. Pecaron contra tus ordenanzas, que, si una persona las sigue, vivirá por ellas. Volvieron la espalda con terquedad y endurecieron su cuello, negándose a escuchar.
 
 ## Nehemías 9:30
 
@@ -128,7 +128,7 @@ No obstante, en tu gran misericordia, no los exterminaste ni los abandonaste, po
 
 ## Nehemías 9:32
 
-Ahora pues, nuestro Dios, el grande, el poderoso y el temible Dios, que guarda su pacto y fidelidad, no dejes que toda la aflicción nos parezca insignificante ante ti, que ha venido sobre nosotros, nuestros reyes, nuestros líderes, nuestros sacerdotes, nuestros profetas, nuestros antepasados y todo tu pueblo, desde los días de los reyes de Asiria hasta hoy.
+Ahora pues, nuestro Dios, el grande, el poderoso y el temible Dios, que guarda su pacto y fidelidad, no tengas por poca cosa toda la aflicción que ha venido sobre nosotros, nuestros reyes, nuestros líderes, nuestros sacerdotes, nuestros profetas, nuestros antepasados y todo tu pueblo, desde los días de los reyes de Asiria hasta hoy.
 
 ## Nehemías 9:33
 
@@ -154,4 +154,4 @@ A causa de nuestros pecados, su abundante producción va a los reyes que has pue
 
 ## Nehemías 9:38
 
-Ahora, debido a todo esto, estamos haciendo un acuerdo vinculante por escrito, y nuestros líderes, nuestros levitas y nuestros sacerdotes están poniendo sus sellos en él.
+Ahora, debido a todo esto, estamos haciendo un acuerdo vinculante por escrito, y nuestros líderes, nuestros levitas y nuestros sacerdotes están poniendo sus sellos en él.”

@@ -3,7 +3,7 @@
 ## 2 Crónicas 32:1
 
 Después de estos actos de fidelidad, Senaquerib, rey de Asiria, vino e invadió Judá,  
- y acampó contra las ciudades fortificadas, y planeó romperlas para sí mismo.
+ y acampó contra las ciudades fortificadas, y pensaba conquistarlas.
 
 ## 2 Crónicas 32:2
 
@@ -36,8 +36,8 @@ Ezequías nombró oficiales militares sobre el pueblo, los reunió en la plaza e
 
 ## 2 Crónicas 32:8
 
-Con él está solo la fuerza de un hombre, pero con nosotros está el Señor nuestro Dios,  
- para ayudarnos y para pelear nuestras batallas.”  
+Él solo cuenta con la fuerza de un hombre, pero nosotros tenemos al Señor nuestro Dios,  
+ que nos ayuda y pelea nuestras batallas.”  
  Y el pueblo confió en las palabras de Ezequías, rey de Judá.
 
 ---
@@ -156,7 +156,7 @@ Ezequías poseía inmensas riquezas y honor; y se hizo tesoros para plata, oro, 
 
 ## 2 Crónicas 32:28
 
-También construyó instalaciones de almacenamiento para la cosecha de grano, vino y aceite, junto con refugios para varios tipos de ganado y recintos para los rebaños.
+también construyó instalaciones de almacenamiento para la cosecha de grano, vino y aceite, junto con refugios para varios tipos de ganado y recintos para los rebaños.
 
 ## 2 Crónicas 32:29
 
@@ -172,7 +172,7 @@ Fue Ezequías quien detuvo la salida superior de las aguas de Gihón y las dirig
 
 Incluso en el asunto de los enviados de los gobernantes de Babilonia,  
  que fueron enviados a él para inquirir sobre la maravilla que había sucedido en la tierra,  
- Dios lo dejó solo solo para probarlo, para que Él supiera todo lo que había en su corazón.
+ Dios lo dejó a solas para probarlo, para que Él supiera todo lo que había en su corazón.
 
 ---
 

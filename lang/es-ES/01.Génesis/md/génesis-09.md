@@ -94,11 +94,11 @@ Pero Sem y Jafet tomaron una prenda, la pusieron sobre sus hombros y caminaron h
 
 ## Génesis 9:24
 
-Cuando Noé despertó de su vino y supo lo que su hijo más joven le había hecho,
+Cuando Noé despertó de su embriaguez y supo lo que su hijo menor le había hecho,
 
 ## Génesis 9:25
 
-dijo, “¡Maldito sea Canaán! El más bajo de los esclavos será para sus hermanos.”
+dijo, “¡Maldito sea Canaán! Será el último de los esclavos de sus hermanos.”
 
 ## Génesis 9:26
 

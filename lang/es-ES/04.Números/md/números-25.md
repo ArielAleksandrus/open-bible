@@ -2,7 +2,7 @@
 
 ## Números 25:1
 
-Mientras Israel estaba en Sitim, el pueblo comenzó a cometer inmoralidades con las hijas de Moab.
+Mientras Israel estaba en Sitim, el pueblo comenzó a cometer inmoralidad sexual con las hijas de Moab.
 
 ## Números 25:2
 
@@ -18,7 +18,7 @@ El Señor instruyó a Moisés: “Toma a todos los líderes del pueblo y ejecút
 
 ## Números 25:5
 
-Entonces Moisés dijo a los jueces de Israel: “Cada uno de vosotros debe dar muerte a aquellos de sus hombres que se han unido a Baal de Peor.”
+Entonces Moisés dijo a los jueces de Israel: “Cada uno de vosotros debe dar muerte a aquellos de vuestros hombres que se han unido a Baal de Peor.”
 
 ## Números 25:6
 
@@ -26,7 +26,7 @@ Luego, un hombre israelita llevó a una mujer madianita a su familia, a la vista
 
 ## Números 25:7
 
-Cuando Fineas, hijo de Eleazar, hijo del sacerdote Aarón, vio esto, se levantó de la asamblea y tomó una lanza en su mano.
+Cuando Finees, hijo de Eleazar, hijo del sacerdote Aarón, vio esto, se levantó de la asamblea y tomó una lanza en su mano.
 
 ## Números 25:8
 
@@ -42,7 +42,7 @@ Entonces el Señor habló a Moisés y dijo,
 
 ## Números 25:11
 
-“Fineas, hijo de Eleazar, hijo del sacerdote Aarón, ha apartado mi ira de los israelitas, porque fue celoso como yo entre ellos, por lo que no destruí a los israelitas en mi celo.
+“Finees, hijo de Eleazar, hijo del sacerdote Aarón, ha apartado mi ira de los israelitas, porque fue celoso como yo entre ellos, por lo que no destruí a los israelitas en mi celo.
 
 ## Números 25:12
 
@@ -54,11 +54,11 @@ Será un pacto de un sacerdocio eterno para él y sus descendientes, porque fue 
 
 ## Números 25:14
 
-El nombre del hombre israelita que fue asesinado con la mujer madianita era Zimri, hijo de Salú, un líder de una familia entre los simeonitas.
+El nombre del hombre israelita que fue muerto con la mujer madianita era Zimri, hijo de Salú, un líder de una familia entre los simeonitas.
 
 ## Números 25:15
 
-El nombre de la mujer madianita que fue asesinada era Cozbi, hija de Zur, un jefe tribal de una familia en Madián.
+El nombre de la mujer madianita que fue muerta era Cozbi, hija de Zur, un jefe tribal de una familia en Madián.
 
 ## Números 25:16
 
@@ -66,8 +66,8 @@ El Señor se dirigió a Moisés, diciendo,
 
 ## Números 25:17
 
-“Traten a los madianitas como enemigos y atáquenlos;
+“Tratad a los madianitas como enemigos y atacadlos;
 
 ## Números 25:18
 
-porque os han tratado como enemigos con su engaño, en el incidente que involucró a Peor y a su hermana Cozbi, hija de un líder madianita, que fue asesinada el día de la plaga por causa de Peor.”
+porque os han tratado como enemigos con su engaño, en el incidente que involucró a Peor y a su hermana Cozbi, hija de un líder madianita, que fue muerta el día de la plaga por causa de Peor.”

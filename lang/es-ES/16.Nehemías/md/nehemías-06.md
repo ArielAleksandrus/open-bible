@@ -19,19 +19,19 @@ Entonces, en la quinta ocasión, Sanbalat envió a su siervo a mí con el mismo 
 que decía: “Se informa entre las naciones —y Gasmú lo confirma— que tú y los judíos estáis planeando rebelaros, y por eso estás reconstruyendo el muro. Según estos informes, tú vas a ser su rey.
 
 ## Nehemías 6:7
-También has designado profetas para proclamar en Jerusalén, ‘¡Hay un rey en Judá!’ Este informe llegará al rey; así que, conferenciemos juntos.”
+También has designado profetas para proclamar en Jerusalén: ‘¡Hay un rey en Judá!’ Este informe llegará al rey; así que reunámonos para hablarlo.”
 
 ## Nehemías 6:8
 Le envié esta respuesta: “Nada de lo que estás diciendo ha ocurrido; lo estás inventando en tu propia mente.”
 
 ## Nehemías 6:9
-Todos ellos intentaban intimidarnos, pensando, “Sus manos se debilitarán para el trabajo, y no se terminará.” Pero oré, “Ahora, Dios, fortalece mis manos.”
+Todos ellos intentaban intimidarnos, pensando: “Sus manos se debilitarán para el trabajo, y no se terminará.” Pero oré: “Ahora, Dios, fortalece mis manos.”
 
 ## Nehemías 6:10
-Fui a la casa de Semaías hijo de Delaías, hijo de Mehetabel, que estaba confinado en casa. Él dijo, “Reunámonos en la casa de Dios, dentro del templo, y cerremos las puertas del templo, porque vienen a matarte —de noche vienen a matarte—.”
+Fui a la casa de Semaías hijo de Delaías, hijo de Mehetabel, que estaba confinado en casa. Él dijo: “Reunámonos en la casa de Dios, dentro del templo, y cerremos las puertas del templo, porque vienen a matarte —de noche vienen a matarte—.”
 
 ## Nehemías 6:11
-Pero yo dije, “¿Debe un hombre como yo huir? ¿Y quién como yo entraría en el templo para salvar su vida? No entraré.”
+Pero yo dije: “¿Debe un hombre como yo huir? ¿Y quién como yo entraría en el templo para salvar su vida? No entraré.”
 
 ## Nehemías 6:12
 Entonces me di cuenta de que Dios no lo había enviado, sino que había pronunciado su profecía contra mí porque Tobías y Sanbalat lo habían contratado.

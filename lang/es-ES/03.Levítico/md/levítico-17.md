@@ -13,16 +13,16 @@ Cualquier miembro de la casa de Israel que sacrifique un buey, un cordero o una 
 y no lo lleve a la entrada de la tienda de reunión para ofrecerlo al Señor delante del tabernáculo, será culpable de derramamiento de sangre. Esa persona ha derramado sangre y debe ser cortada de su pueblo.
 
 ## Levítico 17:5
-Esto es para que los israelitas traigan sus sacrificios, que actualmente están ofreciendo en los campos abiertos, al Señor en la entrada de la tienda de reunión, al sacerdote, y los ofrezcan como ofrendas de comunión.
+Esto es para que los israelitas traigan sus sacrificios, que actualmente están ofreciendo en los campos abiertos, al Señor en la entrada de la tienda de reunión, al sacerdote, y los ofrezcan como ofrendas de paz.
 
 ## Levítico 17:6
 El sacerdote rociará la sangre sobre el altar del Señor en la entrada de la tienda de reunión, y quemará la grasa como aroma agradable al Señor.
 
 ## Levítico 17:7
-No deben ofrecer más sus sacrificios a los demonios de cabra, con los cuales han sido infieles. Esto será una ordenanza perpetua para ellos y para las generaciones futuras.’
+No deben ofrecer más sus sacrificios a los demonios con forma de macho cabrío, con los cuales han sido infieles. Esto será una ordenanza perpetua para ellos y para las generaciones futuras.’
 
 ## Levítico 17:8
-“Diles: ‘Cualquier israelita o cualquier extranjero que viva entre ellos que presente una ofrenda quemada o sacrificio
+“Diles: ‘Cualquier israelita o cualquier extranjero que viva entre ellos que presente un holocausto o sacrificio
 
 ## Levítico 17:9
 y no lo lleve a la entrada de la tienda de reunión para ofrecerlo al Señor debe ser cortado de su pueblo.
@@ -46,4 +46,4 @@ porque la vida de toda criatura está en su sangre. Por eso he dicho a los israe
 Cualquiera, ya sea nativo o extranjero, que coma algo encontrado muerto o desgarrado por animales salvajes debe lavar su ropa y bañarse con agua, y permanecerá ceremonialmente impuro hasta la tarde; entonces estará limpio.
 
 ## Levítico 17:16
-Pero si no lavan su ropa y no se bañan, cargarán con la responsabilidad de su culpa.
+Pero si no lavan su ropa y no se bañan, cargarán con la responsabilidad de su culpa.’”

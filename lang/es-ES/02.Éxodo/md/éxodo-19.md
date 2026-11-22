@@ -50,7 +50,7 @@ Pon límites alrededor del pueblo, advirtiéndoles, ‘Tened cuidado de no subir
 
 ## Éxodo 19:13
 
-Nadie debe tocarlos, sino que serán apedreados o atravesados con flechas; ya sea animal o humano, no vivirán. Solo cuando la trompeta del carnero suene un largo toque podrán acercarse a la montaña.”
+Nadie debe tocarlos, sino que serán apedreados o atravesados con flechas; ya sea animal o humano, no vivirán.’ Solo cuando el cuerno de carnero suene un largo toque podrán acercarse a la montaña.”
 
 ## Éxodo 19:14
 

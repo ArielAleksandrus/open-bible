@@ -9,7 +9,7 @@ Entonces David pasó revista a la gente que estaba con él,
 
 David envió al ejército: un tercio bajo el mando de Joab,  
  un tercio bajo el mando de Abisai, hijo de Sarvia, hermano de Joab,  
- y un tercio bajo el mando de Itai el gitita.  
+ y un tercio bajo el mando de Itai el geteo.  
  Y el rey dijo al pueblo:  
  “Yo mismo saldré con vosotros también.”
 

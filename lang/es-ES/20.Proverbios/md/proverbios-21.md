@@ -70,7 +70,7 @@ Una persona sabia puede escalar la ciudad de los poderosos y derribar la fortale
 Los que guardan su boca y su lengua se protegen de problemas.
 
 ## Proverbios 21:24
-La persona orgullosa y arrogante, conocida como "Burlador", actúa con insolente orgullo.
+La persona orgullosa y arrogante, conocida como “Burlador”, actúa con insolente orgullo.
 
 ## Proverbios 21:25
 El deseo del perezoso será su ruina, porque sus manos se niegan a trabajar.
@@ -82,7 +82,7 @@ Todo el día anhela, pero los justos dan generosamente sin retener.
 El sacrificio de los malvados es detestable, y aún más cuando se ofrece con mala intención.
 
 ## Proverbios 21:28
-Un testigo falso perecerá, pero el que escucha hablará con resistencia.
+Un testigo falso perecerá, pero el que escucha hablará siempre.
 
 ## Proverbios 21:29
 Una persona malvada pone cara dura, pero el recto reflexiona cuidadosamente sobre sus caminos.

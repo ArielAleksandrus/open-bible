@@ -4,18 +4,18 @@
 
 ## Salmo 46:1
 
-> Dios es nuestro refugio y fortaleza,  
->  Una ayuda muy presente en tiempos de angustia.
+> Dios es nuestro refugio y nuestra fuerza,  
+>  una ayuda siempre cercana en los momentos difíciles.
 
 ## Salmo 46:2
 
-> Por tanto, no temeremos,  
->  aunque la tierra tiemble Y los montes caigan en las profundidades del mar;
+> Por eso no tendremos miedo,  
+>  aunque tiemble la tierra Y las montañas se hundan en lo profundo del mar;
 
 ## Salmo 46:3
 
-> Aunque sus aguas rujan y se agiten,  
->  Aunque los montes tiemblen ante su soberbia.
+> Aunque sus aguas rujan y se llenen de espuma,  
+>  aunque las montañas se estremezcan con su furia.
 
 >  Selah
 
@@ -23,13 +23,13 @@
 
 ## Salmo 46:4
 
-> Hay un río cuyas corrientes alegran la ciudad de Dios,  
->  Las moradas sagradas del Altísimo.
+> Hay un río cuyas corrientes llenan de alegría la ciudad de Dios,  
+>  el lugar santo donde vive el Altísimo.
 
 ## Salmo 46:5
 
-> Dios está en medio de ella, no será conmovida;  
->  Dios la asistirá al romper el alba.
+> Dios vive en ella, nada la hará caer;  
+>  Dios vendrá en su ayuda al amanecer.
 
 ## Salmo 46:6
 
@@ -40,8 +40,8 @@
 
 ## Salmo 46:7
 
-> El Señor Todopoderoso está con nosotros;  
->  El Dios de Jacob es nuestro refugio.
+> El Señor de los ejércitos está con nosotros;  
+>  el Dios de Jacob es nuestra fortaleza.
 
 >  Selah
 
@@ -50,7 +50,7 @@
 ## Salmo 46:8
 
 > Venid, contemplad las obras del Señor,  
->  Que ha traído acontecimientos asombrosos sobre la tierra.
+>  que ha traído acontecimientos asombrosos sobre la tierra.
 
 ## Salmo 46:9
 
@@ -60,15 +60,15 @@
 
 ## Salmo 46:10
 
-> “Estad quietos y reconoced que yo soy Dios;  
->  Seré exaltado entre las naciones,  
->  Seré exaltado en la tierra.”
+> “Quedaos quietos y reconoced que yo soy Dios;  
+>  Las naciones me darán honra,  
+>  Toda la tierra me dará honra.”
 
 ---
 
 ## Salmo 46:11
 
-> El Señor Todopoderoso está con nosotros;  
->  El Dios de Jacob es nuestro refugio.
+> El Señor de los ejércitos está con nosotros;  
+>  el Dios de Jacob es nuestra fortaleza.
 
 >  Selah

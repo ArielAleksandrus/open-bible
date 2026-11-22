@@ -19,9 +19,9 @@ Y Él preguntó: “¿Qué ves, Amós?” Yo respondí: “Una canasta de fruta 
 ## Amós 8:5
 
 > “¿Cuándo pasará la Luna Nueva para que podamos vender grano,
->  y el sábado termine para que podamos comerciar trigo?”
->  —reduciendo la medida, inflando el precio,
->  y engañando con balanzas deshonestas,—
+>  y el sábado termine para que podamos comerciar trigo?
+> ”, reduciendo la medida,
+>  inflando el precio y engañando con balanzas deshonestas,
 
 ## Amós 8:6
 

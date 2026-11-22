@@ -4,7 +4,7 @@
 
 Entonces el rey David dijo a toda la asamblea:
 
->  “Mi hijo Salomón, a quien solo Dios ha elegido, es joven e inexperto,  
+>  “Mi hijo Salomón, el único a quien Dios ha elegido, es joven e inexperto,  
 >  y la obra es grande;  
 >  porque el templo no es para la humanidad, sino para el Señor Dios.
 
@@ -35,8 +35,8 @@ Además, porque me deleito en la casa de mi Dios,
 
 ## 1 Crónicas 29:4
 
-> específicamente, 3,000 talentos de oro (del oro de Ofir),  
->  y 7,000 talentos de plata refinada,  
+> específicamente, 3 000 talentos de oro (del oro de Ofir),  
+>  y 7 000 talentos de plata refinada,  
 >  para revestir las paredes de los edificios;
 
 ---
@@ -62,10 +62,10 @@ Entonces los líderes de las casas paternas, los líderes de las tribus de Israe
 
 y para el servicio de la casa de Dios dieron:
 
->  5,000 talentos y 10,000 monedas de oro,  
->  10,000 talentos de plata,  
->  18,000 talentos de bronce,  
->  y 100,000 talentos de hierro.
+>  5 000 talentos y 10 000 monedas de oro,  
+>  10 000 talentos de plata,  
+>  18 000 talentos de bronce,  
+>  y 100 000 talentos de hierro.
 
 ---
 
@@ -171,10 +171,10 @@ Así que David alabó al Señor en presencia de toda la asamblea;
 
 ## 1 Crónicas 29:20
 
-Entonces David se dirigió a toda la asamblea,
+Entonces David se dirigió a toda la asamblea:
 
->  “Ahora alaben al Señor su Dios.”  
->  Y toda la asamblea alabó al Señor, el Dios de sus padres,  
+>  “Ahora alabad al Señor vuestro Dios.  
+> ” Y toda la asamblea alabó al Señor, el Dios de sus padres,  
 >  y se inclinaron y rindieron homenaje al Señor y al rey.
 
 ---

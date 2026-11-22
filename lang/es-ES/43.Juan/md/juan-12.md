@@ -30,7 +30,7 @@ Jesús respondió, “Déjala en paz. Era necesario que guardara este perfume pa
 
 ## Juan 12:8
 
-Siempre tendrán a los necesitados con ustedes, pero no siempre me tendrán a mí.”
+Siempre tendréis a los necesitados con vosotros, pero no siempre me tendréis a mí.”
 
 ---
 
@@ -66,9 +66,9 @@ Jesús encontró un burro joven y se sentó sobre él, cumpliendo lo que estaba 
 
 ## Juan 12:15
 
-> “No temas, hija de Sión;
->  mira, tu rey viene,
->  montado en un pollino de asna.”
+> “No tengas miedo, hija de Sion;
+>  mira,
+>  tu rey viene sentado sobre la cría de una burra.”
 
 ## Juan 12:16
 
@@ -84,7 +84,7 @@ Mucha gente, al oír acerca de esta señal milagrosa, salió a su encuentro.
 
 ## Juan 12:19
 
-Entonces los fariseos se dijeron unos a otros, “Miren, esto no nos lleva a ninguna parte. ¡Miren cómo todos se van tras él!”
+Entonces los fariseos se dijeron unos a otros, “Mirad, esto no nos lleva a ninguna parte. ¡Mirad cómo todos se van tras él!”
 
 ---
 
@@ -106,7 +106,7 @@ Jesús respondió, “Ha llegado la hora de que el Hijo del Hombre sea glorifica
 
 ## Juan 12:24
 
-En verdad, en verdad les digo que, si el grano de trigo no cae en la tierra y muere, queda solo; pero si muere, lleva mucho fruto.
+En verdad, en verdad os digo que, si el grano de trigo no cae en la tierra y muere, queda como un solo grano; pero si muere, da mucho fruto.
 
 ## Juan 12:25
 
@@ -120,7 +120,7 @@ Si alguien me sirve, debe seguirme; y donde yo esté, allí estará también mi 
 
 ## Juan 12:27
 
-“Ahora mi alma está turbada, y ¿qué diré? ‘Padre, sálvame de esta hora’? No, para esto he venido a esta hora.
+“Ahora mi alma está turbada, y ¿qué diré? ¿‘Padre, sálvame de esta hora’? No, para esto he venido a esta hora.
 
 ## Juan 12:28
 
@@ -132,7 +132,7 @@ La multitud que estaba allí y lo oyó decía que había tronado; otros decían,
 
 ## Juan 12:30
 
-Jesús dijo, “Esta voz vino para su beneficio, no para el mío.
+Jesús dijo, “Esta voz vino para vuestro beneficio, no para el mío.
 
 ## Juan 12:31
 
@@ -154,11 +154,11 @@ La multitud respondió, “Hemos oído de la Ley que el Mesías permanecerá par
 
 ## Juan 12:35
 
-Entonces Jesús les dijo, “Van a tener la luz solo un poco más de tiempo. Caminen mientras tienen la luz, antes de que la oscuridad los alcance. El que camina en la oscuridad no sabe a dónde va.
+Entonces Jesús les dijo, “Vais a tener la luz solo un poco más de tiempo. Caminad mientras tenéis la luz, antes de que la oscuridad os alcance. El que camina en la oscuridad no sabe a dónde va.
 
 ## Juan 12:36
 
-Confíen en la luz mientras tienen la luz, para que se conviertan en hijos de la luz.” Cuando terminó de hablar, Jesús se fue y se escondió de ellos.
+Confiad en la luz mientras tenéis la luz, para que os convirtáis en hijos de la luz.” Cuando terminó de hablar, Jesús se fue y se escondió de ellos.
 
 ---
 

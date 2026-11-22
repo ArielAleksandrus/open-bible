@@ -44,7 +44,7 @@ si hace lo malo ante Mis ojos al no obedecer Mi voz, entonces reconsideraré el 
 
 ## Jeremías 18:11
 
-Ahora pues, habla al pueblo de Judá y a los habitantes de Jerusalén, diciendo: ‘Esto es lo que dice el Señor: “He aquí, estoy formando un desastre contra vosotros y planeando un plan contra vosotros. ¡Volved ahora, cada uno de su mal camino, y enmendad vuestros caminos y vuestras obras!”’
+Ahora pues, habla al pueblo de Judá y a los habitantes de Jerusalén, diciendo: ‘Esto es lo que dice el Señor: “He aquí, estoy formando un desastre contra vosotros y trazando un plan contra vosotros. ¡Volved ahora, cada uno de su mal camino, y enmendad vuestros caminos y vuestras obras!”’
 
 ## Jeremías 18:12
 
@@ -60,7 +60,7 @@ Por lo tanto, esto es lo que dice el Señor: ‘Preguntad entre las naciones, ¿
 
 ## Jeremías 18:15
 
-Sin embargo, Mi pueblo se ha olvidado de Mí; queman incienso a ídolos inútiles, y han tropezado en sus caminos, en las sendas antiguas, para caminar por senderos, no por un camino alto.
+Sin embargo, Mi pueblo se ha olvidado de Mí; queman incienso a ídolos inútiles, y han tropezado en sus caminos, en las sendas antiguas, para caminar por senderos, no por la calzada.
 
 ## Jeremías 18:16
 

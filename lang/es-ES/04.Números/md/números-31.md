@@ -22,7 +22,7 @@ Así que fueron seleccionados de entre los miles de Israel, mil de cada tribu, d
 
 ## Números 31:6
 
-Moisés los envió a la guerra, mil de cada tribu, junto con Fineas, hijo de Eleazar el sacerdote, quien llevó consigo los artículos sagrados y las trompetas para dar la alarma.
+Moisés los envió a la guerra, mil de cada tribu, junto con Finees, hijo de Eleazar el sacerdote, quien llevó consigo los artículos sagrados y las trompetas para dar la alarma.
 
 ## Números 31:7
 
@@ -102,7 +102,7 @@ El Señor habló a Moisés, diciendo,
 
 ## Números 31:26
 
-“Tú y Eleazar el sacerdote y los jefes de las casas paternas de la congregación debéis hacer un censo de los despojos que fueron capturados, tanto de personas como de ganado;
+“Tú y Eleazar el sacerdote y los jefes de las casas paternas de la congregación debéis contar los despojos que fueron capturados, tanto de personas como de ganado;
 
 ## Números 31:27
 
@@ -118,7 +118,7 @@ tomadlo de su parte, y presentadlo a Eleazar el sacerdote como una contribución
 
 ## Números 31:30
 
-De la mitad de los israelitas, tomad uno de cada cincuenta de las personas, ganado, asnos, ovejas y otros animales, y dadlos a los levitas que realizan el servicio del tabernáculo del Señor.”
+De la mitad que corresponde a los israelitas, tomad uno de cada cincuenta de las personas, ganado, asnos, ovejas y otros animales, y dadlos a los levitas que realizan el servicio del tabernáculo del Señor.”
 
 ## Números 31:31
 
@@ -126,7 +126,7 @@ Moisés y Eleazar el sacerdote llevaron a cabo las instrucciones del Señor a Mo
 
 ## Números 31:32
 
-Los despojos restantes del botín que los hombres de guerra habían tomado eran 675,000 ovejas,
+Los despojos restantes del botín que los hombres de guerra habían tomado eran 675 000 ovejas,
 
 ## Números 31:33
 
@@ -142,7 +142,7 @@ y treinta y dos mil mujeres que no habían conocido varón íntimamente.
 
 ## Números 31:36
 
-La mitad de los que fueron a la guerra fue: 337,500 ovejas,
+La mitad que correspondió a los que fueron a la guerra fue: 337 500 ovejas,
 
 ## Números 31:37
 
@@ -166,11 +166,11 @@ Moisés dio el tributo, que era la ofrenda del Señor, a Eleazar el sacerdote, s
 
 ## Números 31:42
 
-En cuanto a la mitad de los israelitas, que Moisés separó de los hombres que habían ido a la guerra—
+En cuanto a la mitad que correspondió a los israelitas, que Moisés separó de los hombres que habían ido a la guerra—
 
 ## Números 31:43
 
-la mitad de la congregación fue 337,500 ovejas,
+la mitad de la congregación fue 337 500 ovejas,
 
 ## Números 31:44
 
@@ -186,7 +186,7 @@ y un total de dieciséis mil personas.
 
 ## Números 31:47
 
-De la mitad de los israelitas, Moisés tomó uno de cada cincuenta, tanto de personas como de animales, y los dio a los levitas que realizan el servicio del tabernáculo del Señor, como el Señor mandó a Moisés.
+De la mitad que correspondió a los israelitas, Moisés tomó uno de cada cincuenta, tanto de personas como de animales, y los dio a los levitas que realizan el servicio del tabernáculo del Señor, como el Señor mandó a Moisés.
 
 ## Números 31:48
 
@@ -206,7 +206,7 @@ Moisés y Eleazar el sacerdote aceptaron de ellos el oro, todos los artículos t
 
 ## Números 31:52
 
-Todo el oro de la ofrenda que ofrecieron al Señor, de los comandantes de miles y comandantes de cientos, pesó 16,750 siclos.
+Todo el oro de la ofrenda que ofrecieron al Señor, de los comandantes de miles y comandantes de cientos, pesó 16 750 siclos.
 
 ## Números 31:53
 

@@ -104,7 +104,7 @@ entonces los reyes que se sientan en el trono de David pasarán por las puertas 
 
 ## Jeremías 17:26
 
-Vendrá gente de las ciudades de Judá y de las áreas alrededor de Jerusalén, de la tierra de Benjamín, de la llanura, de la región montañosa y del Néguev, trayendo holocaustos, sacrificios, ofrendas de grano e incienso, y trayendo ofrendas de acción de gracias a la casa del Señor.
+Vendrá gente de las ciudades de Judá y de las áreas alrededor de Jerusalén, de la tierra de Benjamín, de la llanura, de la región montañosa y del Néguev, trayendo holocaustos, sacrificios, ofrendas de cereal e incienso, y trayendo ofrendas de acción de gracias a la casa del Señor.
 
 ## Jeremías 17:27
 

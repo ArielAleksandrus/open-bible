@@ -136,7 +136,7 @@ El segundo es: ‘Ama a tu prójimo como a ti mismo.’ No hay otros mandamiento
 
 ## Marcos 12:33
 
-Tienes razón al decir que amarlo con todo tu corazón, con todo tu entendimiento y con todas tus fuerzas, y amar a tu prójimo como a ti mismo es más importante que todas las ofrendas quemadas y sacrificios.”
+Tienes razón al decir que amarlo con todo tu corazón, con todo tu entendimiento y con todas tus fuerzas, y amar a tu prójimo como a ti mismo es más importante que todos los holocaustos y sacrificios.”
 
 ## Marcos 12:34
 

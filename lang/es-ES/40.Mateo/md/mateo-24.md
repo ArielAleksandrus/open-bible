@@ -6,7 +6,7 @@ Jesús salió del templo y se iba, cuando se acercaron sus discípulos para most
 
 ## Mateo 24:2
 
-Él les respondió: “¿Veis todo esto? En verdad os digo que no quedará aquí piedra sobre piedra que no sea derribada.”
+Él les respondió: “¿Veis todo esto? En verdad os digo que aquí no va a quedar ni una piedra encima de otra; todas serán derribadas.”
 
 ---
 
@@ -24,11 +24,11 @@ Porque muchos vendrán en mi nombre, diciendo: ‘Yo soy el Mesías,’ y engañ
 
 ## Mateo 24:6
 
-Oiréis de guerras y rumores de guerras; mirad que no os alarméis. Es necesario que todo esto ocurra, pero aún no es el fin.
+Oiréis hablar de guerras y de rumores de guerras; cuidad de no alarmaros. Todo eso tiene que suceder, pero todavía no es el fin.
 
 ## Mateo 24:7
 
-Se levantará nación contra nación, y reino contra reino. Habrá hambres y terremotos en diversos lugares.
+Unas naciones se levantarán contra otras, y unos reinos se enfrentarán a otros. Habrá hambre y terremotos en muchos lugares.
 
 ## Mateo 24:8
 
@@ -58,13 +58,13 @@ pero el que persevere hasta el fin se salvará.
 
 ## Mateo 24:14
 
-Y este evangelio del reino será proclamado en todo el mundo como testimonio a todas las naciones, y entonces vendrá el fin.
+Y este evangelio del reino se proclamará por el mundo entero como testimonio ante todas las naciones, y entonces llegará el fin.
 
 ---
 
 ## Mateo 24:15
 
-“Por tanto, cuando veáis en el lugar santo la abominación desoladora de la que habló el profeta Daniel —el que lea, entienda—
+“Así que, cuando veáis en el lugar santo la abominación que causa desolación, de la que habló el profeta Daniel —que el lector entienda—
 
 ## Mateo 24:16
 
@@ -88,7 +88,7 @@ Orad para que vuestra huida no suceda en invierno ni en sábado.
 
 ## Mateo 24:21
 
-Porque habrá entonces gran tribulación, como no la ha habido desde el principio del mundo hasta ahora, ni la habrá jamás.
+Porque entonces vendrá una gran tribulación, sin igual desde que el mundo comenzó hasta ahora, y nunca más habrá otra igual.
 
 ## Mateo 24:22
 
@@ -114,7 +114,7 @@ Por tanto, si os dicen, ‘Está en el desierto,’ no salgáis; o, ‘Está en 
 
 ## Mateo 24:27
 
-Porque así como el relámpago sale del oriente y se ve hasta el occidente, así será la venida del Hijo del Hombre.
+Porque la venida del Hijo del Hombre será como el relámpago, que sale por el oriente y se ve hasta el occidente.
 
 ## Mateo 24:28
 
@@ -133,21 +133,21 @@ Dondequiera que esté el cadáver, allí se reunirán los buitres.
 
 ## Mateo 24:30
 
-Entonces aparecerá la señal del Hijo del Hombre en el cielo. Y entonces todas las naciones de la tierra harán duelo cuando vean al Hijo del Hombre viniendo sobre las nubes del cielo con poder y gran gloria.
+Entonces aparecerá en el cielo la señal del Hijo del Hombre. Todos los pueblos de la tierra se lamentarán al ver al Hijo del Hombre llegar sobre las nubes del cielo con poder y gran gloria.
 
 ## Mateo 24:31
 
-Y enviará a sus ángeles con gran voz de trompeta, y reunirán a sus elegidos de los cuatro vientos, de un extremo del cielo al otro.
+Él enviará a sus ángeles con un fuerte toque de trompeta, y ellos juntarán a sus escogidos desde los cuatro vientos, de un extremo al otro del cielo.
 
 ---
 
 ## Mateo 24:32
 
-“Aprended de la higuera esta lección: Tan pronto como sus ramas se ponen tiernas y brotan las hojas, sabéis que el verano está cerca.
+“Aprended esta lección de la higuera: en cuanto sus ramas se ablandan y echan hojas, os dais cuenta de que el verano está cerca.
 
 ## Mateo 24:33
 
-De la misma manera, cuando veáis todas estas cosas, sabed que está cerca, a las puertas.
+Del mismo modo, cuando veáis todas estas cosas, sabréis que está cerca, ya a la puerta.
 
 ## Mateo 24:34
 
@@ -155,7 +155,7 @@ En verdad os digo que esta generación no pasará hasta que todas estas cosas su
 
 ## Mateo 24:35
 
-El cielo y la tierra pasarán, pero mis palabras no pasarán.
+El cielo y la tierra desaparecerán, pero mis palabras jamás desaparecerán.
 
 ---
 
@@ -165,11 +165,11 @@ El cielo y la tierra pasarán, pero mis palabras no pasarán.
 
 ## Mateo 24:37
 
-Así como fue en los días de Noé, así será en la venida del Hijo del Hombre.
+Lo que pasó en tiempos de Noé es lo que pasará cuando venga el Hijo del Hombre.
 
 ## Mateo 24:38
 
-Porque en los días antes del diluvio, la gente comía y bebía, se casaban y se daban en matrimonio, hasta el día en que Noé entró en el arca;
+Porque en los días anteriores al diluvio, la gente seguía comiendo y bebiendo, casándose y casando a sus hijos, hasta el día en que Noé entró en el arca;
 
 ## Mateo 24:39
 
@@ -177,11 +177,11 @@ y no se dieron cuenta de lo que sucedería hasta que vino el diluvio y se los ll
 
 ## Mateo 24:40
 
-Dos hombres estarán en el campo; uno será llevado y el otro dejado.
+Dos hombres estarán en el campo; a uno se lo llevarán y el otro se quedará.
 
 ## Mateo 24:41
 
-Dos mujeres estarán moliendo con un molino de mano; una será llevada y la otra dejada.
+Dos mujeres estarán moliendo con un molino de mano; a una se la llevarán y la otra se quedará.
 
 ---
 
@@ -201,11 +201,11 @@ Así que también vosotros debéis estar preparados, porque el Hijo del Hombre l
 
 ## Mateo 24:45
 
-“¿Quién es, pues, el siervo fiel y prudente, a quien su señor ha puesto al frente de los de su casa para darles la comida a su debido tiempo?
+“¿Quién es, entonces, el siervo fiel y sensato a quien su señor ha puesto al frente de los criados de su casa para darles la comida a la hora debida?
 
 ## Mateo 24:46
 
-Bienaventurado aquel siervo a quien su señor, cuando venga, lo encuentre haciendo así.
+Dichoso ese siervo si, cuando su señor regrese, lo encuentra cumpliendo con su tarea.
 
 ## Mateo 24:47
 
@@ -221,7 +221,7 @@ y luego comienza a maltratar a sus compañeros siervos y a comer y beber con bor
 
 ## Mateo 24:50
 
-El señor de ese siervo llegará un día en que no lo espera y a una hora que no sabe.
+El señor de ese siervo llegará el día que menos lo espera y a una hora que no conoce.
 
 ## Mateo 24:51
 

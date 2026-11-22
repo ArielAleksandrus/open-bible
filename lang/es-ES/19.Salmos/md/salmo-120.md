@@ -4,13 +4,13 @@
 
 ## Salmo 120:1
 
-> En mi angustia clamé al Señor,  
->  Y Él me respondió.
+> Cuando estaba en apuros llamé al Señor,  
+>  y Él me contestó.
 
 ## Salmo 120:2
 
-> Señor, salva mi alma de labios mentirosos,  
->  De una lengua engañosa.
+> Señor,  
+>  salva mi vida de los labios que mienten y de la lengua que engaña.
 
 ---
 
@@ -28,12 +28,12 @@
 
 ## Salmo 120:5
 
-> ¡Ay de mí, porque habito en Mesec,  
->  Y he hecho mi hogar entre las tiendas de Cedar!
+> ¡Pobre de mí,  
+>  que vivo como extranjero en Mesec y tengo mi casa entre las tiendas de Cedar!
 
 ## Salmo 120:6
 
-> Mi alma ha habitado demasiado tiempo Entre los que están contra la paz.
+> Ya he vivido demasiado tiempo entre gente que está en contra de la paz.
 
 ## Salmo 120:7
 

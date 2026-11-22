@@ -90,7 +90,7 @@ Entonces el ángel del Señor tocó la carne y los panes sin levadura con la pun
 
 ## Jueces 6:22
 
-Cuando Gedeón comprendió que era el ángel del Señor, exclamó: “¡Ay, Señor Soberano! ¡He visto al ángel del Señor cara a cara!”
+Cuando Gedeón comprendió que era el ángel del Señor, exclamó: “¡Ay, Señor Dios! ¡He visto al ángel del Señor cara a cara!”
 
 ## Jueces 6:23
 

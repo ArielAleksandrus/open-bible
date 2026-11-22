@@ -26,7 +26,7 @@ El ángel me dijo: “Estas palabras son fieles y verdaderas. El Señor, el Dios
 
 ## Apocalipsis 22:7
 
-“He aquí, vengo pronto. Bienaventurado el que guarda las palabras de la profecía de este libro.”
+“¡Mirad, vengo pronto! Dichoso el que obedece las palabras de la profecía de este libro.”
 
 ## Apocalipsis 22:8
 
@@ -34,7 +34,7 @@ Yo, Juan, soy el que oyó y vio estas cosas. Y cuando las oí y las vi, me postr
 
 ## Apocalipsis 22:9
 
-Pero él me dijo: “¡No hagas eso! Soy un consiervo contigo y con tus hermanos los profetas, y con los que guardan las palabras de este libro. ¡Adora a Dios!”
+Pero él me dijo: “¡No hagas eso! Yo soy consiervo tuyo, de tus hermanos los profetas y de los que guardan las palabras de este libro. ¡Adora a Dios!”
 
 ## Apocalipsis 22:10
 
@@ -46,7 +46,7 @@ Que el que hace mal siga haciendo mal; que el vil siga siendo vil; que el justo 
 
 ## Apocalipsis 22:12
 
-“He aquí, vengo pronto, y Mi recompensa está conmigo, para dar a cada uno según lo que haya hecho.
+“¡Mirad, vengo pronto, y traigo conmigo Mi recompensa, para dar a cada uno según lo que haya hecho!
 
 ## Apocalipsis 22:13
 
@@ -54,7 +54,7 @@ Yo soy el Alfa y la Omega, el Primero y el Último, el Principio y el Fin.”
 
 ## Apocalipsis 22:14
 
-Bienaventurados los que lavan sus ropas, para que tengan derecho al árbol de la vida y puedan entrar por las puertas de la ciudad.
+Dichosos los que lavan su ropa, para tener derecho al árbol de la vida y poder entrar por las puertas de la ciudad.
 
 ## Apocalipsis 22:15
 
@@ -66,19 +66,19 @@ Fuera están los perros y los que practican la hechicería, la inmoralidad, el a
 
 ## Apocalipsis 22:17
 
-El Espíritu y la esposa dicen: “Ven.” Y el que oye diga: “Ven.” El que tenga sed, venga; y el que desee, tome gratuitamente del agua de la vida.
+El Espíritu y la novia dicen: “¡Ven!” Y el que escuche, que diga: “¡Ven!” El que tenga sed, que venga; y el que quiera, que tome gratuitamente del agua de la vida.
 
 ## Apocalipsis 22:18
 
-Yo advierto a todos los que oyen las palabras de la profecía de este libro: si alguno añade a ellas, Dios le añadirá las plagas descritas en este libro.
+A todo el que escucha las palabras de la profecía de este libro le advierto esto: si alguien añade algo, Dios le añadirá a él las plagas que se describen en este libro.
 
 ## Apocalipsis 22:19
 
-Y si alguno quita de las palabras del libro de esta profecía, Dios le quitará su parte del árbol de la vida y de la Ciudad Santa, que están descritos en este libro.
+Y si alguien quita algo de las palabras del libro de esta profecía, Dios le quitará su parte en el árbol de la vida y en la ciudad santa, que se describen en este libro.
 
 ## Apocalipsis 22:20
 
-El que da testimonio de estas cosas dice: “Sí, vengo pronto.” Amén. Ven, Señor Jesús.
+El que da testimonio de todo esto dice: “Sí, vengo pronto.” Amén. ¡Ven, Señor Jesús!
 
 ## Apocalipsis 22:21
 

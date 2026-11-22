@@ -34,7 +34,7 @@ Ahora expondré su lascivia a la vista de sus amantes, y nadie la librará de mi
 Pondré fin a todas sus celebraciones: sus fiestas, sus lunas nuevas, sus sábados, todas sus festividades señaladas.
 
 ## Oseas 2:12
-Destruiré sus viñas y sus higueras, de las cuales dijo: ‘Estos son mis pagos de mis amantes.’ Las convertiré en un matorral, y los animales salvajes las devorarán.
+Destruiré sus viñas y sus higueras, de las cuales dijo: ‘Esta es la paga que me dieron mis amantes.’ Las convertiré en un matorral, y los animales salvajes las devorarán.
 
 ## Oseas 2:13
 La castigaré por los días en que quemó incienso a los Baales; se adornó con anillos y joyas, y fue tras sus amantes, pero se olvidó de mí,” declara el Señor.
@@ -61,10 +61,10 @@ Te comprometeré conmigo para siempre; te comprometeré en justicia y derecho, e
 Te comprometeré en fidelidad, y conocerás al Señor.
 
 ## Oseas 2:21
-“En ese tiempo responderé,” declara el Señor —“Responderé a los cielos, y ellos responderán a la tierra—;
+“En ese tiempo responderé,” declara el Señor, “responderé a los cielos, y ellos responderán a la tierra;
 
 ## Oseas 2:22
 y la tierra responderá al grano, al vino nuevo y al aceite, y ellos responderán a Jezreel.
 
 ## Oseas 2:23
-La plantaré para mí en la tierra; mostraré compasión a la que llamé ‘No amada.’ Diré a los que llamé ‘No mi pueblo,’ ‘Tú eres mi pueblo’; y ellos dirán, ‘Tú eres mi Dios.’”
+La plantaré para mí en la tierra; mostraré compasión a la que llamé ‘No amada.’ Diré a los que llamé ‘No pueblo mío,’ ‘Tú eres mi pueblo’; y ellos dirán, ‘Tú eres mi Dios.’”

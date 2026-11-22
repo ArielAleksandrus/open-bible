@@ -28,7 +28,7 @@ Esdras alabó al Señor, el gran Dios, y todo el pueblo respondió: “¡Amén, 
 
 ## Nehemías 8:7
 
-Los levitas —Jesúa, Bani, Serebías, Jamín, Acub, Sabbetai, Hodías, Maasías, Quelita, Azarías, Jozabad, Hanán y Pelaías— explicaron la Ley al pueblo mientras estaban en sus lugares.
+Los levitas —Jesúa, Bani, Serebías, Jamín, Acub, Sabetai, Hodías, Maasías, Quelita, Azarías, Jozabad, Hanán y Pelaías— explicaron la Ley al pueblo mientras estaban en sus lugares.
 
 ## Nehemías 8:8
 
@@ -42,7 +42,7 @@ Entonces Nehemías el gobernador, Esdras el sacerdote y escriba, y los levitas q
 
 ## Nehemías 8:10
 
-Nehemías dijo: “Id, comed manjares y bebed bebidas dulces, y enviad porciones a aquellos que no tienen nada preparado. Este día es santo para nuestro Señor. No os entristezcáis, porque el gozo del Señor es vuestra fortaleza.”
+Nehemías dijo: “Id, comed comida rica y tomad bebidas dulces, y mandad una parte a quienes no tienen nada preparado. Este es un día santo para nuestro Señor. No estéis tristes, porque la alegría del Señor es vuestra fuerza.”
 
 ## Nehemías 8:11
 

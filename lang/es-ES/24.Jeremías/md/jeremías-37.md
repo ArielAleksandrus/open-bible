@@ -50,11 +50,11 @@ Jeremías salió de Jerusalén para ir al territorio de Benjamín a reclamar su 
 
 ## Jeremías 37:13
 
-Pero al llegar a la Puerta de Benjamín, el capitán de la guardia, Irías, hijo de Selemías, hijo de Hananías, lo arrestó, diciendo: “¡Estás desertando a los babilonios!”
+Pero al llegar a la Puerta de Benjamín, el capitán de la guardia, Irías, hijo de Selemías, hijo de Hananías, lo arrestó, diciendo: “¡Te estás pasando a los babilonios!”
 
 ## Jeremías 37:14
 
-“¡Eso es falso!” respondió Jeremías. “No estoy desertando a los babilonios.” Pero Irías no le escuchó y arrestó a Jeremías, llevándolo ante los oficiales.
+“¡Eso es falso!” respondió Jeremías. “No me estoy pasando a los babilonios.” Pero Irías no le escuchó y arrestó a Jeremías, llevándolo ante los oficiales.
 
 ## Jeremías 37:15
 

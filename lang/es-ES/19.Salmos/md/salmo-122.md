@@ -4,49 +4,49 @@
 
 ## Salmo 122:1
 
-> Me alegré cuando me dijeron:  
->  “Vamos a la casa del Señor.”
+> ¡Qué alegría sentí cuando me dijeron:  
+>  “Vamos a la casa del Señor”!
 
 ## Salmo 122:2
 
-> Nuestros pies ya están Dentro de tus puertas,  
->  oh Jerusalén,
+> Ya estamos aquí, Jerusalén;  
+>  nuestros pies pisan el interior de tus puertas.
 
 ---
 
 ## Salmo 122:3
 
 > Jerusalén,  
->  que está edificada Como una ciudad que está bien unida;
+>  construida como una ciudad compacta, bien unida;
 
 ## Salmo 122:4
 
-> A la cual suben las tribus,  
->  las tribus del Señor —Un decreto para Israel— Para dar gracias al nombre del Señor.
+> allí suben las tribus,  
+>  las tribus del Señor —así lo manda la ley de Israel— para dar gracias al nombre del Señor.
 
 ## Salmo 122:5
 
-> Porque allí se establecieron los tronos de juicio,  
->  Los tronos de la casa de David.
+> Porque allí se pusieron los tribunales de justicia,  
+>  los tronos de la familia de David.
 
 ---
 
 ## Salmo 122:6
 
-> Orad por la paz de Jerusalén:  
->  “Que los que te aman encuentren seguridad.
+> Pedid que haya paz en Jerusalén:  
+>  “Que vivan seguros los que te quieren.
 
 ## Salmo 122:7
 
-> Que haya tranquilidad dentro de tus muros,  
->  Y prosperidad dentro de tus palacios.”
+> Que haya calma dentro de tus murallas,  
+>  y bienestar en tus palacios.”
 
 ## Salmo 122:8
 
-> Por el bien de mis hermanos y compañeros,  
->  Ahora diré: “Que haya tranquilidad dentro de ti.”
+> Por amor a mis hermanos y a mis amigos,  
+>  diré ahora: “Que la paz esté contigo.”
 
 ## Salmo 122:9
 
-> Por el bien de la casa del Señor nuestro Dios,  
->  Buscaré tu bienestar.
+> Por amor a la casa del Señor nuestro Dios,  
+>  procuraré tu bien.

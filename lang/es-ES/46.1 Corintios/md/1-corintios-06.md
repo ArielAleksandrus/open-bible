@@ -18,7 +18,7 @@ Así que si tenéis casos legales que tratan de asuntos de esta vida, ¿los nomb
 
 ## 1 Corintios 6:5
 
-Digo esto para vuestra vergüenza. ¿Es realmente el caso que no hay una persona sabia entre vosotros que pueda decidir entre sus hermanos o hermanas?
+Digo esto para vuestra vergüenza. ¿De veras no hay entre vosotros ni una persona sabia que pueda decidir entre sus hermanos o hermanas?
 
 ## 1 Corintios 6:6
 
@@ -46,11 +46,11 @@ Algunos de vosotros erais así; pero fuisteis limpiados, fuisteis santificados, 
 
 ## 1 Corintios 6:12
 
-Todas las cosas me están permitidas, pero no todas son beneficiosas. Todas las cosas me están permitidas, pero no me dejaré dominar por ninguna.
+Se me permite hacer de todo, pero no todo me hace bien. Se me permite hacer de todo, pero no voy a dejar que nada me domine.
 
 ## 1 Corintios 6:13
 
-La comida es para el estómago y el estómago es para la comida, sin embargo, Dios hará desaparecer a ambos. Sin embargo, el cuerpo no es para la inmoralidad sexual, sino para el Señor, y el Señor es para el cuerpo.
+La comida es para el estómago y el estómago es para la comida, pero Dios hará desaparecer a ambos. Sin embargo, el cuerpo no es para la inmoralidad sexual, sino para el Señor, y el Señor es para el cuerpo.
 
 ## 1 Corintios 6:14
 
@@ -66,7 +66,7 @@ Dios no solo resucitó al Señor, sino que también nos resucitará a nosotros m
 
 ## 1 Corintios 6:17
 
-Pero el que se une con el Señor es un espíritu con Él.
+Pero el que se une con el Señor es un solo espíritu con Él.
 
 ## 1 Corintios 6:18
 
@@ -74,8 +74,8 @@ Evitad la inmoralidad sexual. Todo otro pecado que una persona comete está fuer
 
 ## 1 Corintios 6:19
 
-¿O no sabéis que vuestro cuerpo es un santuario del Espíritu Santo que está en vosotros, el cual habéis recibido de Dios, y que no os pertenecéis a vosotros mismos?
+¿O no os dais cuenta de que vuestro cuerpo es santuario del Espíritu Santo, que vive en vosotros y que Dios os ha dado, y que no sois vuestros propios dueños?
 
 ## 1 Corintios 6:20
 
-Porque habéis sido comprados por un precio: por lo tanto, honrad a Dios con vuestro cuerpo.
+Dios os compró, y pagó un precio por vosotros: por eso, honrad a Dios con vuestro cuerpo.

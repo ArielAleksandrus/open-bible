@@ -2,15 +2,15 @@
 
 ## Levítico 7:1
 
-‘Estas son las instrucciones para la ofrenda por la culpa; es muy sagrada.
+‘Estas son las instrucciones para la ofrenda por la culpa; es santísima.
 
 ## Levítico 7:2
 
-La ofrenda por la culpa debe ser sacrificada en el mismo lugar que la ofrenda quemada, y su sangre debe ser rociada alrededor del altar.
+La ofrenda por la culpa debe ser sacrificada en el mismo lugar que el holocausto, y su sangre debe ser rociada alrededor del altar.
 
 ## Levítico 7:3
 
-Ofrecerá toda su grasa: la cola grasa y la grasa que cubre los órganos internos,
+Ofrecerá toda su grasa: la cola gorda y la grasa que cubre los órganos internos,
 
 ## Levítico 7:4
 
@@ -18,11 +18,11 @@ y los dos riñones con la grasa que hay sobre ellos cerca de los lomos, y el ló
 
 ## Levítico 7:5
 
-El sacerdote los quemará sobre el altar como ofrenda encendida al Señor; es una ofrenda por la culpa.
+El sacerdote los quemará sobre el altar como ofrenda por fuego al Señor; es una ofrenda por la culpa.
 
 ## Levítico 7:6
 
-Todo varón entre los sacerdotes podrá comerla. Debe comerse en un lugar sagrado; es muy sagrada.
+Todo varón entre los sacerdotes podrá comerla. Debe comerse en un lugar sagrado; es santísima.
 
 ## Levítico 7:7
 
@@ -30,15 +30,15 @@ La misma regla se aplica tanto a la ofrenda por el pecado como a la ofrenda por 
 
 ## Levítico 7:8
 
-El sacerdote que presente una ofrenda quemada por alguien tendrá para sí la piel de la ofrenda quemada.
+El sacerdote que presente un holocausto por alguien tendrá para sí la piel del holocausto.
 
 ## Levítico 7:9
 
-Toda ofrenda de grano cocida en un horno o cocida en una sartén o en una plancha es para el sacerdote que la ofrece.
+Toda ofrenda de cereal cocida en un horno o cocida en una sartén o en una plancha es para el sacerdote que la ofrece.
 
 ## Levítico 7:10
 
-Toda ofrenda de grano, ya sea mezclada con aceite o seca, pertenece igualmente a todos los hijos de Aarón.
+Toda ofrenda de cereal, ya sea mezclada con aceite o seca, pertenece igualmente a todos los hijos de Aarón.
 
 ## Levítico 7:11
 
@@ -98,7 +98,7 @@ La grasa de un animal encontrado muerto o desgarrado por animales salvajes puede
 
 ## Levítico 7:25
 
-Cualquiera que coma la grasa de un animal del cual se pueda presentar una ofrenda encendida al Señor será cortado de su pueblo.
+Cualquiera que coma la grasa de un animal del cual se pueda presentar una ofrenda por fuego al Señor será cortado de su pueblo.
 
 ## Levítico 7:26
 
@@ -146,7 +146,7 @@ El día en que fueron ungidos, el Señor instruyó que los israelitas les dieran
 
 ## Levítico 7:37
 
-Estas, entonces, son las instrucciones para la ofrenda quemada, la ofrenda de grano, la ofrenda por el pecado, la ofrenda por la culpa, la ofrenda de ordenación y la ofrenda de paz,
+Estas, entonces, son las instrucciones para el holocausto, la ofrenda de cereal, la ofrenda por el pecado, la ofrenda por la culpa, la ofrenda de ordenación y la ofrenda de paz,
 
 ## Levítico 7:38
 

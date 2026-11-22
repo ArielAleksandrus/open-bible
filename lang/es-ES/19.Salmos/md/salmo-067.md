@@ -11,15 +11,15 @@
 
 ## Salmo 67:2
 
-> Para que se reconozcan tus caminos en la tierra,  
->  Tu salvación entre todas las naciones.
+> Para que en la tierra se conozcan tus caminos,  
+>  y en todas las naciones, tu poder para salvar.
 
 ---
 
 ## Salmo 67:3
 
-> Alábenle los pueblos, oh Dios;  
->  Alábenle todos los pueblos.
+> Oh Dios, que los pueblos te den alabanza;  
+>  que todos los pueblos te den alabanza.
 
 ## Salmo 67:4
 
@@ -31,17 +31,17 @@
 
 ## Salmo 67:5
 
-> Alábenle los pueblos, oh Dios;  
->  Alábenle todos los pueblos.
+> Oh Dios, que los pueblos te den alabanza;  
+>  que todos los pueblos te den alabanza.
 
 ---
 
 ## Salmo 67:6
 
-> La tierra ha dado su fruto;  
->  Dios, nuestro Dios, nos bendice.
+> La tierra ha dado su cosecha; Dios,  
+>  nuestro Dios, nos llena de bendiciones.
 
 ## Salmo 67:7
 
-> Dios nos bendice,  
->  Para que todos los confines de la tierra le teman.
+> Dios nos llena de bendiciones,  
+>  para que en todos los rincones de la tierra le tengan reverencia.

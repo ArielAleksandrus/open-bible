@@ -119,7 +119,7 @@ De Gersón:
 
 ## 1 Crónicas 6:21
 
-> Joa que engendró, Iddo que engendró, Zera que engendró, Jeaterai
+> Joa que engendró, Iddo que engendró, Zera que engendró, Jeaterai.
 
 ---
 
@@ -303,7 +303,7 @@ Estos son los hijos de Aarón:
 
 ## 1 Crónicas 6:54
 
-Ahora bien, estas son sus asentamientos según sus campamentos dentro de sus fronteras:  
+Ahora bien, estos son sus asentamientos según sus campamentos dentro de sus fronteras:  
  A los hijos de Aarón, de las familias de los coatitas,
 
 >  porque la suerte les cayó primero.
@@ -393,7 +393,7 @@ Ahora bien,
 Les dieron las ciudades de refugio:
 
 >  Siquem en la región montañosa de Efraín con sus tierras de pasto,  
->  Guézer con sus tierras de pasto,
+>  Gezer con sus tierras de pasto,
 
 ## 1 Crónicas 6:68
 

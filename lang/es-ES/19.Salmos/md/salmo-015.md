@@ -12,24 +12,23 @@
 ## Salmo 15:2
 
 > Una persona que vive con integridad, actúa con justicia,  
->  Y habla con verdad desde el corazón.
+>  y habla con verdad desde el corazón.
 
 ## Salmo 15:3
 
-> No calumnia con su lengua,  
->  Ni hace mal a su prójimo,  
->  Ni trae vergüenza sobre su amigo;
+> No anda difamando a nadie,  
+>  no le hace daño a su prójimo ni deja en vergüenza a su amigo;
 
 ## Salmo 15:4
 
 > En sus ojos un despreciable es despreciado,  
->  Pero honra a los que temen al Señor;  
+>  pero honra a los que temen al Señor;  
 >  Hace un juramento en su propio perjuicio, y no cambia;
 
 ## Salmo 15:5
 
 > No presta su dinero injustamente,  
->  Ni acepta soborno contra el inocente.
+>  ni acepta soborno contra el inocente.
 
 ---
 

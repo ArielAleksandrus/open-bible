@@ -7,7 +7,7 @@ Enviad corderos como tributo al soberano de la tierra, desde Sela, a través del
 Como aves que revolotean expulsadas del nido, así son las hijas de Moab en los vados del Arnón.
 
 ## Isaías 16:3
-“Dad consejo, tomad una decisión. Extiende tu sombra como la noche al mediodía. Oculta a los fugitivos, no traiciones a los refugiados.
+“Da consejo, toma una decisión. Extiende tu sombra como la noche al mediodía. Oculta a los fugitivos, no traiciones a los refugiados.
 
 ## Isaías 16:4
 Que los desterrados de Moab residan contigo; proporciónales refugio contra el destructor.” El opresor cesará, y la devastación terminará; los agresores serán eliminados de la tierra.

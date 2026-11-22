@@ -25,7 +25,7 @@ Si el objeto robado se encuentra vivo en su posesión, ya sea un buey, un burro 
 Si el ladrón no es encontrado, el dueño de la casa debe presentarse ante los jueces para determinar si ha puesto mano sobre la propiedad de su vecino.
 
 ## Éxodo 22:9
-En todo caso de posesión ilegal, ya sea que se trate de un buey, un burro, una oveja, ropa, o cualquier propiedad perdida sobre la cual alguien diga, ‘Esto es mío,’ ambas partes presentarán sus casos ante los jueces. A quien los jueces declaren culpable deberá devolver el doble al otro.
+En todo caso de posesión ilegal, ya sea que se trate de un buey, un burro, una oveja, ropa, o cualquier propiedad perdida sobre la cual alguien diga, ‘Esto es mío,’ ambas partes presentarán sus casos ante los jueces. Aquel a quien los jueces declaren culpable deberá devolver el doble al otro.
 
 ## Éxodo 22:10
 “Si alguien entrega a su vecino un burro, un buey, una oveja, o cualquier animal para su custodia y muere, se lesiona, o es llevado mientras nadie está mirando,

@@ -7,7 +7,7 @@ Sucedió después de esto que murió el rey de los amonitas,
 
 ## 2 Samuel 10:2
 
-Entonces David dijo: “Mostraré bondad a Hanún, hijo de Nahás,  
+Entonces David dijo: “Mostraré bondad a Hanún, hijo de Nahas,  
  así como su padre me mostró bondad a mí.”  
  Así que David envió a sus siervos para consolarlo por la muerte de su padre.  
  Pero cuando los siervos de David llegaron a la tierra de los amonitas,
@@ -34,7 +34,7 @@ Cuando se informó a David, envió mensajeros a su encuentro,
 ## 2 Samuel 10:6
 
 Cuando los amonitas vieron que se habían hecho odiosos a David,  
- los amonitas enviaron y contrataron a los arameos de Bet-rejob y a los arameos de Zobá,  
+ los amonitas enviaron y contrataron a los arameos de Bet-rehob y a los arameos de Zobá,  
  veinte mil soldados de infantería,  
  y al rey de Maacá con mil hombres,  
  y a los hombres de Tob con doce mil hombres.
@@ -46,7 +46,7 @@ Al enterarse de esto, David envió a Joab y a todo el ejército, los valientes g
 ## 2 Samuel 10:8
 
 Los amonitas salieron y se alinearon para la batalla a la entrada de la ciudad,  
- mientras que los arameos de Zobá y Rejob y los hombres de Tob y Maacá estaban por sí mismos en el campo.
+ mientras que los arameos de Zobá y Rehob y los hombres de Tob y Maacá estaban por sí mismos en el campo.
 
 ## 2 Samuel 10:9
 
@@ -87,9 +87,9 @@ Cuando los arameos vieron que habían sido derrotados por Israel,
 
 ## 2 Samuel 10:16
 
-Y Hadadézer envió palabra y sacó a los arameos que estaban más allá del río Éufrates,  
+Y Hadad-ezer envió palabra y sacó a los arameos que estaban más allá del río Éufrates,  
  y vinieron a Helam;  
- y Sobac, el comandante del ejército de Hadadézer, los dirigió.
+ y Sobac, el comandante del ejército de Hadad-ezer, los dirigió.
 
 ## 2 Samuel 10:17
 
@@ -105,6 +105,6 @@ Pero los arameos huyeron de Israel,
 
 ## 2 Samuel 10:19
 
-Cuando todos los reyes que eran siervos de Hadadézer vieron que habían sido derrotados por Israel,  
+Cuando todos los reyes que eran siervos de Hadad-ezer vieron que habían sido derrotados por Israel,  
  hicieron la paz con Israel y les sirvieron.  
  Así que los arameos tuvieron miedo de ayudar más a los amonitas.

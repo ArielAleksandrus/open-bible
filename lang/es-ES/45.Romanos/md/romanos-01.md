@@ -40,11 +40,11 @@ Porque Dios, a quien sirvo en mi espíritu en la predicación del evangelio de s
 
 ## Romanos 1:10
 
-siempre en mis oraciones, pidiendo que ahora por fin, por la voluntad de Dios, pueda tener éxito en ir a vosotros.
+siempre en mis oraciones, pidiendo que ahora por fin, por la voluntad de Dios, logre ir a vosotros.
 
 ## Romanos 1:11
 
-Tengo muchas ganas de veros para compartir con vosotros algún don espiritual para fortaleceros—
+Tengo muchas ganas de veros para compartir con vosotros algún don espiritual para fortaleceros,
 
 ## Romanos 1:12
 
@@ -66,7 +66,7 @@ Por eso estoy ansioso de predicar el evangelio también a vosotros que estáis e
 
 ## Romanos 1:16
 
-Porque no me avergüenzo del evangelio, porque es el poder de Dios para salvación a todo aquel que cree: primero al judío, luego al gentil.
+No me da vergüenza el evangelio, porque es el poder de Dios que salva a todo el que cree: primero al judío, luego al gentil.
 
 ## Romanos 1:17
 
@@ -106,7 +106,7 @@ Por lo tanto, Dios los entregó en los deseos pecaminosos de sus corazones a la 
 
 ## Romanos 1:25
 
-Cambiaron la verdad de Dios por una mentira, y adoraron y sirvieron a las cosas creadas en lugar del Creador —quien es bendito por siempre. Amén—.
+Cambiaron la verdad de Dios por una mentira, y adoraron y sirvieron a las cosas creadas en lugar del Creador, quien es bendito por siempre. Amén.
 
 ---
 
@@ -126,7 +126,7 @@ Además, así como no consideraron que valía la pena retener el conocimiento de
 
 ## Romanos 1:29
 
-Se han llenado de toda clase de maldad, malicia, avaricia y depravación. Están llenos de envidia, homicidio, contienda, engaño y malicia. Son chismosos,
+Se han llenado de toda clase de maldad, perversidad, avaricia y depravación. Están llenos de envidia, homicidio, contienda, engaño y malicia. Son chismosos,
 
 ## Romanos 1:30
 

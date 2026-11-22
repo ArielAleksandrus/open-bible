@@ -26,11 +26,11 @@ Habéis matado a muchos en esta ciudad y llenado sus calles de muertos.
 
 ## Ezequiel 11:7
 
-Por tanto, esto es lo que dice el Señor Soberano: Los cuerpos que habéis puesto en la ciudad son la carne y esta ciudad es la olla, pero os sacaré de ella.
+Por tanto, esto es lo que dice el Señor Dios: Los cuerpos que habéis puesto en la ciudad son la carne y esta ciudad es la olla, pero os sacaré de ella.
 
 ## Ezequiel 11:8
 
-Teméis la espada, y la espada es lo que traeré sobre vosotros, declara el Señor Soberano.
+Teméis la espada, y la espada es lo que traeré sobre vosotros, declara el Señor Dios.
 
 ## Ezequiel 11:9
 
@@ -50,7 +50,7 @@ Y sabréis que yo soy el Señor, porque no habéis seguido mis estatutos ni guar
 
 ## Ezequiel 11:13
 
-Mientras yo estaba profetizando, Pelatías hijo de Benaías murió. Caí rostro en tierra y clamé en alta voz: “¡Ay, Señor Soberano! ¿Destruirás por completo al remanente de Israel?”
+Mientras yo estaba profetizando, Pelatías hijo de Benaías murió. Caí rostro en tierra y clamé en alta voz: “¡Ay, Señor Dios! ¿Destruirás por completo al remanente de Israel?”
 
 ## Ezequiel 11:14
 
@@ -62,11 +62,11 @@ Entonces un mensaje del Señor llegó a mí:
 
 ## Ezequiel 11:16
 
-Por tanto, di: ‘Esto es lo que dice el Señor Soberano: Aunque los he enviado lejos entre las naciones y los he dispersado entre los países, he sido un santuario para ellos por un poco de tiempo en los países a donde han ido.’
+Por tanto, di: ‘Esto es lo que dice el Señor Dios: Aunque los he enviado lejos entre las naciones y los he dispersado entre los países, he sido un santuario para ellos por un poco de tiempo en los países a donde han ido.’
 
 ## Ezequiel 11:17
 
-Por tanto, di: ‘Esto es lo que dice el Señor Soberano: Os recogeré de los pueblos y os traeré de vuelta de los países donde habéis sido dispersados, y os daré la tierra de Israel.’
+Por tanto, di: ‘Esto es lo que dice el Señor Dios: Os recogeré de los pueblos y os traeré de vuelta de los países donde habéis sido dispersados, y os daré la tierra de Israel.’
 
 ## Ezequiel 11:18
 
@@ -74,7 +74,7 @@ Cuando regresen, quitarán todas sus cosas detestables y abominaciones.
 
 ## Ezequiel 11:19
 
-Les daré un corazón unificado y pondré un nuevo espíritu dentro de ellos; quitaré su corazón de piedra y les daré un corazón de carne.
+Les daré un solo corazón y pondré un nuevo espíritu dentro de ellos; quitaré su corazón de piedra y les daré un corazón de carne.
 
 ## Ezequiel 11:20
 
@@ -82,7 +82,7 @@ Entonces seguirán mis estatutos y cuidarán de observar mis ordenanzas. Ellos s
 
 ## Ezequiel 11:21
 
-Pero para aquellos cuyos corazones persiguen sus cosas detestables y abominaciones, traeré su conducta sobre sus propias cabezas, declara el Señor Soberano.”
+Pero para aquellos cuyos corazones persiguen sus cosas detestables y abominaciones, traeré su conducta sobre sus propias cabezas, declara el Señor Dios.”
 
 ## Ezequiel 11:22
 

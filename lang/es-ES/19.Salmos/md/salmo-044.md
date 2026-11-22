@@ -4,9 +4,9 @@
 
 ## Salmo 44:1
 
-> Dios, hemos oído con nuestros oídos,  
->  Nuestros padres nos han contado La obra que hiciste en sus días,  
->  En los días antiguos.
+> Dios, lo hemos oído con nuestros propios oídos,  
+>  Nuestros antepasados nos han contado Lo que hiciste en su tiempo,  
+>  hace mucho tiempo.
 
 ## Salmo 44:2
 
@@ -15,10 +15,10 @@
 
 ## Salmo 44:3
 
-> Porque no por su espada poseyeron la tierra,  
->  Ni su propio brazo los salvó,  
->  Sino tu mano derecha y tu brazo y la luz de tu presencia,  
->  Porque los favoreciste.
+> Porque no fue con su espada como conquistaron la tierra,  
+>  ni fue su propio brazo el que les dio la victoria,  
+>  sino tu mano derecha y tu brazo y la luz de tu presencia,  
+>  porque los mirabas con agrado.
 
 ---
 
@@ -30,22 +30,22 @@
 ## Salmo 44:5
 
 > A través de ti, rechazaremos a nuestros adversarios;  
->  En tu nombre, venceremos a los que se levantan contra nosotros.
+>  en tu nombre, venceremos a los que se levantan contra nosotros.
 
 ## Salmo 44:6
 
-> Porque no confiaré en mi arco,  
->  Ni mi espada me librará.
+> Porque no pondré mi confianza en mi arco,  
+>  ni será mi espada la que me salve.
 
 ## Salmo 44:7
 
-> Pero tú nos has librado de nuestros adversarios,  
->  Y has avergonzado a los que nos odian.
+> Pero tú nos has salvado de nuestros adversarios,  
+>  y has dejado en vergüenza a los que nos odian.
 
 ## Salmo 44:8
 
 > En Dios nos hemos gloriado todo el día,  
->  Y daremos gracias continuamente a tu nombre.
+>  y daremos gracias continuamente a tu nombre.
 
 >  Selah
 
@@ -53,89 +53,89 @@
 
 ## Salmo 44:9
 
-> Sin embargo, nos has rechazado y nos has deshonrado,  
->  Y no sales con nuestros ejércitos.
+> Y sin embargo, nos has rechazado y nos has dejado en vergüenza,  
+>  y ya no vas al frente de nuestros ejércitos.
 
 ## Salmo 44:10
 
 > Nos haces retroceder ante el enemigo,  
->  Y los que nos odian han tomado despojos para sí mismos.
+>  y los que nos odian han tomado despojos para sí mismos.
 
 ## Salmo 44:11
 
-> Nos entregas como ovejas para ser devoradas,  
->  Y nos has dispersado entre las naciones.
+> Nos entregas como si fuéramos ovejas para el matadero,  
+>  y nos has esparcido por las naciones.
 
 ## Salmo 44:12
 
 > Has vendido a tu pueblo por una miseria,  
->  Y no has ganado nada con su venta.
+>  y no has ganado nada con su venta.
 
 ---
 
 ## Salmo 44:13
 
-> Nos haces objeto de reproche para nuestros vecinos,  
->  De burla y escarnio para los que nos rodean.
+> Nos haces quedar mal ante nuestros vecinos;  
+>  los que nos rodean se burlan y se ríen de nosotros.
 
 ## Salmo 44:14
 
 > Nos has hecho un proverbio entre las naciones,  
->  Un motivo de burla entre los pueblos.
+>  un motivo de burla entre los pueblos.
 
 ## Salmo 44:15
 
 > Todo el día mi deshonra está delante de mí,  
->  Y estoy cubierto de mi humillación,
+>  y estoy cubierto de mi humillación,
 
 ## Salmo 44:16
 
-> Por la voz del que me afrenta y me vitupera,  
->  Por el enemigo y el vengador.
+> Por los insultos y las ofensas que oigo,  
+>  por culpa del enemigo que quiere vengarse.
 
 ---
 
 ## Salmo 44:17
 
-> Todo esto nos ha sobrevenido, pero no te hemos olvidado,  
->  Y hemos permanecido fieles a tu pacto.
+> Todo esto nos ha pasado, y aun así no nos hemos olvidado de ti,  
+>  y hemos seguido siendo fieles a tu pacto.
 
 ## Salmo 44:18
 
-> Nuestro corazón no se ha vuelto atrás,  
->  Y nuestros pasos no se han desviado de tu camino,
+> No te hemos dado la espalda,  
+>  ni nuestros pies se han salido de tu camino,
 
 ## Salmo 44:19
 
 > Sin embargo, nos has quebrantado en un lugar desolado,  
->  Y nos has cubierto de profunda oscuridad.
+>  y nos has cubierto de profunda oscuridad.
 
 ---
 
 ## Salmo 44:20
 
-> Si hubiéramos olvidado el nombre de nuestro Dios O extendido nuestras manos a un dios extraño,
+> Si nos hubiéramos olvidado del nombre de nuestro Dios O hubiéramos levantado las manos hacia un dios extranjero,
 
 ## Salmo 44:21
 
-> ¿No lo descubriría Dios?  
->  Porque él conoce los secretos del corazón.
+> ¿No lo habría descubierto Dios?  
+>  Porque él sabe lo que se esconde en el corazón.
 
 ## Salmo 44:22
 
-> Sin embargo, por tu causa, estamos en peligro todo el día;  
->  Somos considerados como ovejas destinadas al matadero.
+> Y sin embargo, por tu causa, estamos todo el día en peligro de muerte;  
+>  Nos tratan como a ovejas que van al matadero.
 
 ---
 
 ## Salmo 44:23
 
-> Despierta, ¿por qué duermes, Señor?  
->  Levántate, no nos rechaces para siempre.
+> ¡Despierta, Señor! ¿Por qué duermes?  
+>  ¡Levántate, no nos rechaces para siempre!
 
 ## Salmo 44:24
 
-> ¿Por qué escondes tu rostro Y pasas por alto nuestra aflicción y opresión?
+> ¿Por qué nos ocultas tu rostro Y no haces caso de lo que sufrimos y de cómo nos oprimen?
 
 ---
 
@@ -146,5 +146,5 @@
 
 ## Salmo 44:26
 
-> Levántate, sé nuestra ayuda,  
->  Y redímenos por tu misericordia.
+> ¡Levántate, ven a ayudarnos,  
+>  y rescátanos por tu amor!

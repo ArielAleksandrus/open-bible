@@ -2,43 +2,43 @@
 
 ## Isaías 42:1
 
-“¡He aquí mi siervo, a quien he escogido; mi amado escogido en quien se deleita mi alma! He puesto mi Espíritu sobre él; él traerá justicia a las naciones.
+“Mirad a mi siervo, al que yo he elegido; mi elegido querido, en quien me deleito. He puesto sobre él mi Espíritu; él llevará la justicia a las naciones.
 
 ## Isaías 42:2
 
-No clamará, ni alzará su voz, ni hará oír su voz en las calles.
+No gritará ni levantará la voz, ni hará que se oiga su voz por las calles.
 
 ## Isaías 42:3
 
-La caña cascada no quebrará, y el pábilo que humea no apagará; con fidelidad traerá justicia.
+No terminará de romper la caña que está doblada, ni apagará la mecha que apenas arde; con fidelidad hará que haya justicia.
 
 ## Isaías 42:4
 
-No desmayará ni se desalentará hasta que haya establecido la justicia en la tierra; y las costas esperarán expectantes su enseñanza.”
+No se rendirá ni se desanimará hasta que haya establecido la justicia en la tierra; y las costas lejanas esperarán con ansia su enseñanza.”
 
 ## Isaías 42:5
 
-Así dice Dios el Señor, que creó los cielos y los extendió, que extendió la tierra y todo lo que de ella brota, que da aliento a su pueblo y espíritu a los que caminan en ella:
+Esto dice Dios, el Señor, que creó los cielos y los desplegó, que extendió la tierra y todo lo que brota de ella, que da aliento a la gente que la habita y vida a los que andan por ella:
 
 ## Isaías 42:6
 
-“Yo soy el Señor; te he llamado en justicia, te sostendré de la mano y te guardaré, y te pondré como pacto para el pueblo, como luz para las naciones,
+“Yo soy el Señor; te he llamado para hacer justicia, te llevaré de la mano y te protegeré, y haré de ti una alianza para el pueblo y una luz para las naciones,
 
 ## Isaías 42:7
 
-para dar vista a los ciegos, para liberar a los cautivos del confinamiento, y a los que residen en tinieblas de su prisión.
+para que abras los ojos de los ciegos, para que saques a los presos de la cárcel y a los que viven en la oscuridad de su encierro.
 
 ## Isaías 42:8
 
-Yo soy el Señor; ¡este es mi nombre! No compartiré mi gloria con otro, ni mi alabanza con ídolos.
+Yo soy el Señor; ¡ese es mi nombre! No dejaré que otro se quede con mi gloria, ni que los ídolos reciban la alabanza que me corresponde.
 
 ## Isaías 42:9
 
-He aquí, las cosas anteriores han sucedido, y nuevas cosas declaro; antes de que broten, os las anuncio.”
+Mirad, lo que anuncié antes ya se ha cumplido, y ahora os anuncio cosas nuevas; antes de que empiecen a brotar, os las doy a conocer.”
 
 ## Isaías 42:10
 
-Cantad al Señor un cántico nuevo, su alabanza desde los confines de la tierra, vosotros que descendéis al mar y todo lo que hay en él, vosotros islas y los que habitáis en ellas.
+Cantad al Señor una canción nueva; que lo alaben desde los extremos de la tierra los que navegan por el mar y todo lo que hay en él, las islas y los que viven en ellas.
 
 ## Isaías 42:11
 
@@ -62,7 +62,7 @@ Devastaré montañas y colinas y marchitaré toda su vegetación; convertiré r�
 
 ## Isaías 42:16
 
-Guiaré a los ciegos por caminos que no conocen, por senderos desconocidos los guiaré. Convertiré la oscuridad en luz delante de ellos y haré lisos los lugares escabrosos. Estas son las cosas que haré, y no los abandonaré.
+Llevaré a los ciegos por caminos que no conocen, los guiaré por senderos que nunca han pisado. Delante de ellos convertiré la oscuridad en luz y allanaré los terrenos escabrosos. Esto es lo que haré, y no los dejaré abandonados.
 
 ## Isaías 42:17
 
@@ -86,7 +86,7 @@ El Señor se complació, por amor a su justicia, en hacer su ley grande y glorio
 
 ## Isaías 42:22
 
-Pero este es un pueblo saqueado y despojado; todos ellos atrapados en fosas o escondidos en prisiones. Se han convertido en saqueo, sin nadie que los rescate; han sido hechos botín, sin nadie que diga: “Devuélvanlos.”
+Pero este es un pueblo saqueado y despojado; todos ellos atrapados en fosas o escondidos en prisiones. Se han convertido en saqueo, sin nadie que los rescate; han sido hechos botín, sin nadie que diga: “Devolvedlos.”
 
 ## Isaías 42:23
 

@@ -10,19 +10,19 @@
 ## Salmo 5:2
 
 > Atiende a mi súplica, mi Rey y mi Dios,  
->  Porque a Ti oro.
+>  porque a Ti oro.
 
 ---
 
 ## Salmo 5:3
 
 > Por la mañana, Señor, escucharás mi voz;  
->  Al amanecer, presentaré mi oración a Ti y estaré atento.
+>  al amanecer, presentaré mi oración a Ti y estaré atento.
 
 ## Salmo 5:4
 
 > Porque Tú no eres un Dios que se complace en la maldad;  
->  Ningún mal puede habitar contigo.
+>  ningún mal puede habitar contigo.
 
 ## Salmo 5:5
 
@@ -32,12 +32,12 @@
 ## Salmo 5:6
 
 > Destruyes a los que hablan falsedades;  
->  El Señor detesta al hombre de sangre y engaño.
+>  el Señor detesta al hombre de sangre y engaño.
 
 ## Salmo 5:7
 
 > Pero yo, por Tu abundante misericordia, entraré en Tu casa;  
->  En Tu santo templo me postraré con reverencia ante Ti.
+>  en Tu santo templo me postraré con reverencia ante Ti.
 
 ---
 
@@ -58,18 +58,18 @@
 > Hazlos responsables, Dios;  
 >  ¡Que caigan por sus propias intrigas!  
 >  En la multitud de sus transgresiones, échalos fuera,  
->  Porque se han rebelado contra Ti.
+>  porque se han rebelado contra Ti.
 
 ## Salmo 5:11
 
 > Pero alégrense todos los que buscan refugio en Ti;  
 >  ¡Que siempre canten de júbilo!  
 >  Y que Tú los protejas,  
->  Para que los que aman Tu nombre se regocijen en Ti.
+>  para que los que aman Tu nombre se regocijen en Ti.
 
 ---
 
 ## Salmo 5:12
 
 > Porque Tú bendices al justo, Señor,  
->  Lo rodeas de favor como con un escudo.
+>  lo rodeas de favor como con un escudo.

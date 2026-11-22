@@ -48,7 +48,7 @@ Entonces tres mil hombres de Judá bajaron a la cueva en la roca de Etam y dijer
 
 ## Jueces 15:12
 
-Ellos le dijeron, “Hemos venido para atarte y entregarte a los filisteos.” Sansón dijo, “Júrenme que no me matarán ustedes mismos.”
+Ellos le dijeron, “Hemos venido para atarte y entregarte a los filisteos.” Sansón dijo, “Juradme que no me mataréis vosotros mismos.”
 
 ## Jueces 15:13
 

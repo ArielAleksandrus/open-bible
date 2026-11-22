@@ -14,13 +14,13 @@ Hizo lo que era recto ante los ojos del Señor, y anduvo en los caminos de su pa
 ## 2 Crónicas 34:3
 
 En el octavo año de su reinado, siendo aún joven, comenzó a buscar al Dios de su antepasado David;  
- y en el duodécimo año, inició la limpieza de Judá y Jerusalén de los lugares altos, los Aserim, las imágenes talladas y las imágenes de metal fundido.
+ y en el duodécimo año, inició la limpieza de Judá y Jerusalén de los lugares altos, las Aseras, las imágenes talladas y las imágenes de metal fundido.
 
 ## 2 Crónicas 34:4
 
 Derribaron los altares de los Baales en su presencia,  
  y cortó los altares de incienso que estaban altos sobre ellos;  
- también hizo polvo los Aserim, las imágenes talladas y las imágenes de metal fundido,  
+ también hizo polvo las Aseras, las imágenes talladas y las imágenes de metal fundido,  
  y lo esparció sobre las tumbas de los que habían sacrificado a ellas.
 
 ## 2 Crónicas 34:5
@@ -33,7 +33,7 @@ En las ciudades de Manasés, Efraín y Simeón, y hasta Neftalí, en sus alreded
 
 ## 2 Crónicas 34:7
 
-también derribó los altares y pulverizó los Aserim y las imágenes talladas,  
+también derribó los altares y pulverizó las Aseras y las imágenes talladas,  
  y cortó todos los altares de incienso por toda la tierra de Israel.  
  Luego regresó a Jerusalén.
 
@@ -42,8 +42,8 @@ también derribó los altares y pulverizó los Aserim y las imágenes talladas,
 ## 2 Crónicas 34:8
 
 Ahora, en el decimoctavo año de su reinado, cuando había purgado la tierra y la casa,  
- envió a Safán, hijo de Azalías, a Maaseías, gobernador de la ciudad,  
- y a Joah, hijo de Joacaz, el cronista, para reparar la casa del Señor su Dios.
+ envió a Safán, hijo de Azalías, a Maasías, gobernador de la ciudad,  
+ y a Joa, hijo de Joacaz, el cronista, para reparar la casa del Señor su Dios.
 
 ---
 
@@ -55,7 +55,7 @@ Se acercaron a Hilcías, el sumo sacerdote, y le entregaron el dinero que había
 
 ## 2 Crónicas 34:10
 
-Luego lo confiaron a los manos de los obreros que supervisaban la casa del Señor,  
+Luego lo confiaron en manos de los obreros que supervisaban la casa del Señor,  
  y los obreros que trabajaban en la casa del Señor lo usaron para restaurar y reparar la casa.
 
 ## 2 Crónicas 34:11
@@ -94,12 +94,12 @@ Hilcías se dirigió a Safán, el escriba,
 
 ## 2 Crónicas 34:16
 
-Entonces Safán llevó el libro al rey y le transmitió información adicional al rey, diciendo,  
+Entonces Safán llevó el libro al rey y además le informó, diciendo,  
  “Todo lo que se asignó a tus siervos, lo están haciendo.
 
 ## 2 Crónicas 34:17
 
-También han vaciado el dinero que se encontró en la casa del Señor,  
+También han sacado el dinero que se encontró en la casa del Señor,  
  y lo han entregado en manos de los supervisores y de los obreros.”
 
 ## 2 Crónicas 34:18
@@ -132,7 +132,7 @@ Entonces el rey instruyó a Hilcías, a Ahicam, hijo de Safán, a Abdón, hijo d
 
 Entonces Hilcías y los que el rey había designado fueron a Huldá, la profetisa,  
  esposa de Salum, hijo de Tocat, hijo de Hasra,  
- guardián del vestuario (ahora ella vivía en Jerusalén en el Segundo Distrito), y le hablaron sobre este asunto.
+ guardián del vestuario (ella vivía en Jerusalén en el Segundo Distrito), y le hablaron sobre este asunto.
 
 ---
 

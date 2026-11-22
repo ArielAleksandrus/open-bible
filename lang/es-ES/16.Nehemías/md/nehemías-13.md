@@ -20,7 +20,7 @@ Antes de esto, el sacerdote Eliasib, que estaba encargado de los almacenes de la
 
 ## Nehemías 13:5
 
-y le había preparado una gran habitación, que anteriormente se usaba para almacenar las ofrendas de grano, incienso, utensilios del templo, y los diezmos de grano, vino nuevo y aceite de oliva prescritos para los levitas, cantores y porteros, así como las contribuciones para los sacerdotes.
+y le había preparado una gran habitación, que anteriormente se usaba para almacenar las ofrendas de cereal, incienso, utensilios del templo, y los diezmos de grano, vino nuevo y aceite de oliva prescritos para los levitas, cantores y porteros, así como las contribuciones para los sacerdotes.
 
 ---
 
@@ -38,7 +38,7 @@ Me disgusté mucho y arrojé todos los bienes de la casa de Tobías fuera de la 
 
 ## Nehemías 13:9
 
-Ordené que se purificaran las habitaciones, y luego restauré el equipo de la casa de Dios, junto con las ofrendas de grano e incienso.
+Ordené que se purificaran las habitaciones, y luego restauré el equipo de la casa de Dios, junto con las ofrendas de cereal e incienso.
 
 ## Nehemías 13:10
 
@@ -54,7 +54,7 @@ Todo Judá trajo entonces los diezmos de grano, vino nuevo y aceite de oliva a l
 
 ## Nehemías 13:13
 
-Designé a Selemías el sacerdote, a Zadoq el escriba, y a un levita llamado Pedaías para que estuvieran a cargo de los almacenes, y nombré a Hanán hijo de Zacur, hijo de Matanías, como su asistente, porque eran considerados confiables. Ellos eran responsables de distribuir los suministros a sus compañeros levitas.
+Designé a Selemías el sacerdote, a Sadoc el escriba, y a un levita llamado Pedaías para que estuvieran a cargo de los almacenes, y nombré a Hanán hijo de Zacur, hijo de Matanías, como su asistente, porque eran considerados confiables. Ellos eran responsables de distribuir los suministros a sus compañeros levitas.
 
 ---
 
@@ -102,7 +102,7 @@ Además, en aquellos días vi a hombres de Judá que se habían casado con mujer
 
 ## Nehemías 13:24
 
-La mitad de sus hijos hablaba la lengua de Asdod o la lengua de alguno de los otros pueblos, y no eran fluidos en la lengua de Judá.
+La mitad de sus hijos hablaba la lengua de Asdod o la lengua de alguno de los otros pueblos, y no sabían hablar bien la lengua de Judá.
 
 ## Nehemías 13:25
 

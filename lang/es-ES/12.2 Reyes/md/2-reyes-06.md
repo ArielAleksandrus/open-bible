@@ -8,8 +8,8 @@ Los hijos de los profetas se acercaron a Eliseo, diciendo,
 ## 2 Reyes 6:2
 
 Permítenos ir al Jordán, y cada uno de nosotros tomará una viga de allí,  
- y construyamos allí un lugar para nosotros donde podamos residir.”  
- Entonces él dijo, “Vayan.”
+ y construyamos allí un lugar para nosotros donde podamos residir.  
+” Entonces él dijo, “Id.”
 
 ## 2 Reyes 6:3
 
@@ -59,7 +59,7 @@ Así que el rey de Israel envió a alguien al lugar del cual el hombre de Dios l
 
 El corazón del rey de Aram se enfureció por este asunto;  
  y llamó a sus siervos y les dijo,  
- “¿No me dirán quién de nosotros está a favor del rey de Israel?”
+ “¿No me diréis quién de nosotros está a favor del rey de Israel?”
 
 ## 2 Reyes 6:12
 
@@ -69,7 +69,7 @@ Uno de sus siervos respondió,
 
 ## 2 Reyes 6:13
 
-Entonces él dijo, “Vayan y vean dónde está, para que pueda enviar hombres a capturarlo.”  
+Entonces él dijo, “Id y ved dónde está, para que pueda enviar hombres a capturarlo.”  
  Y le informaron, diciendo, “He aquí, él está en Dotán.”
 
 ## 2 Reyes 6:14
@@ -109,7 +109,7 @@ Cuando bajaron hacia él, Eliseo oró al Señor y dijo,
 ## 2 Reyes 6:19
 
 Entonces Eliseo les dijo,  
- “Este no es el camino, ni es esta la ciudad. Síganme, y los llevaré al hombre que buscan.”  
+ “Este no es el camino, ni es esta la ciudad. Seguidme, y os llevaré al hombre que buscáis.”  
  Y los guió a Samaria.
 
 ## 2 Reyes 6:20
@@ -122,7 +122,7 @@ Cuando llegaron a Samaria, Eliseo dijo,
 ## 2 Reyes 6:21
 
 Entonces el rey de Israel, cuando los vio, dijo a Eliseo,  
- “¿Los mataré? ¿Los mataré, mi padre?”
+ “¿Los mataré? ¿Los mataré, padre mío?”
 
 ## 2 Reyes 6:22
 
@@ -158,7 +158,7 @@ Mientras el rey de Israel pasaba por el muro, una mujer le gritó, diciendo,
 
 Pero él dijo,  
  “Si el Señor no te ayuda, ¿de dónde voy a ayudarte yo?  
- ¿Del suelo de trillar, o del lagar?”
+ ¿De la era, o del lagar?”
 
 ## 2 Reyes 6:28
 
@@ -192,9 +192,9 @@ Entonces él dijo,
 Ahora Eliseo estaba sentado en su casa, y los ancianos estaban sentados con él.  
  Y el rey envió un hombre delante de él, pero antes de que el mensajero llegara a él,  
  él dijo a los ancianos,  
- “¿Ven cómo este hijo de un asesino ha enviado a alguien para quitarme la cabeza?  
- Miren, cuando el mensajero venga, cierren la puerta y manténganla cerrada contra él.  
- ¿No es el sonido de los pies de su señor detrás de él?”
+ “¿Veis cómo este hijo de un asesino ha enviado a alguien para quitarme la cabeza?  
+ Mirad, cuando el mensajero venga, cerrad la puerta y mantenedla cerrada contra él.  
+ ¿No se oye detrás de él el ruido de los pasos de su señor?”
 
 ## 2 Reyes 6:33
 

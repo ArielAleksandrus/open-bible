@@ -28,7 +28,7 @@ El Señor me habló una vez más:
 
 ## Isaías 8:7
 
-por lo tanto, el Señor está a punto de traer sobre ellos las poderosas y desbordantes aguas del Éufrates —el rey de Asiria con todo su esplendor. Se elevará sobre todos sus cauces y desbordará todos sus bancos—.
+por lo tanto, el Señor está a punto de traer sobre ellos las poderosas y desbordantes aguas del Éufrates —el rey de Asiria con todo su esplendor—. Se elevará sobre todos sus cauces y desbordará todas sus riberas.
 
 ## Isaías 8:8
 
@@ -54,7 +54,7 @@ Esto es lo que el Señor me dijo con una fuerte mano sobre mí, advirtiéndome q
 
 ## Isaías 8:13
 
-Al Señor de los Ejércitos es a quien debéis considerar como santo; Él es a quien debéis temer, Él es a quien debéis aterrorizar.
+Al Señor de los ejércitos es a quien debéis considerar como santo; Él es a quien debéis temer, Él es ante quien debéis temblar.
 
 ## Isaías 8:14
 
@@ -68,15 +68,15 @@ Muchos tropezarán con ella, caerán y serán quebrantados, serán atrapados y c
 
 ## Isaías 8:16
 
-Ata el testimonio y sella la ley entre mis discípulos.
+Guarda bien este testimonio y sella esta enseñanza entre mis discípulos.
 
 ## Isaías 8:17
 
-Esperaré al Señor, que está ocultando Su rostro de la casa de Jacob. En Él esperaré.
+Yo esperaré en el Señor, que ahora esconde Su rostro de los descendientes de Jacob. En Él pondré mi esperanza.
 
 ## Isaías 8:18
 
-Aquí estoy yo, y los hijos que el Señor me ha dado. Somos señales y símbolos en Israel del Señor de los Ejércitos, que habita en el Monte Sión.
+Aquí estamos yo y los hijos que el Señor me ha dado. Somos señales y avisos para Israel de parte del Señor de los ejércitos, que vive en el monte Sion.
 
 ---
 

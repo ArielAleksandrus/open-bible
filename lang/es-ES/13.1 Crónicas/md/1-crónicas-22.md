@@ -2,10 +2,10 @@
 
 ## 1 Crónicas 22:1
 
-En ese momento, David declaró,
+En ese momento, David declaró:
 
->  "Esta es la casa del Señor Dios,  
->  y este es el altar del holocausto para Israel."
+>  “Esta es la casa del Señor Dios,  
+>  y este es el altar del holocausto para Israel.”
 
 ---
 
@@ -34,13 +34,13 @@ David preparó grandes cantidades de hierro para hacer clavos para las puertas d
 
 ## 1 Crónicas 22:5
 
-David dijo,
+David dijo:
 
->  "Mi hijo Salomón es joven e inexperto,  
+>  “Mi hijo Salomón es joven e inexperto,  
 >  y la casa que se ha de construir para el Señor será sumamente magnífica,  
 >  famosa y gloriosa en todas las tierras.  
 >  Por lo tanto, haré preparativos para ella.  
-> " Así que David hizo amplios preparativos antes de su muerte.
+> ” Así que David hizo amplios preparativos antes de su muerte.
 
 ---
 
@@ -52,16 +52,16 @@ Luego convocó a su hijo Salomón y le instruyó para construir una casa para el
 
 ## 1 Crónicas 22:7
 
-David dijo a Salomón,
+David dijo a Salomón:
 
->  "Hijo mío, tenía en mi corazón edificar una casa para el nombre del Señor mi Dios.
+>  “Hijo mío, tenía en mi corazón edificar una casa para el nombre del Señor mi Dios.
 
 ---
 
 ## 1 Crónicas 22:8
 
-> Sin embargo, la palabra del Señor vino a mí, diciendo,  
->  'Has derramado mucha sangre y has librado grandes guerras;  
+> Sin embargo, la palabra del Señor vino a mí, diciendo:  
+>  ‘Has derramado mucha sangre y has librado grandes guerras;  
 >  no edificarás una casa para Mi nombre,  
 >  porque has derramado mucha sangre en la tierra delante de Mí.
 
@@ -80,7 +80,7 @@ David dijo a Salomón,
 
 > Él construirá una casa para Mi nombre,  
 >  y él será Mi hijo y Yo seré su Padre;  
->  y estableceré el trono de su reino sobre Israel para siempre.'
+>  y estableceré el trono de su reino sobre Israel para siempre.’
 
 ---
 
@@ -115,9 +115,9 @@ Ahora bien, con gran esfuerzo he preparado para la casa del Señor:
 
 >  cien mil talentos de oro,  
 >  un millón de talentos de plata,  
->  y bronce e hierro sin medida,  
->  porque son en gran cantidad;  
->  también he preparado madera y piedra, y puedes añadir a ellos.
+>  y bronce y hierro sin medida,  
+>  porque hay en gran cantidad;  
+>  también he preparado madera y piedra, y tú puedes añadir más.
 
 ---
 
@@ -133,7 +133,7 @@ Además, tienes muchos obreros contigo:
 ## 1 Crónicas 22:16
 
 > Del oro, la plata, el bronce y el hierro no hay límite.  
->  Levántate y trabaja, y que el Señor esté contigo."
+>  Levántate y trabaja, y que el Señor esté contigo.”
 
 ---
 
@@ -145,7 +145,7 @@ David instruyó a todos los líderes de Israel para que ayudaran a su hijo Salom
 
 ## 1 Crónicas 22:18
 
-> "¿No está el Señor vuestro Dios con vosotros?  
+> “¿No está el Señor vuestro Dios con vosotros?  
 >  ¿Y no os ha dado descanso por todos lados?  
 >  Porque Él ha entregado en mi mano a los habitantes de la tierra,  
 >  y la tierra está sometida delante del Señor y delante de Su pueblo.
@@ -157,4 +157,4 @@ David instruyó a todos los líderes de Israel para que ayudaran a su hijo Salom
 > Ahora poned vuestro corazón y vuestra alma para buscar al Señor vuestro Dios.  
 >  Levantaos y construid el santuario del Señor Dios,  
 >  para que podáis traer el arca del pacto del Señor y los artículos sagrados de Dios a la casa que se ha de construir para el nombre del Señor.  
-> "
+> ”

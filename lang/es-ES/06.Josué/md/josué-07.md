@@ -26,7 +26,7 @@ Josué rasgó sus vestiduras y cayó rostro en tierra ante el arca del Señor ha
 
 ## Josué 7:7
 
-Josué lamentó: “¡Ay, Señor Soberano! ¿Por qué trajiste a este pueblo a través del Jordán, solo para entregarnos en manos de los amorreos para destruirnos? ¡Ojalá nos hubiéramos conformado con habitar al otro lado del Jordán!
+Josué lamentó: “¡Ay, Señor Dios! ¿Por qué trajiste a este pueblo a través del Jordán, solo para entregarnos en manos de los amorreos para destruirnos? ¡Ojalá nos hubiéramos conformado con habitar al otro lado del Jordán!
 
 ## Josué 7:8
 
@@ -46,7 +46,7 @@ Israel ha pecado; han violado mi pacto, que les mandé. Han tomado algunas de la
 
 ## Josué 7:12
 
-Por eso los israelitas no pueden hacer frente a sus enemigos; dan la espalda y huyen porque se han hecho culpables de destrucción. No estaré más con vosotros a menos que eliminéis de entre vosotros lo consagrado para destrucción.
+Por eso los israelitas no pueden hacer frente a sus enemigos; dan la espalda y huyen porque han quedado destinados a la destrucción. No estaré más con vosotros a menos que eliminéis de entre vosotros lo consagrado para destrucción.
 
 ## Josué 7:13
 

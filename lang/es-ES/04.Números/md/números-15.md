@@ -30,7 +30,7 @@ y para la ofrenda de libación ofrecerás un tercio de un hin de vino, como arom
 
 ## Números 15:8
 
-Cuando prepares un toro como holocausto o sacrificio para cumplir un voto especial, o como ofrenda de comunión al Señor,
+Cuando prepares un toro como holocausto o sacrificio para cumplir un voto especial, o como ofrenda de paz al Señor,
 
 ## Números 15:9
 
@@ -78,7 +78,7 @@ y comáis del alimento de la tierra, presentaréis una porción como ofrenda al 
 
 ## Números 15:20
 
-De lo primero de vuestra molienda presentaréis una hogaza como ofrenda; como una ofrenda del suelo de trilla, así la presentaréis.
+De lo primero de vuestra molienda presentaréis una hogaza como ofrenda; como la ofrenda de la era, así la presentaréis.
 
 ## Números 15:21
 
@@ -122,7 +122,7 @@ Sin embargo, cualquiera que peque con arrogancia, ya sea nativo o extranjero, mu
 
 ## Números 15:31
 
-Porque han rechazado la palabra del Señor y violado Sus mandamientos, seguramente deben ser separados; su culpa permanece sobre ellos.’”
+Porque han rechazado la palabra del Señor y violado sus mandamientos, ciertamente deberán ser separados; su culpa permanece sobre ellos.’”
 
 ## Números 15:32
 
@@ -158,7 +158,7 @@ Estas borlas serán para que las miréis y recordéis todos los mandamientos del
 
 ## Números 15:40
 
-Entonces recordaréis obedecer todos Mis mandamientos y estaréis dedicados a vuestro Dios.
+Entonces recordaréis obedecer todos mis mandamientos y estaréis dedicados a vuestro Dios.
 
 ## Números 15:41
 

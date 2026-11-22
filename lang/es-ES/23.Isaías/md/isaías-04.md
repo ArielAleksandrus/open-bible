@@ -1,7 +1,7 @@
 # Isaías Capítulo 4
 
 ## Isaías 4:1
-En aquel día, siete mujeres echarán mano de un hombre, diciendo: “Comeremos nuestro propio pan y vestiremos nuestra propia ropa; solo déjanos llevar tu nombre. ¡Quita nuestro oprobio!”
+Aquel día, siete mujeres se agarrarán de un solo hombre y le dirán: “Nosotras nos pagaremos la comida y la ropa; solo déjanos llevar tu apellido. ¡Líbranos de esta vergüenza!”
 
 ## Isaías 4:2
 En aquel día, el Renuevo del Señor será espléndido y glorioso, y el fruto de la tierra será el orgullo y honor de los sobrevivientes de Israel.

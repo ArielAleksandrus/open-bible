@@ -18,7 +18,7 @@ Porque todo lo que fue escrito en tiempos pasados fue escrito para nuestra instr
 
 ## Romanos 15:5
 
-Ahora, que el Dios que da perseverancia y consuelo os conceda tener el mismo sentir unos con otros, conforme a Cristo Jesús,
+Que el Dios que da perseverancia y consuelo os conceda tener el mismo sentir unos con otros, conforme a Cristo Jesús,
 
 ## Romanos 15:6
 
@@ -61,11 +61,11 @@ Además, Isaías proclama,
 
 ## Romanos 15:13
 
-Ahora, que el Dios de la esperanza os llene de todo gozo y paz al confiar en él, para que abundéis en esperanza por el poder del Espíritu Santo.
+Que el Dios de la esperanza os llene de todo gozo y paz al confiar en él, para que abundéis en esperanza por el poder del Espíritu Santo.
 
 ## Romanos 15:14
 
-Yo mismo estoy convencido, hermanos y hermanas, de que estáis llenos de bondad, llenos de todo conocimiento y capaces de instruirnos unos a otros.
+Yo mismo estoy convencido, hermanos y hermanas, de que estáis llenos de bondad, llenos de todo conocimiento y capaces de instruiros unos a otros.
 
 ## Romanos 15:15
 
@@ -85,7 +85,7 @@ Pues no me atreveré a hablar de nada excepto de lo que Cristo ha realizado a tr
 
 ## Romanos 15:19
 
-por el poder de señales y prodigios, en el poder del Espíritu; así que desde Jerusalén y alrededor hasta Ilírico he proclamado plenamente el evangelio de Cristo.
+por el poder de señales y prodigios, en el poder del Espíritu; así que desde Jerusalén, y dando la vuelta hasta Ilírico, he proclamado plenamente el evangelio de Cristo.
 
 ## Romanos 15:20
 
@@ -104,7 +104,7 @@ Por esta razón, muchas veces me he visto impedido de venir a vosotros;
 
 ## Romanos 15:23
 
-pero ahora, sin lugar para mí en estas regiones, y ya que he deseado durante muchos años visitaros,
+pero ahora, como ya no tengo lugar para trabajar en estas regiones, y ya que he deseado durante muchos años visitaros,
 
 ## Romanos 15:24
 
@@ -144,4 +144,4 @@ para que pueda ir a vosotros con alegría por la voluntad de Dios y ser refresca
 
 ## Romanos 15:33
 
-Así que ahora que el Dios de paz esté con todos vosotros. Amén.
+Que el Dios de paz esté con todos vosotros. Amén.

@@ -67,7 +67,7 @@ También expulsó del país a los prostitutos sagrados,
 
 ## 1 Reyes 15:13
 
-Y también removió a Maacá su madre de su posición como reina madre,  
+Y también quitó a Maacá su madre de su puesto de reina madre,  
  porque había hecho una imagen ofensiva como Asera;  
  y Asa cortó su imagen ofensiva y la quemó en el arroyo Cedrón.
 
@@ -122,7 +122,7 @@ Al oírlo, Baasa dejó de fortificar Ramá y se quedó en Tirsa.
 
 ## 1 Reyes 15:22
 
-Entonces el rey Asa hizo una proclamación a todo Judá —nadie fue exento— y se llevaron las piedras de Ramá y su madera con la que Baasa había construido,  
+Entonces el rey Asa hizo una proclamación a todo Judá —nadie quedó exento— y se llevaron las piedras de Ramá y su madera con la que Baasa había construido,  
  y el rey Asa construyó con ellas Geba de Benjamín y Mizpa.
 
 ---
@@ -149,7 +149,7 @@ Nadab, hijo de Jeroboam, comenzó a reinar sobre Israel en el segundo año de As
 ## 1 Reyes 15:26
 
 Hizo lo que era malo ante los ojos del Señor,  
- y siguió los caminos de su padre y en su pecado, en el cual hizo caer a Israel.
+ y anduvo en el camino de su padre y en su pecado, en el cual hizo caer a Israel.
 
 ## 1 Reyes 15:27
 
@@ -198,4 +198,4 @@ En el tercer año de Asa, rey de Judá,
 ## 1 Reyes 15:34
 
 Hizo lo que era malo ante los ojos del Señor,  
- y siguió los caminos de Jeroboam y en su pecado, en el cual hizo caer a Israel.
+ y anduvo en el camino de Jeroboam y en su pecado, en el cual hizo caer a Israel.

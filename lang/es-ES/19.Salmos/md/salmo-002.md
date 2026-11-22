@@ -3,30 +3,30 @@
 ## Salmo 2:1
 
 > ¿Por qué se amotinan las naciones,  
->  Y los pueblos traman planes vanos?
+>  y los pueblos traman planes vanos?
 
 ## Salmo 2:2
 
 > Los reyes de la tierra se levantan,  
->  Y los gobernantes se confabulan Contra el Señor y su Ungido,  
+>  y los gobernantes se confabulan Contra el Señor y su Ungido,  
 >  diciendo,
 
 ## Salmo 2:3
 
-> “¡Rompamos sus cadenas,  
->  Y echemos de nosotros sus cuerdas!”
+> “¡Rompamos sus cadenas y quitémonos de encima sus cuerdas!  
+> ”
 
 ---
 
 ## Salmo 2:4
 
 > El que habita en los cielos se ríe,  
->  El Señor se burla de ellos.
+>  el Señor se burla de ellos.
 
 ## Salmo 2:5
 
 > Luego les hablará en su ira,  
->  Y los aterrorizará en su furor, diciendo,
+>  y los aterrorizará en su furor, diciendo,
 
 ## Salmo 2:6
 
@@ -40,17 +40,17 @@
 Proclamaré el decreto del Señor:
 
 >  Él me dijo: “Tú eres mi Hijo,  
->  Hoy yo te he engendrado.
+>  hoy yo te he engendrado.
 
 ## Salmo 2:8
 
-> Pídeme, y te daré por herencia las naciones,  
->  Y como posesión tuya los confines de la tierra.
+> Pídeme,  
+>  y con toda seguridad te entregaré las naciones como herencia y los rincones más lejanos de la tierra como tu propiedad.
 
 ## Salmo 2:9
 
-> Los quebrantarás con vara de hierro,  
->  Los desmenuzarás como vasija de alfarero.”
+> Los aplastarás con una vara de hierro;  
+>  los harás añicos como a un cacharro de barro.”
 
 ---
 
@@ -62,10 +62,10 @@ Proclamaré el decreto del Señor:
 ## Salmo 2:11
 
 > Adorad al Señor con reverencia,  
->  Y alegraos con temblor.
+>  y alegraos con temblor.
 
 ## Salmo 2:12
 
 > Honrad al Hijo, para que no se enoje y perezcáis en vuestro camino,  
->  Pues su ira puede encenderse de repente.  
+>  pues su ira puede encenderse de repente.  
 >  Bienaventurados todos los que en Él buscan refugio.

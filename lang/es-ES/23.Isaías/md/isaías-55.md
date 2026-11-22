@@ -2,19 +2,19 @@
 
 ## Isaías 55:1
 
-“Venid, todos los sedientos, venid a las aguas; y los que no tenéis dinero, venid, comprad y comed. Venid, comprad vino y leche sin dinero y sin costo.
+“¡Venid, todos los que tenéis sed, venid a beber agua! Y los que no tenéis dinero, ¡venid, comprad y comed! Venid a comprar vino y leche sin dinero, sin pagar nada.
 
 ## Isaías 55:2
 
-¿Por qué gastáis dinero en lo que no es pan, y vuestro trabajo en lo que no sacia? Escuchadme atentamente, y comed lo que es bueno, y os deleitaréis en la abundancia.
+¿Por qué gastáis vuestro dinero en lo que no alimenta, y vuestro sueldo en lo que no quita el hambre? Escuchadme bien y comeréis lo que es bueno, y disfrutaréis de comida en abundancia.
 
 ## Isaías 55:3
 
-Inclinad vuestro oído y venid a mí; escuchad, y viviréis. Haré con vosotros un pacto eterno, mi amor fiel prometido a David.
+Prestadme atención y venid a mí; escuchadme, y viviréis. Haré con vosotros un pacto para siempre, con el amor fiel que le prometí a David.
 
 ## Isaías 55:4
 
-Mirad, lo he puesto como testigo a las naciones, como líder y comandante para los pueblos.
+Mirad, lo he puesto como testigo ante las naciones, como jefe y guía de los pueblos.
 
 ## Isaías 55:5
 
@@ -22,32 +22,32 @@ Ciertamente llamarás a naciones que no conoces, y naciones que no te conocen co
 
 ## Isaías 55:6
 
-Buscad al Señor mientras pueda ser hallado; llamadlo mientras esté cerca.
+Buscad al Señor mientras todavía se le puede encontrar; llamadlo mientras todavía está cerca.
 
 ## Isaías 55:7
 
-Deje el malvado su camino y el inicuo sus pensamientos. Vuélvanse al Señor, y él tendrá compasión de ellos, y a nuestro Dios, porque él perdonará abundantemente.
+Que el malvado deje su mala conducta y el injusto sus malas intenciones. Que se vuelvan al Señor, y Él tendrá compasión de ellos; que se vuelvan a nuestro Dios, que perdona con generosidad.
 
 ## Isaías 55:8
 
-“Porque mis pensamientos no son los mismos que vuestros pensamientos, ni vuestros caminos son como mis caminos,” declara el Señor.
+“Porque yo no pienso como pensáis vosotros, ni actúo como actuáis vosotros,” declara el Señor.
 
 ## Isaías 55:9
 
-“Porque así como los cielos son más altos que la tierra, así mis caminos son más altos que vuestros caminos y mis pensamientos que vuestros pensamientos.
+“Porque así como el cielo está por encima de la tierra, así también mis caminos están por encima de los vuestros y mis pensamientos por encima de los vuestros.
 
 ## Isaías 55:10
 
-Porque como la lluvia y la nieve descienden del cielo, y no vuelven allá sin regar la tierra y hacerla brotar y florecer, proporcionando semilla al sembrador y pan al que come,
+Pues así como la lluvia y la nieve caen del cielo y no vuelven allá sin haber regado la tierra, sin hacerla germinar y florecer, para que dé semilla al que siembra y pan al que come,
 
 ## Isaías 55:11
 
-así es mi palabra que sale de mi boca: no volverá a mí vacía, sino que cumplirá lo que deseo y logrará el propósito para el cual la envié.
+así también la palabra que sale de mi boca: no volverá a mí sin haber hecho nada, sino que hará lo que yo quiero y cumplirá la misión para la que la envié.
 
 ## Isaías 55:12
 
-Saldréis con alegría y seréis guiados en paz; las montañas y colinas estallarán en cánticos delante de vosotros, y todos los árboles del campo aplaudirán.
+Saldréis llenos de alegría y os llevarán en paz; las montañas y las colinas se pondrán a cantar a vuestro paso, y todos los árboles del campo aplaudirán.
 
 ## Isaías 55:13
 
-En lugar de la zarza crecerá el enebro, y en lugar de los espinos crecerá el arrayán. Esto será un memorial para el Señor, una señal eterna que no será cortada.”
+Donde había zarzas crecerán enebros, y donde había espinos crecerán arrayanes. Esto servirá para recordar al Señor, como una señal para siempre que nunca desaparecerá.”

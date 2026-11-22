@@ -1,7 +1,7 @@
 # Colosenses Capítulo 4
 
 ## Colosenses 4:1
-Amos, proporcionad a vuestros esclavos justicia y equidad, sabiendo que también vosotros tenéis un Amo en el cielo.
+Amos, tratad a vuestros esclavos con justicia y equidad, sabiendo que también vosotros tenéis un Amo en el cielo.
 
 ## Colosenses 4:2
 Dedicaos a la oración, manteniéndoos vigilantes con una actitud de agradecimiento.
@@ -10,13 +10,13 @@ Dedicaos a la oración, manteniéndoos vigilantes con una actitud de agradecimie
 Y orad también por nosotros, para que Dios abra una puerta para nuestro mensaje, a fin de que podamos declarar el misterio de Cristo, por el cual también estoy preso.
 
 ## Colosenses 4:4
-Orad para que lo haga claro, como debo hablar.
+Orad para que lo dé a conocer con claridad, como debo hablar.
 
 ## Colosenses 4:5
 Sed sabios en vuestra conducta hacia los de afuera, aprovechando al máximo cada oportunidad.
 
 ## Colosenses 4:6
-Que vuestra conversación sea siempre con gracia, sazonada con sal, para que sepáis cómo responder a cada persona.
+Que vuestra conversación sea siempre amable y de buen gusto, como sazonada con sal, para que sepáis responder a cada uno como es debido.
 
 ## Colosenses 4:7
 Tíquico, nuestro querido hermano y fiel ministro y consiervo en el Señor, os informará sobre todos mis asuntos.
@@ -37,13 +37,13 @@ Jesús, llamado Justo, también envía saludos. Estos son los únicos colaborado
 Epafras, que es uno de vosotros y siervo de Cristo Jesús, os envía saludos. Siempre está luchando en oración por vosotros, para que estéis firmes, maduros y plenamente seguros en toda la voluntad de Dios.
 
 ## Colosenses 4:13
-Doy testimonio de él que tiene un profundo interés por vosotros y por los que están en Laodicea y Hierápolis.
+Doy testimonio de que él tiene un profundo interés por vosotros y por los que están en Laodicea y Hierápolis.
 
 ## Colosenses 4:14
-Lucas, el amado médico, y Demas os envían saludos.
+Os mandan saludos Lucas, el querido médico, y Demas.
 
 ## Colosenses 4:15
-Extendéd mis saludos a los hermanos y hermanas en Laodicea, y a Ninfa y la iglesia que se reúne en su casa.
+Saludad de mi parte a los hermanos y hermanas de Laodicea, y a Ninfa y a la iglesia que se reúne en su casa.
 
 ## Colosenses 4:16
 Después de que esta carta haya sido leída entre vosotros, aseguraos de que también se lea en la iglesia de los laodicenses y que vosotros a su vez leáis la carta de Laodicea.

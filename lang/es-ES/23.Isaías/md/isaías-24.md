@@ -2,7 +2,7 @@
 
 ## Isaías 24:1
 
-He aquí, el Señor está dispuesto a devastar la tierra, desolarla, distorsionar su superficie y dispersar a sus habitantes.
+Mirad: el Señor se dispone a arrasar la tierra, a dejarla en ruinas, a ponerla patas arriba y a dispersar a todos los que viven en ella.
 
 ## Isaías 24:2
 
@@ -66,11 +66,11 @@ Desde los confines de la tierra oímos cánticos: “Gloria al Justo”. Pero yo
 
 ## Isaías 24:17
 
-Terror, foso y lazo te esperan, oh habitante de la tierra.
+Terror, hoyo y trampa te esperan a ti, habitante de la tierra.
 
 ## Isaías 24:18
 
-El que huya del sonido del terror caerá en el foso, y el que salga del foso será atrapado en el lazo; porque las ventanas del cielo están abiertas, y los cimientos de la tierra tiemblan.
+El que escape de los gritos de terror se caerá en el hoyo, y el que logre salir del hoyo quedará atrapado en la trampa; porque se han abierto las compuertas del cielo y tiemblan los cimientos de la tierra.
 
 ## Isaías 24:19
 
@@ -78,7 +78,7 @@ La tierra está completamente destrozada, la tierra está partida, la tierra es 
 
 ## Isaías 24:20
 
-La tierra tambalea como un borracho, se balancea como una cabaña; su transgresión pesa sobre ella, y cae, para no levantarse jamás.
+La tierra se tambalea como un borracho, se balancea como una choza; su rebeldía le pesa encima, y se desploma para no levantarse nunca más.
 
 ## Isaías 24:21
 
@@ -90,4 +90,4 @@ Serán reunidos como prisioneros en un foso; serán encerrados en prisión, y de
 
 ## Isaías 24:23
 
-Entonces la luna se avergonzará, y el sol se sonrojará; porque el Señor Todopoderoso reinará en el Monte Sión y en Jerusalén, y su gloria estará delante de sus ancianos.
+Entonces la luna se avergonzará, y el sol se sonrojará; porque el Señor de los ejércitos reinará en el Monte Sion y en Jerusalén, y su gloria estará delante de sus ancianos.

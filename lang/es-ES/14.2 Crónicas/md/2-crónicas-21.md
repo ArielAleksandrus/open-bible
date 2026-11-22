@@ -100,7 +100,7 @@ Entonces el Señor incitó contra Joram el espíritu de los filisteos y de los �
 
 ## 2 Crónicas 21:17
 
-y subieron contra Judá, la invadieron y se llevaron todas las posesiones que se encontraron en la casa del rey, junto con sus hijos y sus esposas, de modo que no le quedó ningún hijo excepto Ocozías, el menor de sus hijos.
+y subieron contra Judá, la invadieron y se llevaron todas las posesiones que se encontraron en la casa del rey, junto con sus hijos y sus esposas, de modo que no le quedó ningún hijo excepto Joacaz, el menor de sus hijos.
 
 ---
 

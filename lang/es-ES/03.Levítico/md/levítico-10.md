@@ -7,10 +7,10 @@ Nadab y Abiú, hijos de Aarón, tomaron cada uno sus incensarios, pusieron fuego
 Salió fuego de la presencia del Señor y los consumió, y murieron delante del Señor.
 
 ## Levítico 10:3
-Moisés dijo a Aarón: “Esto es lo que el Señor habló, diciendo: ‘Entre los que se acercan a Mí, seré mostrado como santo; en presencia de todo el pueblo, seré honrado.’” Así que Aarón guardó silencio.
+Moisés dijo a Aarón: “Esto es lo que el Señor dijo: ‘Entre los que se acercan a Mí, me mostraré santo; en presencia de todo el pueblo, seré honrado.’” Así que Aarón guardó silencio.
 
 ## Levítico 10:4
-Moisés llamó a Misael y a Elzafán, hijos del tío de Aarón, Uziel, y les instruyó: “Acercaos y llevad a vuestros parientes fuera del frente del santuario a un lugar fuera del campamento.”
+Moisés llamó a Misael y a Elzafán, hijos del tío de Aarón, Uziel, y les instruyó: “Acercaos y llevad a vuestros parientes de delante del santuario a un lugar fuera del campamento.”
 
 ## Levítico 10:5
 Ellos se acercaron y los llevaron, aún con sus túnicas, a un área fuera del campamento, como Moisés había ordenado.
@@ -40,7 +40,7 @@ Moisés habló a Aarón y a sus hijos restantes, Eleazar e Itamar, diciendo: “
 La comeréis en un lugar santo, porque es vuestra porción y la porción de vuestros hijos de las ofrendas hechas por fuego al Señor, como se me ha mandado.
 
 ## Levítico 10:14
-El pecho de la ofrenda mecida y el muslo de la ofrenda podréis comer en un lugar limpio, vosotros, vuestros hijos y vuestras hijas con vosotros; porque os han sido dados como vuestra parte asignada y la parte de vuestros hijos de las ofrendas de paz de los israelitas.
+El pecho de la ofrenda mecida y el muslo de la ofrenda los podréis comer en un lugar limpio, vosotros, vuestros hijos y vuestras hijas con vosotros; porque os han sido dados como vuestra parte asignada y la parte de vuestros hijos de las ofrendas de paz de los israelitas.
 
 ## Levítico 10:15
 Ellos traerán el muslo que se levanta y el pecho que se mece, junto con las ofrendas por fuego de las porciones de grasa, para presentarlas como una ofrenda mecida ante el Señor; será un derecho perpetuo para vosotros y vuestros hijos con vosotros, como el Señor ha mandado.”

@@ -7,7 +7,7 @@ Un mensaje del Señor vino a mí:
 “Hijo de hombre, plantea un enigma y preséntalo como una parábola a los israelitas.
 
 ## Ezequiel 17:3
-Diles: ‘Esto es lo que dice el Señor Soberano: Un águila poderosa con grandes alas, largas plumas y un plumaje completo de diversos colores vino al Líbano y tomó la copa de un cedro.
+Diles: ‘Esto es lo que dice el Señor Dios: Un águila poderosa con grandes alas, largas plumas y un plumaje completo de diversos colores vino al Líbano y tomó la copa de un cedro.
 
 ## Ezequiel 17:4
 Arrancó la parte más alta de sus tiernas ramas y la llevó a una tierra de mercaderes; la plantó en una ciudad de comerciantes.
@@ -25,7 +25,7 @@ Pero había otra gran águila con grandes alas y mucho plumaje. La vid ahora ext
 Había sido plantada en buen suelo junto a aguas abundantes, para que pudiera producir ramas, dar fruto y convertirse en una vid espléndida.’
 
 ## Ezequiel 17:9
-Diles, ‘Esto es lo que dice el Señor Soberano: ¿Prosperará? ¿No será desarraigada y despojada de su fruto para que se marchite? Todo su nuevo crecimiento se marchitará. No se requerirá un brazo fuerte ni mucha gente para arrancarla de raíz.
+Diles, ‘Esto es lo que dice el Señor Dios: ¿Prosperará? ¿No será desarraigada y despojada de su fruto para que se marchite? Todo su nuevo crecimiento se marchitará. No se requerirá un brazo fuerte ni mucha gente para arrancarla de raíz.
 
 ## Ezequiel 17:10
 Aunque esté plantada, ¿prosperará? ¿No se marchitará completamente cuando el viento del este la golpee, marchitándose en el lecho donde creció?’”
@@ -46,16 +46,16 @@ para que el reino fuera humillado, no exaltándose a sí mismo, sino manteniendo
 Pero se rebeló contra él enviando a sus enviados a Egipto por caballos y un gran ejército. ¿Tendrá éxito? ¿Escapará el que hace tales cosas? ¿Puede romper el pacto y escapar?
 
 ## Ezequiel 17:16
-Tan cierto como que yo vivo, declara el Señor Soberano, morirá en Babilonia, en la tierra del rey que lo puso en el trono, cuyo juramento despreció y cuyo pacto rompió.
+Tan cierto como que yo vivo, declara el Señor Dios, morirá en Babilonia, en la tierra del rey que lo puso en el trono, cuyo juramento despreció y cuyo pacto rompió.
 
 ## Ezequiel 17:17
-Faraón con su poderoso ejército y gran multitud no le ayudará en la guerra, cuando se construyan rampas y se erijan obras de asedio para destruir muchas vidas.
+El faraón con su poderoso ejército y gran multitud no le ayudará en la guerra, cuando se construyan rampas y se erijan obras de asedio para destruir muchas vidas.
 
 ## Ezequiel 17:18
 Despreció el juramento al romper el pacto. A pesar de dar su mano en prenda, hizo todas estas cosas; no escapará.
 
 ## Ezequiel 17:19
-Por lo tanto, esto es lo que declara el Señor Soberano: Tan cierto como que yo vivo, le pagaré por haber despreciado mi juramento y haber roto mi pacto.
+Por lo tanto, esto es lo que declara el Señor Dios: Tan cierto como que yo vivo, le pagaré por haber despreciado mi juramento y haber roto mi pacto.
 
 ## Ezequiel 17:20
 Extenderé mi red sobre él, y quedará atrapado en mi trampa. Lo llevaré a Babilonia y ejecutaré juicio sobre él allí por haberme sido infiel.
@@ -64,7 +64,7 @@ Extenderé mi red sobre él, y quedará atrapado en mi trampa. Lo llevaré a Bab
 Todas sus tropas escogidas caerán a espada, y los sobrevivientes serán dispersados a todos los vientos. Entonces sabréis que yo, el Señor, he hablado.
 
 ## Ezequiel 17:22
-Esto es lo que dice el Señor Soberano: Yo mismo tomaré un brote de la copa alta de un cedro y lo plantaré; romperé un tierno retoño de sus ramas más altas y lo plantaré en una montaña alta y elevada.
+Esto es lo que dice el Señor Dios: Yo mismo tomaré un brote de la copa alta de un cedro y lo plantaré; romperé un tierno retoño de sus ramas más altas y lo plantaré en una montaña alta y elevada.
 
 ## Ezequiel 17:23
 En las alturas de Israel lo plantaré, para que pueda producir ramas y dar fruto y convertirse en un magnífico cedro. Aves de toda clase anidarán bajo él; encontrarán refugio a la sombra de sus ramas.

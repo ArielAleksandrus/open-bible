@@ -50,7 +50,7 @@ El sacerdote tomará un cordero macho y lo ofrecerá como ofrenda por la culpa, 
 
 ## Levítico 14:13
 
-Sacrificará el cordero en el lugar donde se sacrifican la ofrenda por el pecado y la ofrenda quemada, en el área del santuario. La ofrenda por la culpa, como la ofrenda por el pecado, pertenece al sacerdote; es sumamente santa.
+Sacrificará el cordero en el lugar donde se sacrifican la ofrenda por el pecado y el holocausto, en el área del santuario. La ofrenda por la culpa, como la ofrenda por el pecado, pertenece al sacerdote; es santísima.
 
 ## Levítico 14:14
 
@@ -74,11 +74,11 @@ El aceite que le queda en la palma lo pondrá el sacerdote sobre la cabeza del q
 
 ## Levítico 14:19
 
-Luego el sacerdote ofrecerá la ofrenda por el pecado y hará expiación por el que ha de ser purificado de su impureza. Después sacrificará la ofrenda quemada.
+Luego el sacerdote ofrecerá la ofrenda por el pecado y hará expiación por el que ha de ser purificado de su impureza. Después sacrificará el holocausto.
 
 ## Levítico 14:20
 
-El sacerdote ofrecerá la ofrenda quemada y la ofrenda de cereal sobre el altar. De esta manera, el sacerdote hará expiación por él, y quedará limpio.
+El sacerdote ofrecerá el holocausto y la ofrenda de cereal sobre el altar. De esta manera, el sacerdote hará expiación por él, y quedará limpio.
 
 ## Levítico 14:21
 
@@ -86,7 +86,7 @@ Si, sin embargo, es pobre y no puede pagar esto, tomará un cordero macho como o
 
 ## Levítico 14:22
 
-y dos tórtolas o dos pichones, lo que pueda pagar, uno para ofrenda por el pecado y el otro para ofrenda quemada.
+y dos tórtolas o dos pichones, lo que pueda pagar, uno para ofrenda por el pecado y el otro para holocausto.
 
 ## Levítico 14:23
 
@@ -122,11 +122,11 @@ Luego ofrecerá una de las tórtolas o pichones, lo que pueda pagar.
 
 ## Levítico 14:31
 
-Ofrecerá lo que pueda pagar, uno como ofrenda por el pecado y el otro como ofrenda quemada, junto con la ofrenda de cereal. Así el sacerdote hará expiación delante del Señor en nombre del que ha de ser purificado.
+Ofrecerá lo que pueda pagar, uno como ofrenda por el pecado y el otro como holocausto, junto con la ofrenda de cereal. Así el sacerdote hará expiación delante del Señor en nombre del que ha de ser purificado.
 
 ## Levítico 14:32
 
-Esta es la ley para cualquiera que tenga una enfermedad de la piel contaminante y no pueda pagar las ofrendas regulares para su purificación.
+Esta es la ley para cualquiera que tenga una enfermedad de la piel contaminante y no pueda pagar las ofrendas regulares para su purificación.”
 
 ## Levítico 14:33
 
@@ -154,7 +154,7 @@ el sacerdote saldrá de la casa y la cerrará por siete días.
 
 ## Levítico 14:39
 
-El séptimo día, el sacerdote volverá a reexaminar la casa. Si el moho se ha extendido en las paredes,
+El séptimo día, el sacerdote volverá a examinar la casa. Si el moho se ha extendido en las paredes,
 
 ## Levítico 14:40
 
@@ -198,7 +198,7 @@ Para purificar la casa, tomará dos aves, madera de cedro, lana escarlata e hiso
 
 ## Levítico 14:50
 
-Pondrá a una de las aves a muerte sobre agua fresca en una vasija de barro.
+Degollará una de las aves sobre agua fresca en una vasija de barro.
 
 ## Levítico 14:51
 

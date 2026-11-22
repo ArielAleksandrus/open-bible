@@ -7,7 +7,7 @@ El mensaje del Señor me llegó:
 “Hijo de hombre, vuelve tu rostro hacia las montañas de Israel y profetiza contra ellas.
 
 ## Ezequiel 6:3
-Di: ‘Montañas de Israel, escuchad la palabra del Señor Soberano. Esto es lo que dice el Señor Soberano a las montañas y colinas, a los barrancos y valles: He aquí, voy a traer una espada contra vosotros, y destruiré vuestros lugares altos.
+Di: ‘Montañas de Israel, escuchad la palabra del Señor Dios. Esto es lo que dice el Señor Dios a las montañas y colinas, a los barrancos y valles: He aquí, voy a traer una espada contra vosotros, y destruiré vuestros lugares altos.
 
 ## Ezequiel 6:4
 Vuestros altares serán desolados y vuestros altares de incienso serán destrozados; haré que vuestros muertos caigan delante de vuestros ídolos.
@@ -25,19 +25,19 @@ Los que sean muertos caerán entre vosotros, y llegaréis a saber que yo soy el 
 “‘Sin embargo, dejaré un remanente, porque algunos de vosotros escaparéis de la espada cuando seáis esparcidos entre las naciones.
 
 ## Ezequiel 6:9
-Entonces, entre las naciones donde han sido llevados cautivos, los que escapen se acordarán de mí —cómo me dolieron sus corazones adúlteros que se apartaron de mí, y sus ojos que codiciaban sus ídolos. Se despreciarán a sí mismos por el mal que han hecho y por todas sus prácticas detestables—.
+Entonces, entre las naciones donde han sido llevados cautivos, los que escapen se acordarán de mí, de cómo me dolieron sus corazones adúlteros que se apartaron de mí, y sus ojos que codiciaban sus ídolos. Se despreciarán a sí mismos por el mal que han hecho y por todas sus prácticas detestables.
 
 ## Ezequiel 6:10
 Y sabrán que yo soy el Señor; no hablé en vano cuando dije que traería este desastre sobre ellos.
 
 ## Ezequiel 6:11
-“‘Esto es lo que dice el Señor Soberano: Aplaudid, golpead vuestros pies y gritad “¡Ay!” por todas las abominaciones malvadas de la casa de Israel, porque caerán por la espada, el hambre y la peste.
+“‘Esto es lo que dice el Señor Dios: Batid las palmas, golpead el suelo con los pies y gritad “¡Ay!” por todas las abominaciones malvadas de la casa de Israel, porque caerán por la espada, el hambre y la peste.
 
 ## Ezequiel 6:12
 Los que estén lejos morirán de peste, los que estén cerca caerán por la espada, y los que sobrevivan y sean perdonados morirán de hambre. Así gastaré mi ira sobre ellos.
 
 ## Ezequiel 6:13
-Y sabréis que yo soy el Señor, cuando sus muertos yacen entre sus ídolos alrededor de sus altares, en toda colina alta y en todas las cimas de las montañas, bajo todo árbol frondoso y todo roble frondoso —los lugares donde ofrecieron incienso fragante a todos sus ídolos—.
+Y sabréis que yo soy el Señor, cuando sus muertos yazcan entre sus ídolos alrededor de sus altares, en toda colina alta y en todas las cimas de las montañas, bajo todo árbol frondoso y todo roble frondoso —los lugares donde ofrecieron incienso fragante a todos sus ídolos—.
 
 ## Ezequiel 6:14
-Extenderé mi mano contra ellos y haré de la tierra un desierto desolado desde el desierto hasta Dibla —dondequiera que habiten. Entonces sabrán que yo soy el Señor—.’”
+Extenderé mi mano contra ellos y haré de la tierra una desolación desde el desierto hasta Dibla, dondequiera que habiten. Entonces sabrán que yo soy el Señor.’”

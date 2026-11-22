@@ -14,11 +14,11 @@ Sedequías, rey de Judá, lo había encarcelado, diciendo: “¿Por qué profeti
 
 ## Jeremías 32:4
 
-y Sedequías, rey de Judá, no escapará de los babilonios, sino que ciertamente será entregado al rey de Babilonia, y hablará con él cara a cara y lo verá ojo a ojo.
+y Sedequías, rey de Judá, no escapará de los babilonios, sino que ciertamente será entregado al rey de Babilonia, y hablará con él cara a cara y lo verá con sus propios ojos.
 
 ## Jeremías 32:5
 
-Él llevará a Sedequías a Babilonia, donde permanecerá hasta que yo lo atienda, declara el Señor. Si luchas contra los babilonios, no tendrás éxito.’”
+Él llevará a Sedequías a Babilonia, donde permanecerá hasta que yo me ocupe de él, declara el Señor. Si luchas contra los babilonios, no tendrás éxito.’”
 
 ## Jeremías 32:6
 
@@ -66,7 +66,7 @@ Una vez que entregué la escritura de compra a Baruc, hijo de Nerías, oré al S
 
 ## Jeremías 32:17
 
-‘¡Ah, Señor Soberano, Tú has hecho los cielos y la tierra con Tu gran poder y brazo extendido. Nada es demasiado difícil para Ti,
+‘¡Ah, Señor Dios! Tú has hecho los cielos y la tierra con Tu gran poder y brazo extendido. Nada es demasiado difícil para Ti,
 
 ## Jeremías 32:18
 
@@ -82,7 +82,7 @@ Realizaste señales y maravillas en Egipto y las has continuado hasta hoy, en Is
 
 ## Jeremías 32:21
 
-Libraste a Tu pueblo Israel de Egipto con señales y maravillas milagrosas, con Tu mano poderosa y brazo extendido, y con actos inspiradores de temor.
+Libraste a Tu pueblo Israel de Egipto con señales y maravillas milagrosas, con Tu mano poderosa y brazo extendido, y con hechos que infundían terror.
 
 ## Jeremías 32:22
 
@@ -98,7 +98,7 @@ Mira cómo se han construido las rampas de asedio para tomar la ciudad. Debido a
 
 ## Jeremías 32:25
 
-Sin embargo, Tú me has dicho, Señor Soberano, ‘Compra el campo con plata y haz que la transacción sea testificada,’ aunque la ciudad ha sido entregada a los babilonios.”
+Sin embargo, Tú me has dicho, Señor Dios, ‘Compra el campo con plata y haz que la transacción sea testificada,’ aunque la ciudad ha sido entregada a los babilonios.”
 
 ## Jeremías 32:26
 
@@ -114,7 +114,7 @@ Por lo tanto, esto es lo que dice el Señor: He aquí, estoy a punto de entregar
 
 ## Jeremías 32:29
 
-Los babilonios que están luchando contra esta ciudad entrarán y la prenderán fuego; la quemarán, junto con las casas donde la gente ha provocado Mi ira quemando incienso en los tejados a Baal y derramando libaciones a otros dioses.
+Los babilonios que están luchando contra esta ciudad entrarán y le prenderán fuego; la quemarán, junto con las casas donde la gente ha provocado Mi ira quemando incienso en los tejados a Baal y derramando libaciones a otros dioses.
 
 ## Jeremías 32:30
 
@@ -126,7 +126,7 @@ Desde el día en que fue construida hasta ahora, esta ciudad ha provocado tanto 
 
 ## Jeremías 32:32
 
-El pueblo de Israel y Judá ha provocado Mi ira con todo el mal que han hecho —ellos, sus reyes y oficiales, sus sacerdotes y profetas, el pueblo de Judá y los que viven en Jerusalén—.
+El pueblo de Israel y Judá ha provocado Mi ira con todo el mal que han hecho: ellos, sus reyes y oficiales, sus sacerdotes y profetas, el pueblo de Judá y los que viven en Jerusalén.
 
 ## Jeremías 32:33
 
@@ -138,7 +138,7 @@ Colocaron sus imágenes detestables en la casa que lleva Mi Nombre y la profanar
 
 ## Jeremías 32:35
 
-Construyeron lugares altos para Baal en el Valle de Ben Hinnom para ofrecer a sus hijos e hijas a Moloc, aunque nunca lo mandé —ni siquiera pasó por Mi mente— que cometieran tal abominación y así llevaran a Judá al pecado.
+Construyeron lugares altos para Baal en el Valle de Ben-hinom para ofrecer a sus hijos e hijas a Moloc, aunque nunca lo mandé —ni siquiera pasó por Mi mente— que cometieran tal abominación y así llevaran a Judá al pecado.
 
 ## Jeremías 32:36
 

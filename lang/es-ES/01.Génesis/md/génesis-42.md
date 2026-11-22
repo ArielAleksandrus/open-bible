@@ -26,7 +26,7 @@ José era el gobernador del país, el que vendía grano a toda su gente. Cuando 
 
 ## Génesis 42:7
 
-Al ver a sus hermanos, José los reconoció, pero se disfrazó y les habló con dureza. “¿De dónde venís?” preguntó. “De la tierra de Canaán,” respondieron, “para comprar comida.”
+Al ver a sus hermanos, José los reconoció, pero hizo como que no los conocía y les habló con dureza. “¿De dónde venís?” preguntó. “De la tierra de Canaán,” respondieron, “para comprar comida.”
 
 ## Génesis 42:8
 
@@ -150,4 +150,4 @@ Rubén dijo a su padre: “Puedes dar muerte a mis dos hijos si no te lo devuelv
 
 ## Génesis 42:38
 
-Pero Jacob dijo: “Mi hijo no bajará con vosotros; su hermano ha muerto, y él solo queda. Si le ocurre algún daño en el viaje que estáis haciendo, haréis que mis canas desciendan con dolor al Seol.”
+Pero Jacob dijo: “Mi hijo no irá con vosotros; su hermano ha muerto, y solo me queda él. Si le pasa alguna desgracia en el viaje que vais a hacer, me haréis bajar al Seol con mis canas y lleno de tristeza.”

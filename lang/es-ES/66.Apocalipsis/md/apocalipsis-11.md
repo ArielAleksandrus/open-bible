@@ -2,90 +2,90 @@
 
 ## Apocalipsis 11:1
 
-Me fue dada una caña de medir semejante a una vara, y se me dijo: “Levántate y mide el templo de Dios y el altar, y a los que adoran en él.
+Me dieron una caña que parecía una vara de medir, y me dijeron: “Levántate y mide el templo de Dios y el altar, y cuenta a los que adoran allí.
 
 ## Apocalipsis 11:2
 
-Pero deja fuera el patio exterior; no lo midas, porque ha sido entregado a las naciones. Ellas pisotearán la ciudad santa durante cuarenta y dos meses.
+Pero no midas el patio de fuera del templo; déjalo, porque se ha entregado a las naciones, que pisotearán la ciudad santa durante cuarenta y dos meses.
 
 ## Apocalipsis 11:3
 
-Y daré autoridad a mis dos testigos, y ellos profetizarán por 1,260 días, vestidos de cilicio.”
+Y yo daré autoridad a mis dos testigos, y ellos profetizarán durante 1 260 días vestidos de luto.”
 
 ## Apocalipsis 11:4
 
-Estos son los dos olivos y los dos candelabros que están delante del Señor de la tierra.
+Estos testigos son los dos olivos y los dos candelabros que están delante del Señor de la tierra.
 
 ## Apocalipsis 11:5
 
-Si alguien intenta hacerles daño, fuego sale de sus bocas y consume a sus enemigos. Así, cualquiera que desee hacerles daño debe ser muerto de esta manera.
+Si alguien intenta hacerles daño, sale fuego de su boca y acaba con sus enemigos. Así morirá cualquiera que quiera hacerles daño.
 
 ## Apocalipsis 11:6
 
-Ellos tienen el poder de cerrar el cielo para que no llueva durante el tiempo que profeticen; y tienen autoridad sobre las aguas para convertirlas en sangre y para golpear la tierra con toda plaga cuantas veces quieran.
+Tienen poder para cerrar el cielo, para que no llueva mientras estén profetizando; y tienen poder sobre las aguas para convertirlas en sangre, y para castigar la tierra con toda clase de plagas siempre que quieran.
 
 ## Apocalipsis 11:7
 
-Cuando hayan completado su testimonio, la bestia que sube del abismo hará guerra contra ellos, los vencerá y los matará.
+Cuando hayan terminado de dar su testimonio, la bestia que sube del abismo les hará la guerra, los vencerá y los matará.
 
 ## Apocalipsis 11:8
 
-Sus cadáveres yacerán en la calle de la gran ciudad, que espiritualmente se llama Sodoma y Egipto, donde también fue crucificado su Señor.
+Sus cadáveres quedarán tirados en la calle de la gran ciudad, que en sentido figurado se llama Sodoma y Egipto, donde también fue crucificado su Señor.
 
 ## Apocalipsis 11:9
 
-Durante tres días y medio, gente de todos los pueblos, tribus, lenguas y naciones contemplará sus cuerpos y no permitirá que sean sepultados.
+Durante tres días y medio, gente de todos los pueblos, tribus, lenguas y naciones contemplará sus cadáveres y no dejará que los entierren.
 
 ## Apocalipsis 11:10
 
-Los habitantes de la tierra se regocijarán sobre ellos y harán fiesta, enviándose regalos unos a otros, porque estos dos profetas habían atormentado a los que moran en la tierra.
+Los que viven en la tierra se alegrarán de su muerte y lo celebrarán mandándose regalos unos a otros, porque esos dos profetas habían sido un tormento para los habitantes de la tierra.
 
 ## Apocalipsis 11:11
 
-Después de los tres días y medio, el aliento de vida de Dios entró en ellos, y se pusieron de pie, y gran temor cayó sobre los que los vieron.
+Pero, pasados los tres días y medio, entró en ellos un aliento de vida enviado por Dios, y se pusieron de pie; y todos los que los vieron se llenaron de terror.
 
 ## Apocalipsis 11:12
 
-Entonces oyeron una fuerte voz del cielo que les decía: “Subid acá.” Y subieron al cielo en una nube, mientras sus enemigos los miraban.
+Entonces oyeron una voz fuerte que les decía desde el cielo: “Subid aquí.” Y subieron al cielo en una nube, mientras sus enemigos los miraban.
 
 ## Apocalipsis 11:13
 
-En ese momento, hubo un gran terremoto, y la décima parte de la ciudad se derrumbó. Siete mil personas murieron en el terremoto, y los sobrevivientes se aterraron y dieron gloria al Dios del cielo.
+En ese mismo momento hubo un fuerte terremoto, y se derrumbó la décima parte de la ciudad. Siete mil personas murieron en el terremoto, y los demás, llenos de miedo, dieron gloria al Dios del cielo.
 
 ## Apocalipsis 11:14
 
-El segundo ay ha pasado; he aquí, el tercer ay viene pronto.
+El segundo ay ya ha pasado; pero, atención, el tercer ay llega pronto.
 
 ## Apocalipsis 11:15
 
-El séptimo ángel tocó su trompeta, y hubo grandes voces en el cielo, que decían:
+El séptimo ángel tocó su trompeta, y en el cielo se oyeron voces fuertes que decían:
 
->  “El reino del mundo ha venido a ser el reino de nuestro Señor y de su Mesías,
->  y Él reinará por los siglos de los siglos.
+>  “El reino del mundo ha pasado a ser de nuestro Señor y de su Mesías,
+>  y él reinará por siempre jamás.
 > ”
 
 ## Apocalipsis 11:16
 
-Y los veinticuatro ancianos, sentados en sus tronos delante de Dios, se postraron sobre sus rostros y adoraron a Dios,
+Y los veinticuatro ancianos que estaban sentados en sus tronos delante de Dios se postraron rostro en tierra y adoraron a Dios,
 
 ## Apocalipsis 11:17
 
-Proclamaron:
+diciendo:
 
 >  “Te damos gracias, Señor Dios Todopoderoso,
->  el que es y que era,
+>  que eres y que eras,
 >  porque has tomado tu gran poder y has comenzado a reinar.
 
 ## Apocalipsis 11:18
 
-> Las naciones se enfurecieron,
->  y ha llegado tu ira.
->  Ha llegado el momento de juzgar a los muertos,
->  y de recompensar a tus siervos los profetas y a los santos,
->  y a los que temen tu nombre,
->  tanto pequeños como grandes,
->  y de destruir a los que destruyen la tierra.”
+> Las naciones se llenaron de furia,
+>  pero ha llegado tu ira.
+>  Ha llegado el momento de juzgar a los muertos y de recompensar a tus siervos los profetas,
+>  a tu pueblo santo y a los que honran tu nombre,
+>  pequeños y grandes,
+>  y de destruir a los que destruyen la tierra.
+> ”
 
 ## Apocalipsis 11:19
 
-Entonces el templo de Dios en el cielo fue abierto, y el arca de su pacto fue vista en su templo. Hubo relámpagos, estruendos, truenos, un terremoto y una gran tormenta de granizo.
+Entonces se abrió el templo de Dios que está en el cielo, y dentro del templo se vio el arca de su pacto. Y hubo relámpagos, ruidos, truenos, un terremoto y una fuerte granizada.

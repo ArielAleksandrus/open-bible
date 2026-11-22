@@ -4,17 +4,17 @@
 
 Entonces todo Israel se reunió con David en Hebrón y le dijo:
 
->  "He aquí, nosotros somos tu hueso y tu carne.
+>  “Mira, somos hueso tuyo y carne tuya.
 
 ---
 
 ## 1 Crónicas 11:2
 
-> En tiempos pasados, aun cuando Saúl era rey,  
->  tú eras el que sacaba y traía a Israel.  
+> Ya antes, incluso cuando Saúl era rey,  
+>  eras tú quien guiaba a Israel cuando salía y cuando volvía.  
 >  Y el Señor tu Dios te dijo:  
->  ‘Tú pastorearás a mi pueblo Israel,  
->  y tú serás príncipe sobre mi pueblo Israel.’”
+>  ‘Tú serás el pastor de mi pueblo Israel,  
+>  y tú serás el príncipe de mi pueblo Israel.’”
 
 ---
 
@@ -39,8 +39,8 @@ Entonces David y todo Israel fueron a Jerusalén (es decir, Jebús);
 
 Los habitantes de Jebús dijeron a David:
 
->  "No entrarás aquí.  
-> " Sin embargo, David capturó la fortaleza de Sion,  
+>  “No entrarás aquí.  
+> ” Sin embargo, David capturó la fortaleza de Sion,  
 >  que es la ciudad de David.
 
 ---
@@ -49,8 +49,8 @@ Los habitantes de Jebús dijeron a David:
 
 Ahora David había dicho:
 
->  "El que primero hiera a los jebuseos será jefe y comandante.  
-> " Joab, hijo de Zeruiah, subió primero,  
+>  “El que primero hiera a los jebuseos será jefe y comandante.  
+> ” Joab, hijo de Sarvia, subió primero,  
 >  y se convirtió en jefe.
 
 ---
@@ -144,14 +144,14 @@ David estaba entonces en la fortaleza,
 
 David expresó un anhelo y dijo:
 
->  "¡Oh, si alguien me diera de beber agua del pozo de Belén,  
->  que está junto a la puerta!"
+>  “¡Oh, si alguien me diera de beber agua del pozo de Belén,  
+>  que está junto a la puerta!”
 
 ---
 
 ## 1 Crónicas 11:18
 
-Entonces los tres rompieron el campamento de los filisteos y sacaron agua del pozo de Belén que estaba junto a la puerta,  
+Entonces los tres se abrieron paso por el campamento de los filisteos y sacaron agua del pozo de Belén que estaba junto a la puerta,  
  y la tomaron y la llevaron a David;  
  sin embargo,
 
@@ -163,10 +163,10 @@ Entonces los tres rompieron el campamento de los filisteos y sacaron agua del po
 
 Y dijo:
 
->  "Lejos esté de mí ante mi Dios que yo haga esto.  
->  ¿Beberé yo la sangre de estos hombres que fueron al riesgo de sus vidas?  
->  Porque la trajeron al riesgo de sus vidas.  
-> " Por eso no quiso beberla.  
+>  “Lejos esté de mí ante mi Dios que yo haga esto.  
+>  ¿Beberé yo la sangre de estos hombres que fueron arriesgando sus vidas?  
+>  Porque la trajeron arriesgando sus vidas.”  
+>  Por eso no quiso beberla.  
 >  Estas cosas hicieron los tres valientes.
 
 ---
@@ -293,7 +293,7 @@ Ahora los valientes de los ejércitos incluían:
 ## 1 Crónicas 11:39
 
 > Zelec el amonita,  
->  Naharai el berotita, escudero de Joab, hijo de Zeruiah,
+>  Naharai el berotita, escudero de Joab, hijo de Sarvia,
 
 ## 1 Crónicas 11:40
 

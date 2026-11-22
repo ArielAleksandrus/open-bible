@@ -43,10 +43,10 @@ este pecado se convertirá para vosotros como una brecha en un muro alto, abulta
 Se romperá en pedazos como alfarería, quebrada tan despiadadamente que no se hallará entre sus fragmentos un trozo para tomar brasas del hogar o para sacar agua de una cisterna.”
 
 ## Isaías 30:15
-Esto es lo que dice el Señor Soberano, el Santo de Israel: “En el arrepentimiento y el descanso está vuestra salvación, en la quietud y la confianza está vuestra fuerza, pero no quisisteis.
+Esto dice el Señor Dios, el Santo de Israel: “Si os volvéis a Mí y os quedáis tranquilos, os salvaréis; si estáis en calma y confiáis, tendréis fuerza; pero no quisisteis.
 
 ## Isaías 30:16
-Dijisteis, ‘No, huiremos a caballo.’ ¡Por tanto, huiréis! Dijisteis, ‘Cabalgaréis en caballos veloces.’ ¡Por tanto, vuestros perseguidores serán veloces!
+Dijisteis, ‘No, huiremos a caballo.’ ¡Por tanto, huiréis! Dijisteis, ‘Cabalgaremos en caballos veloces.’ ¡Por tanto, vuestros perseguidores serán veloces!
 
 ## Isaías 30:17
 Mil huirán ante la amenaza de uno; ante la amenaza de cinco huiréis todos, hasta que quedéis como un mástil en la cima de un monte, como una bandera en una colina.”
@@ -79,7 +79,7 @@ En cada monte alto y colina elevada habrá corrientes de agua en el día de la g
 La luz de la luna será como la luz del sol, y la luz del sol será siete veces más brillante, como la luz de siete días, cuando el Señor venda las heridas de su pueblo y cure las llagas que infligió.
 
 ## Isaías 30:27
-He aquí, el nombre del Señor viene de lejos, con ardiente ira y densas nubes de humo; sus labios están llenos de ira, y su lengua es como un fuego consumidor.
+Mirad: el nombre del Señor viene desde lejos, con la ira encendida y envuelto en espesas nubes de humo; tiene los labios llenos de furia, y su lengua es como un fuego que todo lo devora.
 
 ## Isaías 30:28
 Su aliento es como un río desbordante, que llega hasta el cuello, para sacudir a las naciones en el tamiz de la destrucción, y para poner en las mandíbulas de los pueblos un freno que los lleve por mal camino.
@@ -97,4 +97,4 @@ A la voz del Señor, Asiria será destrozada; él los golpeará con su vara.
 Cada golpe que el Señor les aseste con su vara punitiva será al son de panderetas y liras, mientras los combate en batalla con los golpes de su brazo.
 
 ## Isaías 30:33
-Porque Tofet ha sido preparado desde hace tiempo; ha sido hecho listo para el rey. Su pira es profunda y ancha, con abundancia de fuego y leña; el aliento del Señor, como un torrente de azufre ardiente, lo enciende.
+Porque Tofet ha sido preparado desde hace tiempo; está dispuesto para el rey. Su pira es profunda y ancha, con abundancia de fuego y leña; el aliento del Señor, como un torrente de azufre ardiente, lo enciende.

@@ -56,7 +56,7 @@ Cuando Pilato oyó estas palabras, sacó a Jesús y se sentó en el tribunal en 
 
 ## Juan 19:14
 
-Era el día de la Preparación para la Pascua, alrededor de la hora sexta. Dijo a los judíos: “¡He aquí vuestro Rey!”
+Era el día de la Preparación de la Pascua, hacia la hora sexta. Dijo a los judíos: “¡Aquí tenéis a vuestro Rey!”
 
 ## Juan 19:15
 
@@ -66,7 +66,7 @@ Ellos gritaron: “¡Fuera con Él! ¡Fuera con Él! ¡Crucifícalo!” Pilato p
 
 ## Juan 19:16
 
-Entonces Pilato lo entregó para que fuera crucificado. Los soldados tomaron a cargo a Jesús.
+Entonces Pilato lo entregó para que fuera crucificado. Los soldados se hicieron cargo de Jesús.
 
 ---
 
@@ -130,7 +130,7 @@ Había allí una vasija llena de vinagre; así que pusieron una esponja llena de
 
 ## Juan 19:30
 
-Después de recibir el vinagre, Jesús declaró: “¡Consumado es!” Entonces inclinó la cabeza y entregó el espíritu.
+Después de recibir el vinagre, Jesús dijo: “¡Todo está cumplido!” Luego inclinó la cabeza y entregó su espíritu.
 
 ---
 

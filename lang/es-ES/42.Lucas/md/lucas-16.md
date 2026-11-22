@@ -34,7 +34,7 @@ El señor alabó al administrador deshonesto porque había actuado astutamente; 
 
 ## Lucas 16:9
 
-Y yo os digo, haceos amigos por medio de las riquezas mundanas, para que cuando estas falten, os reciban en las moradas eternas.
+Y yo os digo: haceos amigos por medio de las riquezas de este mundo, para que, cuando se acaben, os reciban en las moradas eternas.
 
 ---
 
@@ -52,7 +52,7 @@ Y si no habéis sido fieles con lo que pertenece a otro, ¿quién os dará lo qu
 
 ## Lucas 16:13
 
-Ningún siervo puede servir a dos señores; porque o aborrecerá a uno y amará al otro, o se dedicará a uno y despreciará al otro. No podéis servir a Dios y al dinero.
+Ningún siervo puede servir a dos señores, porque odiará a uno y amará al otro, o se entregará a uno y despreciará al otro. No podéis servir a la vez a Dios y al dinero.”
 
 ---
 
@@ -68,11 +68,11 @@ Los fariseos, que eran amantes del dinero, oyeron todas estas cosas y se burlaba
 
 ## Lucas 16:16
 
-La Ley y los Profetas fueron proclamados hasta Juan; desde entonces, se predica la buena nueva del reino de Dios, y todos se esfuerzan por entrar en él.
+La Ley y los Profetas se anunciaron hasta Juan; desde entonces se anuncia la buena noticia del reino de Dios, y todos se abren paso a la fuerza para entrar en él.
 
 ## Lucas 16:17
 
-Pero es más fácil que el cielo y la tierra pasen, que una sola tilde de la Ley falle.
+Pero es más fácil que desaparezcan el cielo y la tierra que deje de cumplirse un solo trazo de una letra de la Ley.
 
 ## Lucas 16:18
 
@@ -114,11 +114,11 @@ Y además de todo esto, entre nosotros y vosotros hay un gran abismo fijado, par
 
 ## Lucas 16:27
 
-Él dijo, ‘Entonces te ruego, padre, que lo envíes a la casa de mi padre—
+Él dijo, ‘Entonces te ruego, padre, que lo envíes a la casa de mi padre,
 
 ## Lucas 16:28
 
-porque tengo cinco hermanos —para que les advierta, no sea que ellos también vengan a este lugar de tormento—.’
+porque tengo cinco hermanos, para que les advierta, no sea que ellos también vengan a este lugar de tormento.’
 
 ## Lucas 16:29
 

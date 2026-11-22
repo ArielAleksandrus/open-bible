@@ -22,7 +22,7 @@ Entonces oí a alguien que me hablaba desde dentro del templo, mientras el hombr
 Él me dijo: “Hijo de hombre, este es el lugar de Mi trono y el lugar para las plantas de Mis pies, donde habitaré entre los israelitas para siempre. La casa de Israel ya no profanará Mi santo nombre, ni ellos ni sus reyes, con su prostitución o con los cadáveres de sus reyes en su muerte.
 
 ## Ezequiel 43:8
-Colocando su umbral junto a Mi umbral y sus postes junto a Mis postes, con solo una pared entre Mí y ellos, profanaron Mi santo nombre con sus abominaciones. Así que los consumí en Mi ira.
+Colocando su umbral junto a Mi umbral y sus postes junto a Mis postes, con solo una pared entre ellos y Yo, profanaron Mi santo nombre con sus abominaciones. Así que los consumí en Mi ira.
 
 ## Ezequiel 43:9
 Que alejen de Mí sus actos de infidelidad y los restos de sus reyes, y habitaré entre ellos para siempre.
@@ -37,7 +37,7 @@ Si se avergüenzan de todo lo que han hecho, hazles conocer el diseño del templ
 Esta es la ley del templo: toda el área en la cima de la montaña alrededor será santísima. He aquí, esta es la ley del templo.
 
 ## Ezequiel 43:13
-“Estas son las medidas del altar en codos largos (un codo siendo un codo y un palmo): la base será de un codo de profundidad y un codo de ancho, con un borde de un palmo alrededor de su borde. Esta es la altura del altar:
+“Estas son las medidas del altar en codos largos (cada codo es un codo más un palmo): la base será de un codo de profundidad y un codo de ancho, con un borde de un palmo a su alrededor. Esta es la altura del altar:
 
 ## Ezequiel 43:14
 Desde la base en el suelo hasta el reborde inferior será de dos codos de altura, y el reborde será de un codo de ancho. Desde el reborde más pequeño hasta el reborde más grande será de cuatro codos de altura, y el reborde también será de un codo de ancho.
@@ -52,10 +52,10 @@ El hogar del altar será cuadrado, de doce codos de largo y doce codos de ancho.
 El reborde superior también será cuadrado, de catorce codos de largo y catorce codos de ancho. Alrededor del altar hay un canal de un codo con un borde de medio codo. Los escalones del altar mirarán hacia el este.”
 
 ## Ezequiel 43:18
-Entonces Él me dijo, “Hijo de hombre, esto es lo que dice el Señor Soberano: ‘Estas son las regulaciones para el altar el día que se construya, para ofrecer holocaustos sobre él y rociar sangre contra él.
+Entonces Él me dijo, “Hijo de hombre, esto es lo que dice el Señor Dios: ‘Estas son las regulaciones para el altar el día que se construya, para ofrecer holocaustos sobre él y rociar sangre contra él.
 
 ## Ezequiel 43:19
-Darás un becerro joven como ofrenda por el pecado a los sacerdotes levitas de la familia de Sadoc, que se acercan para ministrar ante Mí,’ declara el Señor Soberano.
+Darás un becerro joven como ofrenda por el pecado a los sacerdotes levitas de la familia de Sadoc, que se acercan para ministrar ante Mí,’ declara el Señor Dios.
 
 ## Ezequiel 43:20
 Tomarás parte de su sangre y la pondrás en los cuatro cuernos del altar y en las cuatro esquinas del reborde y alrededor del borde, y así purificarás el altar y harás expiación por él.
@@ -79,4 +79,4 @@ Durante siete días proporcionarás un macho cabrío diariamente como ofrenda po
 Durante siete días harán expiación por el altar y lo limpiarán; así lo consagrarán.
 
 ## Ezequiel 43:27
-Al final de estos días, desde el octavo día en adelante, los sacerdotes presentarán tus holocaustos y ofrendas de paz en el altar; y te aceptaré,’ declara el Señor Soberano.”
+Al final de estos días, desde el octavo día en adelante, los sacerdotes presentarán vuestros holocaustos y ofrendas de paz en el altar; y os aceptaré,’ declara el Señor Dios.”

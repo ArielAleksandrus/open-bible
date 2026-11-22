@@ -70,7 +70,7 @@ Porque de tal manera amó Dios al mundo que dio a su único Hijo, para que todo 
 
 ## Juan 3:17
 
-Porque Dios no envió a su Hijo al mundo para juzgar al mundo, sino para que el mundo sea salvo por Él.
+Porque Dios no envió a su Hijo al mundo para juzgar al mundo, sino para salvar al mundo por medio de Él.
 
 ## Juan 3:18
 
@@ -86,7 +86,7 @@ Aquellos que hacen el mal odian la luz y la evitan, temiendo que sus obras sean 
 
 ## Juan 3:21
 
-Pero el que practica la verdad viene a la luz, para que sea evidente que lo que ha hecho ha sido hecho en la presencia de Dios.
+Pero el que practica la verdad viene a la luz, para que sea evidente que lo que ha hecho ha sido hecho en la presencia de Dios.”
 
 ---
 
@@ -96,7 +96,7 @@ Después de esto, Jesús y sus discípulos fueron al campo de Judea, donde pasó
 
 ## Juan 3:23
 
-Ahora Juan también estaba bautizando en Enón, cerca de Salim, porque había mucha agua, y la gente venía y era bautizada.
+Juan también estaba bautizando en Enón, cerca de Salim, porque había mucha agua, y la gente venía y era bautizada.
 
 ## Juan 3:24
 
@@ -106,7 +106,7 @@ Ahora Juan también estaba bautizando en Enón, cerca de Salim, porque había mu
 
 ## Juan 3:25
 
-Surgió una discusión entre algunos de los discípulos de Juan y un cierto judío sobre la purificación ceremonial.
+Surgió una discusión entre algunos de los discípulos de Juan y cierto judío sobre la purificación ceremonial.
 
 ## Juan 3:26
 
@@ -122,7 +122,7 @@ Podéis confirmar que dije: ‘No soy el Mesías, sino que he sido enviado delan
 
 ## Juan 3:29
 
-La novia pertenece al novio. El amigo que atiende al novio espera y escucha por él y se llena de alegría cuando oye la voz del novio. Esa alegría es mía, y ahora está completa.
+La novia pertenece al novio. El amigo que atiende al novio lo espera y lo escucha, y se llena de alegría cuando oye la voz del novio. Esa alegría es mía, y ahora está completa.
 
 ## Juan 3:30
 

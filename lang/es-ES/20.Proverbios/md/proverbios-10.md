@@ -37,7 +37,7 @@ Las palabras de los justos son fuente de vida, pero el discurso de los malvados 
 El odio suscita conflictos, pero el amor cubre todas las faltas.
 
 ## Proverbios 10:13
-La sabiduría se encuentra en los labios del discernidor, pero una vara es para la espalda del que carece de sentido.
+La sabiduría se encuentra en los labios del entendido, pero la vara es para la espalda del falto de juicio.
 
 ## Proverbios 10:14
 Los sabios acumulan conocimiento, pero las palabras de un necio invitan a la ruina.
@@ -46,7 +46,7 @@ Los sabios acumulan conocimiento, pero las palabras de un necio invitan a la rui
 La riqueza de los ricos es su fortaleza, pero la pobreza es la ruina de los pobres.
 
 ## Proverbios 10:16
-El salario de los justos lleva a la vida, pero el ingreso de los malvados trae castigo.
+El salario de los justos lleva a la vida, pero las ganancias de los malvados traen castigo.
 
 ## Proverbios 10:17
 Quien escucha la disciplina muestra el camino a la vida, pero quien ignora la corrección lleva a otros por mal camino.
@@ -61,7 +61,7 @@ Cuando las palabras son muchas, el pecado no está ausente, pero quien refrena s
 La lengua de los justos es como plata escogida, pero el corazón de los malvados tiene poco valor.
 
 ## Proverbios 10:21
-Los labios de los justos alimentan a muchos, pero los que carecen de sentido perecen.
+Los labios de los justos alimentan a muchos, pero los faltos de juicio perecen.
 
 ## Proverbios 10:22
 La bendición del Señor trae riqueza, sin añadirle tristeza.

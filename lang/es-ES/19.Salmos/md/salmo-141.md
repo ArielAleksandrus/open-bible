@@ -4,61 +4,60 @@
 
 ## Salmo 141:1
 
-> Señor, te llamo; ¡apresúrate a mí!  
+> Señor, a Ti clamo; ¡ven pronto a ayudarme!  
 >  ¡Escucha mi voz cuando te llamo!
 
 ## Salmo 141:2
 
-> Que mi oración suba ante Ti como incienso;  
->  El levantar de mis manos como el sacrificio vespertino.
+> Que mi oración llegue a Ti como el humo del incienso,  
+>  y mis manos levantadas, como la ofrenda de la tarde.
 
 ---
 
 ## Salmo 141:3
 
-> Pon una guardia, Señor, en mi boca;  
->  Vigila la entrada de mis labios.
+> Señor, ponle un guardia a mi boca;  
+>  vigila la puerta de mis labios.
 
 ## Salmo 141:4
 
-> No dejes que mi corazón se incline hacia nada malo,  
->  Para participar en actos de maldad Con aquellos que cometen iniquidad;  
->  Y que no participe de sus manjares.
+> No permitas que mi corazón se sienta atraído por el mal,  
+>  ni que me una a los malvados en sus malas acciones;  
+>  que yo no pruebe sus manjares.
 
 ---
 
 ## Salmo 141:5
 
-> Que el justo me hiera, será un favor;  
->  Que me reprenda, será aceite para la cabeza;  
->  Mi cabeza no lo rechazará,  
->  Porque aún mi oración es contra sus malas obras.
+> Si el justo me golpea, es por bondad;  
+>  si me corrige, es como aceite sobre mi cabeza,  
+>  y mi cabeza no lo rechazará;  
+>  pero yo sigo orando contra las maldades de los malvados.
 
 ---
 
 ## Salmo 141:6
 
-> Sus jueces serán arrojados por los lados de la roca,  
->  Y oirán mis palabras, porque son agradables.
+> Cuando sus jueces sean arrojados por los despeñaderos,  
+>  oirán mis palabras y verán que son agradables.
 
 ## Salmo 141:7
 
-> Como cuando uno ara y rompe la tierra,  
->  Nuestros huesos han sido esparcidos a la boca del Seol.
+> Como cuando se ara y se rompe la tierra,  
+>  así han quedado esparcidos nuestros huesos a la entrada del Seol.
 
 ---
 
 ## Salmo 141:8
 
-> Porque mis ojos están hacia Ti, Dios el Señor;  
->  En Ti me refugio, no dejes mi alma indefensa.
+> Pero mis ojos están puestos en Ti, Señor Dios;  
+>  en Ti busco refugio; no me dejes sin protección.
 
 ## Salmo 141:9
 
-> Protégeme de las fauces de la trampa que han puesto para mí,  
->  Y de las redes de los que hacen el mal.
+> Protégeme de la trampa que me han tendido y de las redes de los que hacen el mal.
 
 ## Salmo 141:10
 
-> Que los impíos caigan en sus propias redes,  
->  Mientras yo paso indemne.
+> Que los malvados caigan en sus propias redes,  
+>  mientras yo paso sin sufrir daño.

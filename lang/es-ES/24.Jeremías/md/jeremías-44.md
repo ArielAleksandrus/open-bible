@@ -4,13 +4,13 @@
 El mensaje que vino a Jeremías para todos los judíos que residían en la tierra de Egipto, los que habitaban en Migdol, Tafnes, Menfis y la región de Patros, diciendo,
 
 ## Jeremías 44:2
-“Esto es lo que declara el Señor de los Ejércitos, el Dios de Israel: Vosotros mismos habéis sido testigos del desastre que traje sobre Jerusalén y todas las ciudades de Judá; ahora están desoladas y deshabitadas,
+“Esto es lo que declara el Señor de los ejércitos, el Dios de Israel: Vosotros mismos habéis sido testigos del desastre que traje sobre Jerusalén y todas las ciudades de Judá; ahora están desoladas y deshabitadas,
 
 ## Jeremías 44:3
 por sus malas acciones que provocaron Mi ira al quemar sacrificios y servir a otros dioses que ni ellos, ni vosotros, ni vuestros antepasados conocieron.
 
 ## Jeremías 44:4
-Envié a todos Mis siervos los profetas repetidamente, diciendo, ‘No cometáis este acto abominable que detesto.’
+Os envié repetidamente a todos Mis siervos los profetas, diciendo, ‘No cometáis este acto abominable que detesto.’
 
 ## Jeremías 44:5
 Pero no escucharon ni inclinaron sus oídos para apartarse de su maldad, para dejar de quemar sacrificios a otros dioses.
@@ -19,7 +19,7 @@ Pero no escucharon ni inclinaron sus oídos para apartarse de su maldad, para de
 Por lo tanto, Mi ira y enojo se derramaron y ardieron en las ciudades de Judá y en las calles de Jerusalén, dejándolas en ruinas y desolación como están hoy.
 
 ## Jeremías 44:7
-Ahora, esto es lo que dice el Señor Dios de los Ejércitos, el Dios de Israel: ¿Por qué os traéis tanto daño a vosotros mismos, cortando de Judá a hombre y mujer, niño e infante, dejándoos sin un remanente?
+Ahora, esto es lo que dice el Señor Dios de los ejércitos, el Dios de Israel: ¿Por qué os traéis tanto daño a vosotros mismos, cortando de Judá a hombre y mujer, niño e infante, dejándoos sin un remanente?
 
 ## Jeremías 44:8
 ¿Por qué me provocáis a ira con las obras de vuestras manos, quemando sacrificios a otros dioses en la tierra de Egipto donde residís, para que seáis destruidos y os convirtáis en una maldición y un reproche entre todas las naciones de la tierra?
@@ -31,7 +31,7 @@ Ahora, esto es lo que dice el Señor Dios de los Ejércitos, el Dios de Israel: 
 Hasta el día de hoy, no se han humillado ni han mostrado reverencia, ni han seguido Mi ley y decretos que puse ante vosotros y vuestros antepasados.
 
 ## Jeremías 44:11
-Por lo tanto, esto es lo que dice el Señor de los Ejércitos, el Dios de Israel: Estoy decidido a traer desastre sobre vosotros y a eliminar a todo Judá.
+Por lo tanto, esto es lo que dice el Señor de los ejércitos, el Dios de Israel: Estoy decidido a traer desastre sobre vosotros y a eliminar a todo Judá.
 
 ## Jeremías 44:12
 Quitaré el remanente de Judá que ha decidido entrar en Egipto para residir allí, y todos encontrarán su fin en Egipto; caerán por la espada o perecerán por hambre. Desde el menor hasta el mayor, morirán por la espada y el hambre, convirtiéndose en una maldición, un objeto de horror, una imprecación y una desgracia.
@@ -73,7 +73,7 @@ Porque habéis quemado sacrificios y pecado contra el Señor y no le habéis obe
 Entonces Jeremías dijo a todo el pueblo, incluidas todas las mujeres, “Escuchad la palabra del Señor, todo Judá que está en la tierra de Egipto.
 
 ## Jeremías 44:25
-Esto es lo que dice el Señor de los Ejércitos, el Dios de Israel: Vosotros y vuestras esposas habéis hablado con vuestras bocas y lo habéis cumplido con vuestras manos, diciendo, ‘Ciertamente cumpliremos nuestros votos de quemar sacrificios a la reina del cielo y derramar libaciones para ella.’ ¡Por todos los medios, cumplid vuestros votos y realizadlos!
+Esto es lo que dice el Señor de los ejércitos, el Dios de Israel: Vosotros y vuestras esposas habéis hablado con vuestras bocas y lo habéis cumplido con vuestras manos, diciendo, ‘Ciertamente cumpliremos nuestros votos de quemar sacrificios a la reina del cielo y derramar libaciones para ella.’ ¡Por todos los medios, cumplid vuestros votos y realizadlos!
 
 ## Jeremías 44:26
 Pero escuchad la palabra del Señor, todo Judá que vive en la tierra de Egipto: ‘He jurado por Mi gran nombre,’ dice el Señor, ‘que Mi nombre nunca más será invocado por la boca de ninguno de Judá en toda la tierra de Egipto, diciendo, “Vive el Señor Dios.”

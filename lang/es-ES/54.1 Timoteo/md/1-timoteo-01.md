@@ -14,7 +14,7 @@ Tal como te rogué al partir para Macedonia, permanece en Éfeso para que instru
 
 ## 1 Timoteo 1:4
 
-ni prestar atención a mitos y genealogías interminables, que dan lugar a especulaciones inútiles en lugar de avanzar el plan de Dios, que es por fe.
+ni prestar atención a mitos y genealogías interminables, que dan lugar a especulaciones inútiles en lugar de promover el plan de Dios, que es por fe.
 
 ## 1 Timoteo 1:5
 
@@ -34,7 +34,7 @@ Sin embargo, entendemos que la Ley es beneficiosa, siempre que se use adecuadame
 
 ## 1 Timoteo 1:9
 
-reconociendo el hecho de que la ley no está hecha para una persona justa, sino para aquellos que son sin ley y rebeldes, para los impíos y pecadores, para los irreverentes y profanos, para los que matan a sus padres o madres, para los asesinos,
+reconociendo el hecho de que la ley no está hecha para una persona justa, sino para los que viven sin ley y los rebeldes, para los impíos y pecadores, para los irreverentes y profanos, para los que matan a sus padres o madres, para los asesinos,
 
 ## 1 Timoteo 1:10
 
@@ -42,7 +42,7 @@ para los que cometen actos inmorales, los que explotan a otros, mentirosos, perj
 
 ## 1 Timoteo 1:11
 
-en línea con el glorioso evangelio del Dios bendito, que me ha sido encomendado.
+conforme al glorioso evangelio del Dios bendito, que me ha sido encomendado.
 
 ## 1 Timoteo 1:12
 
@@ -58,7 +58,7 @@ y la gracia de nuestro Señor fue sumamente abundante, con la fe y el amor que e
 
 ## 1 Timoteo 1:15
 
-Es una declaración digna de confianza, merecedora de plena aceptación, que Cristo Jesús vino al mundo para salvar a los pecadores, de los cuales yo soy el primero.
+Esto es algo en lo que se puede confiar y que todos deberían aceptar: Cristo Jesús vino al mundo para salvar a los pecadores, y yo soy el peor de ellos.
 
 ## 1 Timoteo 1:16
 
@@ -74,8 +74,8 @@ Este mandato te confío, Timoteo, mi hijo, de acuerdo con las profecías previam
 
 ## 1 Timoteo 1:19
 
-manteniendo la fe y una buena conciencia, que algunos han rechazado y por lo tanto han naufragado en cuanto a su fe.
+y que te aferres a la fe y a una buena conciencia, que algunos han dejado a un lado, y así su fe se ha venido abajo como un barco que naufraga.
 
 ## 1 Timoteo 1:20
 
-Entre estos están Himeneo y Alejandro, a quienes he entregado a Satanás, para que aprendan a no blasfemar.
+Entre ellos están Himeneo y Alejandro, a quienes he entregado a Satanás para que aprendan a no blasfemar.

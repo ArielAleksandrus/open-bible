@@ -4,7 +4,7 @@
 Pablo, apóstol —no enviado por hombres ni mediante medios humanos, sino por Jesucristo y Dios el Padre, que lo resucitó de entre los muertos—
 
 ## Gálatas 1:2
-y todos los hermanos que están conmigo, A las iglesias de Galacia:
+y todos los hermanos que están conmigo, a las iglesias de Galacia:
 
 ## Gálatas 1:3
 Gracia y paz a vosotros de parte de Dios el Padre y de nuestro Señor Jesucristo,
@@ -16,16 +16,16 @@ que se entregó a sí mismo por nuestros pecados para librarnos de esta presente
 a quien sea la gloria por toda la eternidad. Amén.
 
 ## Gálatas 1:6
-Me sorprende que tan pronto estéis desertando de aquel que os llamó por la gracia de Cristo, para seguir un evangelio diferente—
+Me sorprende que tan pronto estéis desertando de aquel que os llamó por la gracia de Cristo, para seguir un evangelio diferente,
 
 ## Gálatas 1:7
 que en realidad no es otro evangelio; pero hay algunos que os están perturbando y desean alterar el evangelio de Cristo.
 
 ## Gálatas 1:8
-Pero aun si nosotros, o un ángel del cielo, os proclamara un evangelio contrario al que os hemos predicado, ¡sea anatema!
+Pero aunque fuéramos nosotros mismos, o un ángel del cielo, quien os anunciara un evangelio distinto del que os hemos predicado, ¡que caiga sobre él la maldición!
 
 ## Gálatas 1:9
-Como hemos dicho antes, ahora lo repito: si alguien os predica un evangelio contrario al que recibisteis, ¡sea anatema!
+Ya os lo hemos dicho antes, y ahora os lo repito: si alguien os anuncia un evangelio distinto del que recibisteis, ¡que caiga sobre él la maldición!
 
 ## Gálatas 1:10
 ¿Estoy ahora buscando la aprobación de las personas, o de Dios? ¿O estoy tratando de agradar a las personas? Si todavía tratara de agradar a las personas, no sería siervo de Cristo.
@@ -34,7 +34,7 @@ Como hemos dicho antes, ahora lo repito: si alguien os predica un evangelio cont
 Quiero que entendáis, queridos amigos, que el evangelio que proclamé no se deriva de fuentes humanas.
 
 ## Gálatas 1:12
-No lo recibí de ningún hombre, ni fui enseñado; más bien, lo recibí por revelación de Jesucristo.
+No lo recibí de ningún hombre, ni me fue enseñado; más bien, lo recibí por revelación de Jesucristo.
 
 ## Gálatas 1:13
 Porque habéis oído de mi antigua manera de vivir en el judaísmo, cómo perseguía intensamente a la iglesia de Dios e intentaba destruirla.
@@ -55,7 +55,7 @@ ni subí a Jerusalén a los que eran apóstoles antes que yo, sino que fui a Ara
 Luego, después de tres años, subí a Jerusalén para conocer a Cefas y me quedé con él quince días.
 
 ## Gálatas 1:19
-No conocí a ningún otro de los apóstoles, excepto a Jacobo, el hermano del Señor.
+No conocí a ningún otro de los apóstoles, excepto a Santiago, el hermano del Señor.
 
 ## Gálatas 1:20
 Os aseguro delante de Dios que lo que os escribo no es mentira.

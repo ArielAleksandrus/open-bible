@@ -2,85 +2,84 @@
 
 ## Salmo 91:1
 
-> El que habita al abrigo del Altísimo Morará bajo la sombra del Omnipotente.
+> Quien vive bajo la protección del Altísimo descansará a la sombra del Todopoderoso.
 
 ## Salmo 91:2
 
-> Diré yo al Señor: “Tú eres mi refugio y mi fortaleza,  
->  Mi Dios, en quien confío.”
+> Yo le digo al Señor: “Tú eres mi refugio y mi fortaleza, mi Dios,  
+>  en quien pongo mi confianza.”
 
 ---
 
 ## Salmo 91:3
 
-> Porque Él te librará del lazo del cazador Y de la peste destructora.
+> Porque Él es quien te rescata de la trampa del cazador y de la peste mortal.
 
 ## Salmo 91:4
 
-> Con sus plumas te cubrirá,  
->  Y debajo de sus alas estarás seguro;  
->  Su fidelidad es escudo y baluarte.
+> Te protegerá con sus plumas,  
+>  y bajo sus alas hallarás refugio;  
+>  su fidelidad te protege como escudo y muralla.
 
 ## Salmo 91:5
 
-> No temerás el terror nocturno,  
->  Ni la flecha que vuela de día;
+> No tendrás miedo a los terrores de la noche,  
+>  ni a la flecha disparada en pleno día;
 
 ## Salmo 91:6
 
-> Ni la pestilencia que anda en oscuridad,  
->  Ni la mortandad que asola al mediodía.
+> ni a la epidemia que acecha en la oscuridad,  
+>  ni a la destrucción que arrasa al mediodía.
 
 ## Salmo 91:7
 
-> Aunque caigan mil a tu lado Y diez mil a tu diestra,  
->  A ti no te alcanzará.
+> Mil podrán caer a tu lado, y diez mil a tu derecha,  
+>  pero a ti no se te acercará.
 
 ## Salmo 91:8
 
-> Ciertamente con tus ojos mirarás Y verás la recompensa de los impíos.
+> Tú solo tendrás que mirar, y con tus propios ojos verás cómo reciben su pago los malvados.
 
 ---
 
 ## Salmo 91:9
 
-> Porque has puesto al Señor, que es mi refugio,  
->  Al Altísimo por tu habitación,
+> Ya que has hecho del Señor tu refugio,  
+>  del Altísimo el lugar donde vives,
 
 ## Salmo 91:10
 
-> No te sobrevendrá mal,  
->  Ni plaga tocará tu morada.
+> ningún mal te alcanzará,  
+>  ninguna plaga se acercará a tu casa.
 
 ## Salmo 91:11
 
-> Pues a sus ángeles mandará acerca de ti,  
->  Que te guarden en todos tus caminos.
+> Porque Él mandará a sus ángeles para que te cuiden en cada uno de tus caminos.
 
 ## Salmo 91:12
 
-> En sus manos te llevarán,  
->  Para que tu pie no tropiece en piedra.
+> Te levantarán en sus manos,  
+>  para que tu pie no se golpee contra ninguna piedra.
 
 ## Salmo 91:13
 
-> Sobre el león y el áspid pisarás;  
->  Hollarás al cachorro de león y al dragón.
+> Pisarás al león y a la cobra;  
+>  aplastarás al león feroz y a la serpiente.
 
 ---
 
 ## Salmo 91:14
 
-> “Por cuanto en mí ha puesto su amor, yo también lo libraré;  
->  Lo pondré en alto, por cuanto ha conocido mi nombre.
+> “Porque se aferra a mí con amor, yo lo rescataré;  
+>  lo pondré a salvo en lo alto, porque reconoce mi nombre.
 
 ## Salmo 91:15
 
-> Me invocará, y yo le responderé;  
->  Con él estaré yo en la angustia;  
->  Lo libraré y le honraré.
+> Me llamará, y yo le contestaré;  
+>  estaré con él en los momentos difíciles;  
+>  lo rescataré y lo llenaré de honra.
 
 ## Salmo 91:16
 
-> Lo saciaré de larga vida,  
->  Y le mostraré mi salvación.”
+> Le daré la bendición de una vida larga,  
+>  y le haré ver mi salvación.”

@@ -2,7 +2,7 @@
 
 ## Números 27:1
 
-Las hijas de Zelofehad, hijo de Héfer, hijo de Galaad, hijo de Maquir, hijo de Manasés, de las familias de Manasés, hijo de José, se presentaron. Los nombres de las hijas eran Mahla, Noa, Hogla, Milca y Tirsa.
+Las hijas de Zelofehad, hijo de Hefer, hijo de Galaad, hijo de Maquir, hijo de Manasés, de las familias de Manasés, hijo de José, se presentaron. Los nombres de las hijas eran Mahla, Noa, Hogla, Milca y Tirsa.
 
 ## Números 27:2
 
@@ -78,7 +78,7 @@ Haz que se presente ante Eleazar el sacerdote y toda la asamblea, y dale el carg
 
 ## Números 27:20
 
-Confiere parte de tu autoridad sobre él, para que toda la comunidad de los israelitas le obedezca.
+Confiérele parte de tu autoridad, para que toda la comunidad de los israelitas le obedezca.
 
 ## Números 27:21
 

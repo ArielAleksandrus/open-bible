@@ -13,7 +13,7 @@ Escuchad esta palabra, casa de Israel, este lamento que levanto contra vosotros:
 
 ## Amós 5:3
 
-> Porque así dice el Señor Soberano a Israel:
+> Porque así dice el Señor Dios a Israel:
 
 >  “La ciudad que enviaba mil tendrá cien,
 >  y la que enviaba cien tendrá diez.
@@ -45,7 +45,7 @@ Porque así dice el Señor a la casa de Israel:
 
 ## Amós 5:8
 
-> Él que hizo las Pléyades y Orión,
+> El que hizo las Pléyades y Orión,
 >  que convierte la oscuridad profunda en mañana y oscurece el día en noche,
 >  que convoca las aguas del mar y las derrama sobre la faz de la tierra —el Señor es su nombre—.
 
@@ -80,18 +80,18 @@ Porque así dice el Señor a la casa de Israel:
 ## Amós 5:14
 
 > Buscad el bien y no el mal, para que viváis;
->  y así el Señor Dios Todopoderoso estará con vosotros,
+>  y así el Señor Dios de los ejércitos estará con vosotros,
 >  tal como decís.
 
 ## Amós 5:15
 
 > Odiad el mal, amad el bien,
 >  y estableced la justicia en la puerta.
->  Quizás el Señor Dios Todopoderoso sea misericordioso con el remanente de José.
+>  Quizás el Señor Dios de los ejércitos sea misericordioso con el remanente de José.
 
 ## Amós 5:16
 
-Por tanto, esto es lo que dice el Señor, el Señor Dios Todopoderoso:
+Por tanto, esto es lo que dice el Señor, el Señor Dios de los ejércitos:
 
 >  “Habrá lamento en todas las calles y gritos de angustia en todas las plazas públicas.
 >  Los agricultores serán llamados a llorar,
@@ -153,4 +153,4 @@ Por tanto, esto es lo que dice el Señor, el Señor Dios Todopoderoso:
 
 > Por tanto, os enviaré al exilio más allá de Damasco,”
 
- declara el Señor, cuyo nombre es Dios Todopoderoso.
+ declara el Señor, cuyo nombre es Dios de los ejércitos.

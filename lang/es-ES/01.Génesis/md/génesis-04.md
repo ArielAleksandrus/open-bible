@@ -34,7 +34,7 @@ Caín habló con su hermano Abel. Mientras estaban en el campo, Caín se levant�
 
 ## Génesis 4:9
 
-Entonces el Señor dijo a Caín: “¿Dónde está tu hermano Abel?” Él respondió: “No lo sé. ¿Soy yo acaso el guardián de mi hermano?”
+Entonces el Señor dijo a Caín: “¿Dónde está tu hermano Abel?” Él respondió: “No lo sé. ¿Acaso me toca a mí cuidar de mi hermano?”
 
 ## Génesis 4:10
 
@@ -42,7 +42,7 @@ El Señor dijo: “¿Qué has hecho? La sangre de tu hermano clama a mí desde l
 
 ## Génesis 4:11
 
-Como resultado, estás maldito lejos de la tierra, que ha abierto su boca para recibir de tu mano la sangre de tu hermano.
+Como resultado, quedas maldito y apartado de la tierra, que ha abierto su boca para recibir de tu mano la sangre de tu hermano.
 
 ## Génesis 4:12
 
@@ -90,7 +90,7 @@ Zila también dio a luz a Tubal-Caín, quien forjó toda clase de herramientas d
 
 ## Génesis 4:23
 
-Lamec dijo a sus esposas: “Ada y Zila, escuchen mi voz; esposas de Lamec, oigan mis palabras. He matado a un hombre por herirme, a un joven por golpearme.
+Lamec dijo a sus esposas: “Ada y Zila, escuchad mi voz; esposas de Lamec, oíd mis palabras. He matado a un hombre por herirme, a un joven por golpearme.
 
 ## Génesis 4:24
 

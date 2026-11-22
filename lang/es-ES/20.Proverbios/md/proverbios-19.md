@@ -2,107 +2,107 @@
 
 ## Proverbios 19:1
 
-Mejor es el pobre que camina en integridad que el de labios perversos y necio.
+Más vale ser pobre y vivir con honradez que ser un necio de boca retorcida.
 
 ## Proverbios 19:2
 
-El deseo sin conocimiento no es bueno, y el que se apresura con los pies se extravía.
+Tener ganas sin saber lo que se hace no es bueno, y el que va con prisa pierde el camino.
 
 ## Proverbios 19:3
 
-La necedad del hombre tuerce su camino, y su corazón se irrita contra el Señor.
+El ser humano se arruina por sus propias tonterías, y luego echa la culpa al Señor y se enfurece con Él.
 
 ## Proverbios 19:4
 
-La riqueza atrae muchos amigos, pero el pobre es apartado de su amigo.
+El dinero atrae a muchos amigos, pero al pobre hasta sus amigos lo dejan de lado.
 
 ## Proverbios 19:5
 
-El testigo falso no quedará sin castigo, y el que habla mentiras no escapará.
+El testigo falso no se librará del castigo, y el que va diciendo mentiras no tendrá escapatoria.
 
 ## Proverbios 19:6
 
-Muchos buscan el favor del generoso, y todos son amigos del que da regalos.
+Muchos tratan de caerle bien al generoso, y todo el mundo es amigo del que hace regalos.
 
 ## Proverbios 19:7
 
-Todos los hermanos del pobre lo aborrecen; ¡cuánto más sus amigos se alejarán de él! Aunque los persiga con súplicas, no los encontrará.
+Al pobre lo rechazan todos sus parientes; ¡pues cuánto más se alejarán de él sus amigos! Aunque vaya tras ellos rogándoles, no los encuentra por ningún lado.
 
 ## Proverbios 19:8
 
-El que adquiere sabiduría ama su alma; el que guarda la inteligencia hallará el bien.
+El que consigue sabiduría se quiere a sí mismo; el que valora la inteligencia encontrará el bien.
 
 ## Proverbios 19:9
 
-El testigo falso no quedará sin castigo, y el que habla mentiras perecerá.
+El testigo falso no se librará del castigo, y el que va diciendo mentiras acabará mal.
 
 ## Proverbios 19:10
 
-No conviene al necio el deleite; ¡cuánto menos al siervo gobernar sobre los príncipes!
+Al necio no le sienta bien vivir con lujo, y menos aún a un siervo mandar sobre los nobles.
 
 ## Proverbios 19:11
 
-La cordura del hombre detiene su furor, y su honra es pasar por alto la ofensa.
+La persona sensata sabe controlar su enojo, y lo que la honra es pasar por alto las ofensas.
 
 ## Proverbios 19:12
 
-La ira del rey es como el rugido del león, pero su favor es como el rocío sobre la hierba.
+Cuando el rey se enoja, ruge como un león, pero cuando se muestra favorable, es como el rocío sobre el pasto.
 
 ## Proverbios 19:13
 
-El hijo necio es ruina de su padre, y las contiendas de la mujer son una gotera continua.
+Un hijo necio es la ruina de su padre, y una esposa que siempre pelea es como una gotera que no para.
 
 ## Proverbios 19:14
 
-Casa y riquezas son herencia de los padres, pero del Señor es la mujer prudente.
+La casa y los bienes se heredan de los padres, pero una esposa sensata es un regalo del Señor.
 
 ## Proverbios 19:15
 
-La pereza hace caer en profundo sueño, y el alma negligente padecerá hambre.
+La pereza hace que uno se quede profundamente dormido, y el perezoso acabará pasando hambre.
 
 ## Proverbios 19:16
 
-El que guarda el mandamiento guarda su alma, pero el que menosprecia sus caminos morirá.
+El que cumple el mandamiento cuida su vida, pero el que no se preocupa por cómo vive morirá.
 
 ## Proverbios 19:17
 
-El que tiene misericordia del pobre presta al Señor, y Él le recompensará por su buena obra.
+El que ayuda al pobre le está prestando al Señor, y Él le devolverá el bien que hizo.
 
 ## Proverbios 19:18
 
-Corrige a tu hijo mientras hay esperanza, pero no desees causarle la muerte.
+Disciplina a tus hijos mientras todavía hay esperanza, y no te hagas cómplice de su muerte.
 
 ## Proverbios 19:19
 
-El hombre de gran ira llevará el castigo; si lo libras, tendrás que hacerlo de nuevo.
+El que tiene mal genio tendrá que pagar las consecuencias; si lo sacas del apuro, tendrás que volver a hacerlo.
 
 ## Proverbios 19:20
 
-Escucha el consejo y acepta la corrección, para que seas sabio el resto de tus días.
+Haz caso de los consejos y acepta que te corrijan, y así serás sabio todo el resto de tu vida.
 
 ## Proverbios 19:21
 
-Muchos son los planes en el corazón del hombre, pero el propósito del Señor prevalecerá.
+La gente hace muchos planes en su corazón, pero lo que el Señor se propone es lo que se cumple.
 
 ## Proverbios 19:22
 
-El deseo del hombre es su bondad; mejor es ser pobre que mentiroso.
+Lo que se busca en una persona es que sea bondadosa; más vale ser pobre que mentiroso.
 
 ## Proverbios 19:23
 
-El temor del Señor conduce a la vida; entonces uno descansa satisfecho, sin ser tocado por el mal.
+Respetar al Señor lleva a la vida; quien lo hace descansa tranquilo y ningún mal lo toca.
 
 ## Proverbios 19:24
 
-El perezoso mete su mano en el plato, pero ni siquiera la lleva a su boca.
+El perezoso mete la mano en el plato, pero no se molesta ni en llevársela a la boca.
 
 ## Proverbios 19:25
 
-Golpea al burlador, y el simple se hará prudente; reprende al entendido, y ganará conocimiento.
+Si castigas al burlón, el ingenuo aprenderá a ser prudente; si corriges al inteligente, aprenderá todavía más.
 
 ## Proverbios 19:26
 
-El que roba a su padre y echa fuera a su madre es hijo que causa vergüenza y deshonra.
+El que le roba a su padre y echa de casa a su madre es un hijo que trae vergüenza y deshonra.
 
 ## Proverbios 19:27
 
@@ -110,8 +110,8 @@ Si dejas de escuchar la instrucción, hijo mío, te apartarás de las palabras d
 
 ## Proverbios 19:28
 
-El testigo inútil se burla de la justicia, y la boca de los impíos devora la iniquidad.
+El testigo sin escrúpulos se ríe de la justicia, y los malvados se tragan la maldad como si fuera comida.
 
 ## Proverbios 19:29
 
-Preparados están los juicios para los burladores, y los azotes para las espaldas de los necios.
+El castigo está preparado para los burlones, y los palos para la espalda de los necios.

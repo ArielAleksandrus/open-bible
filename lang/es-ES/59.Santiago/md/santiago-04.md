@@ -29,19 +29,19 @@ Pero Él nos da mayor gracia. Por eso la Escritura dice:
 
 ## Santiago 4:7
 
-Así que, poneos bajo la autoridad de Dios. Resistid al diablo, y él huirá de vosotros.
+Así que poneos bajo la autoridad de Dios. Haced frente al diablo, y huirá de vosotros.
 
 ## Santiago 4:8
 
-Acercaos a Dios, y Él se acercará a vosotros. Limpiad vuestras manos, pecadores, y purificad vuestros corazones, los de doble ánimo.
+Acercaos a Dios, y Él se acercará a vosotros. ¡Pecadores, limpiad vuestras manos! ¡Vosotros, que no os decidís, purificad vuestros corazones!
 
 ## Santiago 4:9
 
-Afligíos, lamentad y llorad. Que vuestra risa se convierta en llanto y vuestro gozo en tristeza.
+Sentid vuestra miseria, haced duelo y llorad. Que vuestra risa se convierta en llanto y vuestra alegría en tristeza.
 
 ## Santiago 4:10
 
-Humillaos en la presencia del Señor, y Él os exaltará.
+Humillaos delante del Señor, y Él os levantará.
 
 ## Santiago 4:11
 
@@ -65,8 +65,8 @@ Más bien, deberíais decir: “Si es la voluntad del Señor, viviremos y haremo
 
 ## Santiago 4:16
 
-Pero tal como está, os jactáis de vuestros planes arrogantes. Toda esa jactancia es maligna.
+Pero ahora os jactáis de vuestros planes arrogantes. Toda esa jactancia es maligna.
 
 ## Santiago 4:17
 
-Por lo tanto, si alguien sabe el bien que debe hacer y no lo hace, es pecado para él.
+Por lo tanto, si alguien sabe hacer el bien y no lo hace, comete pecado.

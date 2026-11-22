@@ -68,7 +68,7 @@ Todos tus enemigos abren sus bocas de par en par contra ti; silban y rechinan lo
 
 ## Lamentaciones 2:17
 
-El Señor ha hecho lo que planeó; ha cumplido su palabra que decretó hace mucho tiempo. Te ha derribado sin misericordia, ha permitido que el enemigo se regocije sobre ti, ha exaltado el poder de tus adversarios.
+El Señor ha hecho lo que planeó; ha cumplido su palabra que decretó hace mucho tiempo. Te ha derribado sin misericordia, ha hecho que el enemigo se alegre a costa tuya, ha exaltado el poder de tus adversarios.
 
 ## Lamentaciones 2:18
 
@@ -84,8 +84,8 @@ Mira, Señor, y considera: ¿A quién has tratado así? ¿Deberían las mujeres 
 
 ## Lamentaciones 2:21
 
-Jóvenes y ancianos yacen juntos en el polvo de las calles; mis jóvenes y mis jóvenes mujeres han caído a espada. Los has matado en el día de tu ira; los has masacrado sin misericordia.
+Jóvenes y ancianos yacen juntos en el polvo de las calles; mis jóvenes y mis doncellas han caído a espada. Los has matado en el día de tu ira; los has masacrado sin misericordia.
 
 ## Lamentaciones 2:22
 
-Como en un día de fiesta, has convocado terrores contra mí por todos lados; en el día de la ira del Señor nadie escapó ni sobrevivió; aquellos a quienes cuidé y crié mi enemigo ha destruido.
+Como en un día de fiesta, has convocado terrores contra mí por todos lados; en el día de la ira del Señor nadie escapó ni sobrevivió; mi enemigo ha destruido a los que cuidé y crié.

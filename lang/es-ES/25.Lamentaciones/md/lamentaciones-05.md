@@ -14,7 +14,7 @@ Nos hemos convertido en huérfanos, sin padre; nuestras madres son como viudas.
 
 ## Lamentaciones 5:4
 
-Debemos pagar por el agua que bebemos; nuestra leña se obtiene a un costo.
+Debemos pagar por el agua que bebemos; nuestra leña tenemos que comprarla.
 
 ## Lamentaciones 5:5
 
@@ -50,7 +50,7 @@ Los líderes han sido colgados por sus manos; los ancianos no reciben respeto.
 
 ## Lamentaciones 5:13
 
-Los jóvenes trabajan en los molinos; los niños tambalean bajo cargas de leña.
+Los jóvenes trabajan en los molinos; los niños se tambalean bajo cargas de leña.
 
 ## Lamentaciones 5:14
 

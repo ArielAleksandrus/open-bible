@@ -4,117 +4,113 @@
 
 > ¡Alabado sea el Señor!
 
->  Es bueno cantar alabanzas a nuestro Dios;  
->  Es placentero, y tal alabanza es hermosa.
+>  Qué bueno es cantar alabanzas a nuestro Dios;  
+>  es agradable, y una alabanza así es hermosa.
 
 ---
 
 ## Salmo 147:2
 
-> El Señor restaura Jerusalén;  
->  Él reúne a los exiliados de Israel.
+> El Señor levanta de nuevo Jerusalén;  
+>  Él reúne a los israelitas que estaban desterrados.
 
 ## Salmo 147:3
 
-> Él sana a los quebrantados de corazón Y cura sus heridas.
+> Él cura a los que tienen el corazón destrozado y les sana las heridas.
 
 ## Salmo 147:4
 
-> Él cuenta las estrellas;  
->  Él nombra a cada una.
+> Él sabe cuántas son las estrellas,  
+>  y a cada una le pone nombre.
 
 ## Salmo 147:5
 
-> Grande es nuestro Señor, y poderoso en fuerza;  
->  Su entendimiento no tiene límites.
+> Nuestro Señor es grande y tiene un poder inmenso;  
+>  su inteligencia no tiene límites.
 
 ## Salmo 147:6
 
-> El Señor sostiene a los oprimidos;  
->  Él lleva a los malvados al suelo.
+> El Señor sostiene a los oprimidos,  
+>  pero a los malvados los tira por el suelo.
 
 ---
 
 ## Salmo 147:7
 
-> Ofreced canciones al Señor con gratitud;  
->  Tocad música a nuestro Dios en la lira,
+> Cantad al Señor dándole gracias;  
+>  tocad la lira en honor de nuestro Dios,
 
 ---
 
 ## Salmo 147:8
 
-> Quien extiende nubes por el cielo,  
->  Quien envía lluvia sobre la tierra,  
->  Quien hace florecer la hierba en las montañas.
+> que cubre el cielo de nubes,  
+>  manda la lluvia sobre la tierra y hace crecer la hierba en los montes.
 
 ## Salmo 147:9
 
-> Él provee alimento para los animales,  
->  Y a los jóvenes cuervos cuando llaman.
+> Él da de comer a los animales,  
+>  y a las crías de los cuervos cuando lo llaman.
 
 ---
 
 ## Salmo 147:10
 
-> No encuentra alegría en la fuerza del caballo;  
->  No se deleita en las piernas del hombre.
+> No le impresiona la fuerza del caballo,  
+>  ni le agradan las piernas veloces del hombre.
 
 ## Salmo 147:11
 
-> El Señor se deleita en los que le reverencian,  
->  En aquellos que esperan en su misericordia.
+> Al Señor le agradan los que le honran,  
+>  los que ponen su esperanza en su misericordia.
 
 ---
 
 ## Salmo 147:12
 
-> ¡Alaba al Señor, Jerusalén!  
->  ¡Honra a tu Dios, Sion!
+> ¡Jerusalén, alaba al Señor!  
+>  ¡Sion, da honra a tu Dios!
 
 ---
 
 ## Salmo 147:13
 
-> Porque Él ha fortalecido los cerrojos de tus puertas;  
->  Ha bendecido a tus hijos dentro de ti.
+> Porque Él ha reforzado los cerrojos de tus puertas y ha bendecido a tus hijos dentro de ti.
 
 ## Salmo 147:14
 
-> Él concede paz dentro de tus fronteras;  
->  Te llena con el mejor trigo.
+> Él trae la paz a tus fronteras y te sacia con el mejor trigo.
 
 ---
 
 ## Salmo 147:15
 
-> Él envía su mandato a la tierra;  
->  Su palabra se mueve rápidamente.
+> Él manda sus órdenes a la tierra,  
+>  y su palabra corre veloz.
 
 ## Salmo 147:16
 
-> Él otorga la nieve como lana;  
->  Esparce la escarcha como ceniza.
+> Hace caer la nieve como si fuera lana y esparce la escarcha como ceniza.
 
 ## Salmo 147:17
 
-> Él arroja su hielo como fragmentos;  
->  ¿Quién puede soportar su frío?
+> Arroja su hielo en pedazos;  
+>  ¿quién puede aguantar el frío que manda?
 
 ## Salmo 147:18
 
-> Él envía su palabra y los derrite;  
->  Hace soplar su viento, y las aguas fluyen.
+> Da una orden, y todo se derrite;  
+>  hace soplar su viento, y el agua vuelve a correr.
 
 ---
 
 ## Salmo 147:19
 
-> Él revela sus palabras a Jacob,  
->  Sus estatutos y juicios a Israel.
+> A Jacob le ha dado a conocer sus palabras;  
+>  a Israel, sus estatutos y sus juicios.
 
 ## Salmo 147:20
 
-> No ha actuado de esta manera con ninguna otra nación;  
->  Y en cuanto a sus juicios, no los han entendido.  
+> Con ninguna otra nación ha hecho algo así;  
+>  ellas no han entendido sus juicios.  
 >  ¡Alabado sea el Señor!

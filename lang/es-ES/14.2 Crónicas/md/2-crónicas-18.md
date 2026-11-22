@@ -140,7 +140,7 @@ Entonces Sedequías, hijo de Quenaana, se acercó y golpeó a Micaías en la mej
 
 ## 2 Crónicas 18:24
 
-Micaías dijo: “He aquí, vas a ver en ese día cuando vayas de una habitación interna a otra para esconderte.”
+Micaías dijo: “He aquí, lo verás el día en que vayas de una habitación interna a otra para esconderte.”
 
 ---
 
@@ -176,7 +176,7 @@ Y el rey de Israel dijo a Josafat: “Me disfrazaré y entraré en la batalla, p
 
 ## 2 Crónicas 18:30
 
-Ahora el rey de Aram había ordenado a los capitanes de sus carros, diciendo: “No luchéis con nadie pequeño ni grande, excepto con el rey de Israel solo.”
+Ahora el rey de Aram había ordenado a los capitanes de sus carros, diciendo: “No luchéis con nadie pequeño ni grande, sino solo con el rey de Israel.”
 
 ---
 

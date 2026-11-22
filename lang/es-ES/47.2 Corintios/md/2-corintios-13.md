@@ -18,7 +18,7 @@ Porque ciertamente Él fue crucificado en debilidad, pero vive por el poder de D
 
 ## 2 Corintios 13:5
 
-Examinaos a vosotros mismos para ver si estáis en la fe; ¡probaos a vosotros mismos! ¿O no reconocéis esto acerca de vosotros, que Jesucristo está en vosotros, a menos que no paséis la prueba?
+Examinaos a vosotros mismos para ver si de verdad tenéis fe; ¡poneos a prueba! ¿O no os dais cuenta de que Jesucristo está en vosotros? A no ser que no paséis la prueba.
 
 ## 2 Corintios 13:6
 
@@ -26,7 +26,7 @@ Pero espero que os daréis cuenta de que nosotros mismos no fallamos la prueba.
 
 ## 2 Corintios 13:7
 
-Ahora oramos a Dios que no hagáis nada malo; no para que parezcamos haber pasado la prueba, sino para que hagáis lo correcto, aunque parezcamos haber fallado.
+Y oramos a Dios para que no hagáis nada malo; no para que parezcamos haber pasado la prueba, sino para que hagáis lo correcto, aunque parezcamos haber fallado.
 
 ## 2 Corintios 13:8
 
@@ -34,7 +34,7 @@ Porque no podemos hacer nada contra la verdad, solo trabajamos por la verdad.
 
 ## 2 Corintios 13:9
 
-Porque nos regocijamos cuando nosotros mismos somos débiles pero vosotros sois fuertes; esto también oramos, que lleguéis a ser completamente maduros.
+Porque nos regocijamos cuando nosotros mismos somos débiles pero vosotros sois fuertes; y también oramos por esto: que lleguéis a ser completamente maduros.
 
 ## 2 Corintios 13:10
 

@@ -4,69 +4,65 @@
 
 ## Salmo 145:1
 
-> Te exaltaré, mi Dios, el Rey,  
->  Y bendeciré Tu nombre por siempre jamás.
+> Dios mío y Rey mío, te enalteceré;  
+>  alabaré Tu nombre por siempre y para siempre.
 
 ## Salmo 145:2
 
-> Cada día te bendeciré,  
->  Y alabaré Tu nombre por todos los tiempos.
+> Te alabaré todos los días,  
+>  y daré gloria a Tu nombre por siempre.
 
 ---
 
 ## Salmo 145:3
 
-> El Señor es grande y digno de gran alabanza,  
->  Y Su grandeza no puede ser comprendida.
+> El Señor es grande y merece toda alabanza;  
+>  nadie puede medir Su grandeza.
 
 ## Salmo 145:4
 
-> Una generación encomiará Tus obras a otra,  
->  Y proclamará Tus poderosos actos.
+> Cada generación contará a la siguiente lo que Tú has hecho y anunciará Tus proezas.
 
 ## Salmo 145:5
 
-> En el glorioso esplendor de Tu majestad Y en Tus maravillosas obras,  
->  meditaré.
+> Pensaré en el glorioso esplendor de Tu majestad y en Tus maravillas.
 
 ## Salmo 145:6
 
-> La gente hablará del poder de Tus actos impresionantes,  
->  Y yo contaré Tu grandeza.
+> La gente hablará del poder de Tus obras imponentes,  
+>  y yo contaré lo grande que eres.
 
 ## Salmo 145:7
 
-> Ellos estallarán hablando de la memoria de Tu abundante bondad,  
->  Y gritarán gozosos de Tu justicia.
+> Recordarán Tu inmensa bondad y hablarán de ella sin parar,  
+>  y celebrarán con gritos de alegría Tu justicia.
 
 ---
 
 ## Salmo 145:8
 
-> El Señor es clemente y lleno de compasión;  
->  Lento para la ira y rico en misericordia.
+> El Señor es bondadoso y compasivo;  
+>  tarda en enojarse y está lleno de misericordia.
 
 ---
 
 ## Salmo 145:9
 
-> El Señor es bondadoso con todos,  
->  Y Sus misericordias se extienden sobre todas Sus obras.
+> El Señor es bueno con todos,  
+>  y Su compasión alcanza a todo lo que ha creado.
 
 ## Salmo 145:10
 
-> Todas Tus obras te darán gracias, Señor,  
->  Y Tus fieles te bendecirán.
+> Señor, todo lo que has hecho te dará gracias,  
+>  y Tus fieles te alabarán.
 
 ## Salmo 145:11
 
-> Hablarán de la gloria de Tu reino,  
->  Y discutirán Tu poder,
+> Contarán lo glorioso que es Tu reino y hablarán de Tu poder,
 
 ## Salmo 145:12
 
-> Para dar a conocer a los hijos de los hombres Tus poderosos actos,  
->  Y la gloria de la majestad de Tu reino.
+> para que todos los seres humanos conozcan Tus proezas y el glorioso esplendor de Tu reino.
 
 ## Salmo 145:13
 
@@ -80,43 +76,42 @@
 
 ## Salmo 145:14
 
-> El Señor sostiene a todos los que tropiezan,  
->  Y levanta a todos los que están agobiados.
+> El Señor sostiene a todos los que tropiezan y levanta a todos los que están doblegados.
 
 ## Salmo 145:15
 
-> Los ojos de todos miran hacia Ti,  
->  Y Tú les provees su alimento a su debido tiempo.
+> Todos tienen los ojos puestos en Ti,  
+>  y Tú les das la comida a su tiempo.
 
 ## Salmo 145:16
 
-> Abres Tu mano Y satisfaces las necesidades de todo ser viviente.
+> Tú abres la mano y das a todos los seres vivos lo que necesitan.
 
 ---
 
 ## Salmo 145:17
 
-> El Señor es justo en todos Sus caminos,  
->  Y bondadoso en todas Sus obras.
+> El Señor es justo en todo lo que hace,  
+>  y bondadoso en todas Sus obras.
 
 ## Salmo 145:18
 
-> El Señor está cerca de todos los que le invocan,  
->  De todos los que le invocan sinceramente.
+> El Señor está cerca de todos los que lo llaman,  
+>  de todos los que lo llaman con sinceridad.
 
 ## Salmo 145:19
 
-> Cumplirá el deseo de los que le reverencian;  
->  También escuchará su clamor de ayuda y los rescatará.
+> Él cumple los deseos de los que le honran;  
+>  oye cuando le piden ayuda y los rescata.
 
 ## Salmo 145:20
 
-> El Señor protege a todos los que le aman,  
->  Pero pondrá fin a todos los malvados.
+> El Señor cuida de todos los que lo aman,  
+>  pero acabará con todos los malvados.
 
 ---
 
 ## Salmo 145:21
 
-> Mi boca declarará la alabanza del Señor,  
->  Y toda la gente bendecirá Su santo nombre por toda la eternidad.
+> Mi boca anunciará la alabanza del Señor;  
+>  que todo el mundo alabe Su santo nombre por toda la eternidad.

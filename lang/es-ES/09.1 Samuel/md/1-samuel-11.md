@@ -22,11 +22,11 @@ Y he aquí, Saúl venía del campo detrás de los bueyes, y dijo: “¿Qué le p
 
 ## 1 Samuel 11:6
 
-Entonces el Espíritu de Dios vino sobre Saúl con poder cuando oyó estas palabras, y su ira se encendió en gran manera.
+Cuando Saúl oyó estas palabras, el Espíritu de Dios vino sobre él con poder, y se llenó de furia.
 
 ## 1 Samuel 11:7
 
-Tomó un par de bueyes y los cortó en pedazos, y los envió por todo el territorio de Israel por mano de mensajeros, diciendo: “Así se hará con los bueyes de aquel que no salga en pos de Saúl y en pos de Samuel.” Entonces el temor del Señor cayó sobre el pueblo, y salieron como un solo hombre.
+Tomó una yunta de bueyes, los descuartizó y mandó los pedazos por todo el territorio de Israel con mensajeros, que decían: “Así se hará con los bueyes de cualquiera que no salga a seguir a Saúl y a Samuel.” Entonces el Señor hizo caer el terror sobre el pueblo, y salieron todos juntos, como un solo hombre.
 
 ## 1 Samuel 11:8
 

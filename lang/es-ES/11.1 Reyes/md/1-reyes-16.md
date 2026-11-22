@@ -145,7 +145,7 @@ Pero Omrí hizo lo malo ante los ojos del Señor,
 
 ## 1 Reyes 16:26
 
-Porque siguió enteramente en el camino de Jeroboam, hijo de Nabat,  
+Porque anduvo enteramente en el camino de Jeroboam, hijo de Nabat,  
  y en sus pecados en los que hizo caer a Israel,  
  provocando al Señor Dios de Israel a ira con sus ídolos inútiles.
 

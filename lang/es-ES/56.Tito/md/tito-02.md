@@ -1,7 +1,7 @@
 # Tito Capítulo 2
 
 ## Tito 2:1
-En cuanto a ti, comunica lo que se alinea con la sana doctrina.
+En cuanto a ti, enseña lo que está de acuerdo con la sana doctrina.
 
 ## Tito 2:2
 Los hombres mayores deben ser sobrios, dignos, sensatos, sanos en la fe, en el amor y en la perseverancia.
@@ -22,10 +22,10 @@ De la misma manera, exhorta a los jóvenes a ser sensatos.
 En todos los aspectos, muéstrate como un ejemplo de buenas obras, con integridad en la enseñanza, digno,
 
 ## Tito 2:8
-sano en el habla que esté más allá de reproche, para que cualquier oponente se avergüence, sin tener nada negativo que decir sobre nosotros.
+con un hablar sano e irreprochable, para que cualquier oponente se avergüence, sin tener nada negativo que decir sobre nosotros.
 
 ## Tito 2:9
-Anima a los esclavos a ser obedientes a sus amos en todo, a ser agradables, no argumentativos,
+Anima a los esclavos a ser obedientes a sus amos en todo, a ser agradables, no respondones,
 
 ## Tito 2:10
 y a no robar, sino a demostrar total confiabilidad, para que puedan realzar la enseñanza de Dios nuestro Salvador en todos los aspectos.
@@ -37,10 +37,10 @@ Porque la gracia de Dios ha aparecido, ofreciendo salvación a todas las persona
 enseñándonos a renunciar a la impiedad y a los deseos mundanos, y a vivir vidas sensatas, rectas y piadosas en esta era presente,
 
 ## Tito 2:13
-mientras aguardamos la esperanza bienaventurada y la manifestación de la gloria de nuestro gran Dios y Salvador, Jesucristo,
+mientras esperamos que se cumpla nuestra dichosa esperanza y que se manifieste la gloria de nuestro gran Dios y Salvador, Jesucristo,
 
 ## Tito 2:14
-quien se entregó por nosotros para redimirnos de toda iniquidad y purificar para sí un pueblo propio, ansioso de hacer buenas obras.
+que dio su vida por nosotros para rescatarnos de toda maldad y para limpiarnos y hacer de nosotros un pueblo que le pertenezca y que tenga muchas ganas de hacer el bien.
 
 ## Tito 2:15
-Estas son las cosas que debes hablar, animar y reprender con toda autoridad. Que nadie te menosprecie.
+Esto es lo que tienes que decir; anima y corrige con toda autoridad. Que nadie te desprecie.

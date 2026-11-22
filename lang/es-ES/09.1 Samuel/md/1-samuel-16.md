@@ -2,8 +2,8 @@
 
 ## 1 Samuel 16:1
 
-El Señor dijo a Samuel: “¿Hasta cuándo llorarás a Saúl, habiéndolo Yo rechazado para que no reine sobre Israel?  
- Llena tu cuerno de aceite y ve; te enviaré a Isaí el belenita, porque de entre sus hijos Me he provisto de un rey.”
+El Señor dijo a Samuel: “¿Hasta cuándo vas a estar triste por Saúl, si Yo ya lo he rechazado como rey de Israel?  
+ Llena tu cuerno de aceite y ponte en camino; te envío a Isaí, el de Belén, porque entre sus hijos he escogido a uno para que sea mi rey.”
 
 ## 1 Samuel 16:2
 
@@ -67,9 +67,9 @@ Entonces Samuel dijo a Isaí: “¿Son estos todos los jóvenes?”
 
 ## 1 Samuel 16:12
 
-Envió, pues, por él y lo hizo entrar.  
- Era rubio, de hermosos ojos y de buen parecer.  
- Y el Señor dijo: “Levántate, úngelo; porque este es.”
+Isaí mandó a buscarlo y lo hizo entrar.  
+ Era de piel rojiza, tenía ojos hermosos y muy buena presencia.  
+ Y el Señor dijo: “Levántate y úngelo, porque es él.”
 
 ## 1 Samuel 16:13
 

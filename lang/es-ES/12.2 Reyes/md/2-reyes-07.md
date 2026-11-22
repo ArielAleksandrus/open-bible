@@ -44,7 +44,7 @@ Porque el Señor había hecho que el campamento de los arameos oyera un sonido d
 
 Así que se levantaron y huyeron al anochecer,  
  y abandonaron sus tiendas,  
- sus caballos y sus asnos —el campamento tal como estaba— y huyeron por sus vidas.
+ sus caballos y sus asnos —el campamento tal como estaba— y huyeron para salvar sus vidas.
 
 ---
 
@@ -60,7 +60,7 @@ Entonces se dijeron unos a otros,
  “No estamos haciendo lo correcto.  
  Este día es un día de buenas noticias, pero estamos callados.  
  Si esperamos hasta la luz de la mañana, nos alcanzará el castigo.  
- Ahora venid, vayamos y contemos a la casa del rey.”
+ Ahora venid, vayamos y demos la noticia a la casa del rey.”
 
 ## 2 Reyes 7:10
 
@@ -70,7 +70,7 @@ Así que vinieron y llamaron a los porteros de la ciudad, y les dijeron, diciend
 
 ## 2 Reyes 7:11
 
-Y los porteros gritaron, y fue informado dentro de la casa del rey.
+Y los porteros gritaron, y se dio la noticia dentro de la casa del rey.
 
 ---
 
@@ -97,7 +97,7 @@ Así que prepararon dos carros con caballos,
 
 Fueron tras ellos hasta el Jordán,  
  y he aquí, todo el camino estaba lleno de ropa y equipo que los arameos habían arrojado en su prisa.  
- Entonces los mensajeros regresaron y contaron al rey.
+ Entonces los mensajeros regresaron e informaron al rey.
 
 ---
 

@@ -55,7 +55,7 @@ También, los hombres de Menfis y Tafnes te han causado daño.
 ¿Por qué ahora ir a Egipto a beber las aguas del Nilo? ¿Y por qué ir a Asiria a beber las aguas del Éufrates?
 
 ## Jeremías 2:19
-Tu maldad te corregirá, y tus retrocesos te reprenderán. Considera entonces y date cuenta de cuán malo y amargo es para ti abandonar al Señor tu Dios y no tener temor de mí,” declara el Señor, el Dios de los ejércitos.
+Tu maldad te corregirá, y tus apostasías te reprenderán. Considera entonces y date cuenta de cuán malo y amargo es para ti abandonar al Señor tu Dios y no tener temor de mí,” declara el Señor, el Dios de los ejércitos.
 
 ## Jeremías 2:20
 “Hace mucho tiempo rompiste tu yugo y arrancaste tus ataduras; dijiste, ‘¡No te serviré!’ De hecho, en toda colina alta y bajo todo árbol frondoso te acostaste como una prostituta.
@@ -64,13 +64,13 @@ Tu maldad te corregirá, y tus retrocesos te reprenderán. Considera entonces y 
 Te había plantado como una vid escogida, una semilla completamente fiel. ¿Cómo entonces te volviste contra mí en una vid corrupta y salvaje?
 
 ## Jeremías 2:22
-Aunque te laves con lejía y uses mucho jabón, la mancha de tu culpa está aún ante mí,” declara el Señor Soberano.
+Aunque te laves con lejía y uses mucho jabón, la mancha de tu culpa está aún ante mí,” declara el Señor Dios.
 
 ## Jeremías 2:23
 “¿Cómo puedes decir, ‘No estoy contaminada; no he corrido tras los Baales’? Observa tu comportamiento en el valle; considera lo que has hecho. Eres una camella veloz corriendo de aquí para allá,
 
 ## Jeremías 2:24
-una asna salvaje acostumbrada al desierto, olfateando el viento en su deseo —en su celo, ¿quién puede frenarla? Cualquier macho que la persiga no necesita cansarse; en su momento la encontrarán—.
+una asna salvaje acostumbrada al desierto, olfateando el viento en su deseo; en su celo, ¿quién puede frenarla? Ningún macho que la busque necesita cansarse; en su tiempo la encontrarán.
 
 ## Jeremías 2:25
 No corras hasta que tus pies estén descalzos y tu garganta seca. Pero dijiste, ‘¡Es inútil! Amo a los dioses extranjeros, y debo ir tras ellos.’
@@ -100,13 +100,13 @@ Hablan a la madera, ‘Tú eres mi padre,’ y a la piedra, ‘Tú me diste a lu
 ¡Qué hábil eres en perseguir el amor! Incluso la peor de las mujeres puede aprender de tus caminos.
 
 ## Jeremías 2:34
-En tus ropas se encuentra la sangre vital de los pobres inocentes, aunque no los atrapaste entrando. No obstante,
+En tus ropas se encuentra la sangre vital de los pobres inocentes, aunque no los sorprendiste forzando la entrada. No obstante,
 
 ## Jeremías 2:35
-dices, ‘Soy inocente; seguramente su ira se ha apartado de mí.’ Pero pasaré juicio sobre ti porque dices, ‘No he pecado.’
+dices, ‘Soy inocente; sin duda su ira se ha apartado de mí.’ Pero entraré en juicio contigo porque dices, ‘No he pecado.’
 
 ## Jeremías 2:36
-¿Por qué vagáis tanto, cambiando vuestros caminos? Seréis decepcionados por Egipto como lo fuisteis por Asiria.
+¿Por qué andas vagando tanto, cambiando tus caminos? Serás defraudada por Egipto como lo fuiste por Asiria.
 
 ## Jeremías 2:37
-También dejaréis ese lugar con las manos en la cabeza, porque el Señor ha rechazado a aquellos en quienes confías; no prosperarás con ellos.
+También saldrás de allí con las manos en la cabeza, porque el Señor ha rechazado a aquellos en quienes confías; no prosperarás con ellos.

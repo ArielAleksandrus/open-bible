@@ -25,7 +25,7 @@ y que Jacob había escuchado a su padre y a su madre y había ido a Padán Aram.
 Esaú entonces entendió cuán desagradables eran las mujeres cananeas para su padre Isaac;
 
 ## Génesis 28:9
-así que fue a Ismael y se casó con Mahalath, la hermana de Nebaiot y hija de Ismael, hijo de Abraham, además de las esposas que ya tenía.
+así que fue a Ismael y se casó con Mahalat, la hermana de Nebaiot y hija de Ismael, hijo de Abraham, además de las esposas que ya tenía.
 
 ## Génesis 28:10
 Jacob partió de Beerseba y se dirigió hacia Harán.
@@ -49,7 +49,7 @@ Estoy contigo y te cuidaré dondequiera que vayas, y te traeré de vuelta a esta
 Jacob despertó de su sueño y dijo, “Ciertamente el Señor está en este lugar, y yo no lo sabía.”
 
 ## Génesis 28:17
-Estaba asombrado y dijo, “¡Qué increíble es este lugar! Este no es otro sino la casa de Dios; esta es la puerta del cielo.”
+Estaba asombrado y dijo, “¡Qué increíble es este lugar! ¡Esto es nada menos que la casa de Dios, la puerta del cielo!”
 
 ## Génesis 28:18
 A la mañana siguiente, Jacob tomó la piedra que había usado como almohada, la erigió como una columna, y derramó aceite sobre ella.
@@ -64,4 +64,4 @@ Entonces Jacob hizo un voto, diciendo, “Si Dios está conmigo y me cuida en es
 para que regrese sano y salvo a la casa de mi padre, entonces el Señor será mi Dios.
 
 ## Génesis 28:22
-Y esta piedra que he erigido como columna será una casa para Dios, y de todo lo que me des, te daré un décimo.”
+Y esta piedra que he erigido como columna será una casa para Dios, y de todo lo que me des, te daré la décima parte.”

@@ -22,11 +22,11 @@ Ahora bien, es Dios quien nos ha preparado para este mismo propósito, quien nos
 
 ## 2 Corintios 5:6
 
-Por tanto, siempre teniendo buen ánimo, y reconociendo que mientras estamos en casa en el cuerpo estamos ausentes del Señor—
+Por tanto, siempre teniendo buen ánimo, y reconociendo que mientras estamos en casa en el cuerpo estamos ausentes del Señor,
 
 ## 2 Corintios 5:7
 
-Porque caminamos guiados por la fe, no por lo que vemos—
+Porque caminamos guiados por la fe, no por lo que vemos.
 
 ## 2 Corintios 5:8
 
@@ -66,7 +66,7 @@ Por lo tanto, de ahora en adelante no consideramos a nadie según la carne; aunq
 
 ## 2 Corintios 5:17
 
-Por lo tanto, si alguien está en Cristo, esa persona es una nueva creación; las cosas viejas han pasado; he aquí, han llegado cosas nuevas.
+Por eso, si alguien está unido a Cristo, es una nueva creación; lo viejo ya pasó; ¡mirad, ha llegado lo nuevo!
 
 ## 2 Corintios 5:18
 
@@ -78,7 +78,7 @@ Es decir, Dios estaba en Cristo reconciliando al mundo consigo mismo, no contand
 
 ## 2 Corintios 5:20
 
-Por lo tanto, somos representantes de Cristo, como si Dios hiciera un llamamiento a través de nosotros; os imploramos en nombre de Cristo, reconciliáos con Dios.
+Por lo tanto, somos representantes de Cristo, como si Dios hiciera un llamamiento a través de nosotros; os imploramos en nombre de Cristo, reconciliaos con Dios.
 
 ## 2 Corintios 5:21
 

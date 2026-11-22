@@ -22,7 +22,7 @@ Entonces, ¿aquel que os suministra el Espíritu y realiza milagros entre vosotr
 
 ## Gálatas 3:6
 
-Así como Abraham creyó a Dios, y le fue contado por justicia.
+Fue lo mismo con Abraham: él creyó a Dios, y Dios se lo tomó en cuenta como justicia.
 
 ## Gálatas 3:7
 
@@ -38,7 +38,7 @@ Así que, los que tienen fe son bendecidos junto con Abraham, que fue un hombre 
 
 ## Gálatas 3:10
 
-Porque todos los que dependen de las obras de la ley están bajo maldición, como está escrito: “Maldito todo aquel que no permanece en todas las cosas escritas en el Libro de la Ley, para hacerlas.”
+Porque todos los que confían en cumplir la ley están bajo una maldición, como está escrito: “Maldito sea todo el que no sigue haciendo todo lo que está escrito en el Libro de la Ley.”
 
 ## Gálatas 3:11
 
@@ -50,7 +50,7 @@ La ley no es de fe; más bien, “El que las hace vivirá por ellas.”
 
 ## Gálatas 3:13
 
-Cristo nos redimió de la maldición de la ley haciéndose maldición por nosotros, porque está escrito: “Maldito todo el que cuelga de un árbol.”
+Cristo nos rescató de la maldición de la ley al hacerse él mismo maldición en nuestro lugar, porque está escrito: “Maldito sea todo el que cuelga de un madero.”
 
 ## Gálatas 3:14
 
@@ -106,12 +106,12 @@ Porque todos sois hijos de Dios mediante la fe en Jesucristo.
 
 ## Gálatas 3:27
 
-Porque todos los que fuisteis bautizados en Cristo os habéis revestido de Cristo.
+Porque todos vosotros, los que fuisteis bautizados para uniros a Cristo, os habéis revestido de Cristo.
 
 ## Gálatas 3:28
 
-No hay judío ni griego, esclavo ni libre, hombre ni mujer, porque todos sois uno en Cristo Jesús.
+Ya no importa si uno es judío o griego, esclavo o libre, hombre o mujer, porque todos vosotros sois uno solo en Cristo Jesús.
 
 ## Gálatas 3:29
 
-Y si estáis en Cristo, entonces sois descendencia de Abraham, herederos según la promesa.
+Y si pertenecéis a Cristo, entonces sois descendientes de Abraham y herederos de lo que Dios prometió.

@@ -18,7 +18,7 @@ Entonces Pilato dijo a los principales sacerdotes y a la multitud: “No encuent
 
 ## Lucas 23:5
 
-Pero insistieron: “Alborota al pueblo, enseñando por toda Judea, comenzando desde Galilea hasta aquí.”
+Pero ellos seguían insistiendo: “Anda agitando a la gente con sus enseñanzas por toda Judea; empezó en Galilea y ha llegado hasta aquí.”
 
 ---
 
@@ -70,7 +70,7 @@ Por lo tanto, lo castigaré y luego lo soltaré.”
 
 ## Lucas 23:17
 
-[Ahora él estaba obligado a liberar a un prisionero para ellos en el festival.]
+[Pues en cada fiesta tenía que soltarles a un prisionero.]
 
 ## Lucas 23:18
 

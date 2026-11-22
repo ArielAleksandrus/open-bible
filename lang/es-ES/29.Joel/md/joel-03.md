@@ -53,7 +53,7 @@ Venderé a vuestros hijos e hijas en manos del pueblo de Judá, y ellos los vend
 ## Joel 3:11
 
 > Venid rápidamente, todas las naciones circundantes,
->  y reuniros allí.
+>  y reuníos allí.
 >  Trae, Señor, a tus guerreros.
 
 ## Joel 3:12
@@ -65,7 +65,7 @@ Venderé a vuestros hijos e hijas en manos del pueblo de Judá, y ellos los vend
 
 > Blandid la hoz, porque la cosecha está madura.
 >  Venid, pisad las uvas,
->  porque el lagar está lleno y las cubas rebosan —¡tan grande es su maldad—!
+>  porque el lagar está lleno y las cubas rebosan —¡tan grande es su maldad!
 
 ## Joel 3:14
 

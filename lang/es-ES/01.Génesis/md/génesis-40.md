@@ -26,11 +26,11 @@ Cuando José vino a ellos por la mañana, notó que estaban abatidos.
 
 ## Génesis 40:7
 
-Entonces preguntó a los oficiales del faraón que estaban bajo custodia con él en la casa de su señor: “¿Por qué parecen tan decaídos hoy?”
+Entonces preguntó a los oficiales del faraón que estaban bajo custodia con él en la casa de su señor: “¿Por qué estáis tan decaídos hoy?”
 
 ## Génesis 40:8
 
-Ellos respondieron: “Hemos tenido sueños, y no hay quien los interprete.” José les dijo: “¿No pertenecen las interpretaciones a Dios? Cuéntenme sus sueños, por favor.”
+Ellos respondieron: “Hemos tenido sueños, y no hay quien los interprete.” José les dijo: “¿No pertenecen las interpretaciones a Dios? Contadme vuestros sueños, por favor.”
 
 ## Génesis 40:9
 
@@ -54,7 +54,7 @@ Dentro de tres días el faraón levantará tu cabeza y te restituirá a tu posic
 
 ## Génesis 40:14
 
-Pero cuando te vaya bien, acuérdate de mí y muéstrame bondad; mencióname al faraón y sáquenme de esta prisión.
+Pero cuando te vaya bien, acuérdate de mí y muéstrame bondad; mencióname al faraón y sácame de esta prisión.
 
 ## Génesis 40:15
 
@@ -74,7 +74,7 @@ José respondió: “Esta es la interpretación: las tres canastas son tres día
 
 ## Génesis 40:19
 
-Dentro de tres días el faraón levantará tu cabeza y te colgará en un madero, y los pájaros comerán tu carne.”
+Dentro de tres días el faraón te quitará la cabeza y te colgará en un madero, y los pájaros comerán tu carne.”
 
 ## Génesis 40:20
 

@@ -22,7 +22,7 @@ No segarás lo que crezca por sí mismo ni recogerás las uvas de tus viñas sin
 
 ## Levítico 25:6
 
-Lo que la tierra produzca durante el año sabático será alimento para ti, para ti mismo, tus siervos y siervas, y el trabajador contratado y el residente extranjero que viva entre vosotros,
+Lo que la tierra produzca durante el año sabático será alimento para vosotros: para ti, tus siervos y siervas, y el trabajador contratado y el residente extranjero que viva entre vosotros,
 
 ## Levítico 25:7
 
@@ -94,23 +94,23 @@ Mientras estáis sembrando durante el octavo año, comeréis del producto viejo 
 
 ## Levítico 25:24
 
-Por toda la tierra que poseáis como posesión, debéis asegurar la redención de la tierra.
+Por toda la tierra que poseáis, debéis asegurar la redención de la tierra.
 
 ## Levítico 25:25
 
-“‘Si uno de vuestros compatriotas israelitas se empobrece y vende alguna de su propiedad, su pariente más cercano debe venir y reclamar lo que ha vendido.
+“‘Si uno de vuestros compatriotas israelitas se empobrece y vende parte de su propiedad, su pariente más cercano debe venir y reclamar lo que ha vendido.
 
 ## Levítico 25:26
 
-Si no hay nadie para redimirla por ellos, pero luego prosperan y adquieren suficientes medios para redimirla ellos mismos,
+Si no hay nadie para redimirla por él, pero luego prospera y adquiere suficientes medios para redimirla él mismo,
 
 ## Levítico 25:27
 
-deben calcular el valor por los años desde que la vendieron y devolver el saldo a aquel a quien la vendieron; entonces podrán regresar a su propiedad.
+debe calcular el valor por los años desde que la vendió y devolver el saldo a aquel a quien la vendió; entonces podrá regresar a su propiedad.
 
 ## Levítico 25:28
 
-Pero si no adquieren los medios para reembolsar, lo que se vendió permanecerá con el comprador hasta el Año de Jubileo. Se devolverá en el Jubileo, y entonces podrán regresar a su propiedad.
+Pero si no adquiere los medios para reembolsar, lo que se vendió permanecerá con el comprador hasta el Año de Jubileo. Se devolverá en el Jubileo, y entonces podrá regresar a su propiedad.
 
 ## Levítico 25:29
 
@@ -190,27 +190,27 @@ Podéis legarlos a vuestros hijos como propiedad heredada y hacerlos esclavos de
 
 ## Levítico 25:48
 
-retienen el derecho de redención después de haberse vendido. Un pariente puede redimirlos:
+conserva el derecho de redención después de haberse vendido. Un pariente puede redimirlo:
 
 ## Levítico 25:49
 
-Un tío, un primo, o cualquier pariente cercano de su clan puede redimirlos. O si prosperan, pueden redimirse a sí mismos.
+Un tío, un primo, o cualquier pariente cercano de su clan puede redimirlo. O si prospera, puede redimirse a sí mismo.
 
 ## Levítico 25:50
 
-Ellos y su comprador deben calcular el tiempo desde el año en que se vendieron hasta el Año de Jubileo. El precio de su liberación se basará en la tarifa pagada a un trabajador contratado por ese número de años.
+Él y su comprador deben calcular el tiempo desde el año en que se vendió hasta el Año de Jubileo. El precio de su liberación se basará en la tarifa pagada a un trabajador contratado por ese número de años.
 
 ## Levítico 25:51
 
-Si quedan muchos años, deben pagar una porción mayor del precio de su redención.
+Si quedan muchos años, debe pagar una porción mayor del precio de su redención.
 
 ## Levítico 25:52
 
-Si solo quedan unos pocos años hasta el Año de Jubileo, deben calcular eso y pagar su redención en consecuencia.
+Si solo quedan unos pocos años hasta el Año de Jubileo, debe calcular eso y pagar su redención en consecuencia.
 
 ## Levítico 25:53
 
-Deben ser tratados como trabajadores contratados de año en año; debéis aseguraros de que aquellos a quienes deben servicio no los gobiernen con dureza.
+Debe ser tratado como un trabajador contratado de año en año; debéis aseguraros de que aquel a quien debe servicio no lo gobierne con dureza.
 
 ## Levítico 25:54
 

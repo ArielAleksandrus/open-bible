@@ -36,19 +36,19 @@ Entonces Saúl oyó que David y los hombres que estaban con él habían sido des
 ## 1 Samuel 22:7
 
 Saúl dijo a sus siervos que estaban a su alrededor:  
- “¡Escuchad ahora, benjaminitas! ¿Acaso el hijo de Jesé os dará a todos campos y viñas?  
+ “¡Escuchad ahora, benjaminitas! ¿Acaso el hijo de Isaí os dará a todos campos y viñas?  
  ¿Os hará a todos comandantes de miles y comandantes de cientos?
 
 ## 1 Samuel 22:8
 
 Porque todos habéis conspirado contra mí,  
- de modo que nadie me informa cuando mi hijo hace un pacto con el hijo de Jesé,  
+ de modo que nadie me informa cuando mi hijo hace un pacto con el hijo de Isaí,  
  y ninguno de vosotros se preocupa por mí ni me informa que mi hijo ha incitado a mi siervo contra mí, para tenderme una emboscada, como es el caso hoy.”
 
 ## 1 Samuel 22:9
 
 Entonces Doeg el edomita, que estaba de pie junto a los siervos de Saúl, dijo:  
- “Vi al hijo de Jesé venir a Nob, a Ahimelec hijo de Ahitob.
+ “Vi al hijo de Isaí venir a Nob, a Ahimelec hijo de Ahitob.
 
 ## 1 Samuel 22:10
 
@@ -70,7 +70,7 @@ Saúl dijo: “Escucha ahora, hijo de Ahitob.”
 ## 1 Samuel 22:13
 
 Entonces Saúl le dijo:  
- “¿Por qué has conspirado tú y el hijo de Jesé contra mí,  
+ “¿Por qué has conspirado tú y el hijo de Isaí contra mí,  
  dándole pan y una espada, y consultando a Dios por él,  
  para que se levante contra mí, tendiéndome una emboscada, como es el caso hoy?”
 
@@ -83,7 +83,7 @@ Ahimelec respondió al rey y dijo:
 ## 1 Samuel 22:15
 
 ¿Fue solo hoy cuando comencé a consultar a Dios por él? ¡Ciertamente no!  
- No deje el rey que acuse a su siervo ni a toda la casa de mi padre,  
+ Que no acuse el rey a su siervo ni a toda la casa de mi padre,  
  porque tu siervo no sabe nada de todo este asunto.”
 
 ## 1 Samuel 22:16

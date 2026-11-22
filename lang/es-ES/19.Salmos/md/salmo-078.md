@@ -4,8 +4,8 @@
 
 ## Salmo 78:1
 
-> Escucha, pueblo mío, mi instrucción;  
->  Inclina tus oídos a las palabras de mi boca.
+> Escucha mi enseñanza, pueblo mío;  
+>  presta atención a las palabras que salen de mi boca.
 
 ## Salmo 78:2
 
@@ -15,45 +15,45 @@
 ## Salmo 78:3
 
 > Que hemos oído y conocido,  
->  Y que nuestros antepasados nos han contado.
+>  y que nuestros antepasados nos han contado.
 
 ## Salmo 78:4
 
 > No las ocultaremos a sus hijos,  
->  Sino que contaremos a la próxima generación las alabanzas del Señor,  
->  Y Su poder y las obras maravillosas que ha realizado.
+>  sino que contaremos a la próxima generación las alabanzas del Señor,  
+>  y Su poder y las obras maravillosas que ha realizado.
 
 ---
 
 ## Salmo 78:5
 
 > Porque Él estableció un testimonio en Jacob,  
->  Y puso una ley en Israel,  
->  Que instruyó a nuestros antepasados Para que las enseñaran a sus hijos,
+>  y puso una ley en Israel,  
+>  que instruyó a nuestros antepasados Para que las enseñaran a sus hijos,
 
 ## Salmo 78:6
 
 > Para que la próxima generación las conociera, los hijos que aún no habían nacido,  
->  Que se levantarían y las contarían a sus hijos,
+>  que se levantarían y las contarían a sus hijos,
 
 ## Salmo 78:7
 
-> Para que pusieran su confianza en Dios Y no olvidaran las obras de Dios,  
->  Sino que guardaran Sus mandamientos,
+> para que confiaran en Dios,  
+>  no se olvidaran de lo que Dios hizo y se mantuvieran fieles a Sus mandamientos,
 
 ## Salmo 78:8
 
 > Y no fueran como sus antepasados,  
->  Una generación obstinada y rebelde,  
->  Una generación que no preparó su corazón,  
->  Y cuyo espíritu no fue fiel a Dios.
+>  una generación obstinada y rebelde,  
+>  una generación que no preparó su corazón,  
+>  y cuyo espíritu no fue fiel a Dios.
 
 ---
 
 ## Salmo 78:9
 
 > Los hijos de Efraín, armados con arcos,  
->  Sin embargo, retrocedieron el día de la batalla.
+>  sin embargo, retrocedieron el día de la batalla.
 
 ## Salmo 78:10
 
@@ -72,13 +72,13 @@
 
 ## Salmo 78:13
 
-> Dividió el mar y los hizo pasar,  
->  E hizo que las aguas se levantaran como un muro.
+> Abrió el mar en dos y los hizo cruzar,  
+>  y levantó las aguas como una muralla.
 
 ## Salmo 78:14
 
 > Luego los guió con la nube de día,  
->  Y toda la noche con una luz de fuego.
+>  y toda la noche con una luz de fuego.
 
 ## Salmo 78:15
 
@@ -95,8 +95,7 @@
 
 ## Salmo 78:17
 
-> Sin embargo, continuaron pecando contra Él,  
->  Rebelándose contra el Altísimo en el desierto.
+> Pero ellos siguieron pecando contra Él y desafiando al Altísimo en el desierto.
 
 ## Salmo 78:18
 
@@ -109,18 +108,18 @@
 
 ## Salmo 78:20
 
-> He aquí, Él golpeó la roca para que brotaran aguas,  
->  Y los arroyos desbordaron;  
->  ¿Puede también dar pan?  
->  ¿Proveerá carne para Su pueblo?”
+> Es verdad que golpeó la roca y el agua brotó a chorros,  
+>  y los arroyos se desbordaron;  
+>  ¿podrá también darnos pan?  
+>  ¿Dará carne a Su pueblo?”
 
 ---
 
 ## Salmo 78:21
 
-> Por tanto, el Señor oyó y se llenó de ira;  
->  Y se encendió fuego contra Jacob,  
->  Y también subió la ira contra Israel,
+> Por eso, al oírlo, el Señor se enfureció;  
+>  un fuego se prendió contra Jacob,  
+>  y Su enojo se alzó también contra Israel,
 
 ## Salmo 78:22
 
@@ -128,18 +127,18 @@
 
 ## Salmo 78:23
 
-> Sin embargo,  
->  mandó a los cielos arriba Y abrió las puertas del cielo;
+> Aun así,  
+>  dio órdenes a los cielos de lo alto y abrió las compuertas del cielo;
 
 ## Salmo 78:24
 
 > Hizo llover maná para que comieran,  
->  Y les dio comida del cielo.
+>  y les dio comida del cielo.
 
 ## Salmo 78:25
 
 > La humanidad participó del pan de los ángeles;  
->  Les proveyó comida en abundancia.
+>  les proveyó comida en abundancia.
 
 ---
 
@@ -154,23 +153,23 @@
 
 ## Salmo 78:28
 
-> Las hizo caer en medio de su campamento,  
->  Alrededor de sus moradas.
+> Hizo que cayeran dentro de su campamento,  
+>  todo alrededor de sus viviendas.
 
 ## Salmo 78:29
 
 > Así que comieron y quedaron bien satisfechos,  
->  Y Él cumplió su deseo.
+>  y Él cumplió su deseo.
 
 ## Salmo 78:30
 
 > Sin embargo, antes de que hubieran satisfecho su antojo,  
->  Mientras su comida aún estaba en sus bocas,
+>  mientras su comida aún estaba en sus bocas,
 
 ## Salmo 78:31
 
 > La ira de Dios se levantó contra ellos Y derribó a algunos de sus más fuertes,  
->  Y sometió a los hombres escogidos de Israel.
+>  y sometió a los hombres escogidos de Israel.
 
 ---
 
@@ -182,17 +181,17 @@
 ## Salmo 78:33
 
 > Así que terminó sus días en futilidad,  
->  Y sus años en terror repentino.
+>  y sus años en terror repentino.
 
 ## Salmo 78:34
 
 > Cuando los golpeó, entonces lo buscaron,  
->  Y regresaron y buscaron diligentemente a Dios;
+>  y regresaron y buscaron diligentemente a Dios;
 
 ## Salmo 78:35
 
 > Y recordaron que Dios era su roca,  
->  Y el Dios Altísimo su Redentor.
+>  y el Dios Altísimo su Redentor.
 
 ---
 
@@ -203,34 +202,34 @@
 ## Salmo 78:37
 
 > Porque sus corazones no eran firmes hacia Él,  
->  Ni fueron fieles a Su pacto.
+>  ni fueron fieles a Su pacto.
 
 ## Salmo 78:38
 
 > Pero Él, siendo compasivo, perdonó su iniquidad y no los destruyó;  
->  Y a menudo contuvo Su ira Y no desató toda Su ira.
+>  y a menudo contuvo Su ira Y no desató todo Su furor.
 
 ## Salmo 78:39
 
 > Así que recordó que eran mera carne,  
->  Una brisa pasajera que no regresa.
+>  una brisa pasajera que no regresa.
 
 ---
 
 ## Salmo 78:40
 
 > ¡Cuán frecuentemente se rebelaron contra Él en el desierto,  
->  Y lo afligieron en el desierto!
+>  y lo afligieron en el desierto!
 
 ## Salmo 78:41
 
 > Una y otra vez pusieron a prueba a Dios,  
->  Y afligieron al Santo de Israel.
+>  y afligieron al Santo de Israel.
 
 ## Salmo 78:42
 
 > No recordaron Su poder,  
->  El día en que los redimió del enemigo,
+>  el día en que los redimió del enemigo,
 
 ## Salmo 78:43
 
@@ -240,13 +239,13 @@
 
 ## Salmo 78:44
 
-> Y convirtió sus ríos en sangre,  
->  Y sus corrientes, para que no pudieran beber.
+> Convirtió en sangre sus ríos y sus arroyos,  
+>  para que no pudieran beber.
 
 ## Salmo 78:45
 
-> Envió enjambres de moscas entre ellos que los devoraron,  
->  Y ranas que los devastaron.
+> Mandó contra ellos nubes de moscas que se los comían,  
+>  y ranas que los arruinaban.
 
 ## Salmo 78:46
 
@@ -259,49 +258,48 @@
 ## Salmo 78:48
 
 > Entregó su ganado a las piedras de granizo,  
->  Y sus rebaños a los rayos.
+>  y sus rebaños a los rayos.
 
 ---
 
 ## Salmo 78:49
 
-> Envió sobre ellos Su ardiente ira,  
->  Furia e indignación y angustia,  
->  Una compañía de ángeles destructores.
+> Descargó sobre ellos el fuego de Su enojo:  
+>  furia, indignación y desgracia,  
+>  una tropa de ángeles que traen destrucción.
 
 ## Salmo 78:50
 
-> Abrió camino a Su ira;  
->  No perdonó sus almas de la muerte,  
->  Sino que entregó sus vidas a la plaga,
+> Le abrió paso a Su enojo;  
+>  no salvó sus almas de la muerte y dejó que la peste se llevara sus vidas,
 
 ## Salmo 78:51
 
 > Y golpeó a todos los primogénitos en Egipto,  
->  Lo primero y mejor de su fuerza en las tiendas de Cam.
+>  lo primero y mejor de su fuerza en las tiendas de Cam.
 
 ---
 
 ## Salmo 78:52
 
 > Sin embargo, sacó a Su propio pueblo como ovejas,  
->  Y los guió en el desierto como un rebaño;
+>  y los guió en el desierto como un rebaño;
 
 ## Salmo 78:53
 
 > Los condujo con seguridad, para que no temieran;  
->  Pero el mar abrumó a sus enemigos.
+>  pero el mar abrumó a sus enemigos.
 
 ## Salmo 78:54
 
 > Así los llevó a Su tierra santa,  
->  A esta región montañosa que Su mano derecha había ganado.
+>  a esta región montañosa que Su mano derecha había ganado.
 
 ## Salmo 78:55
 
 > También expulsó a las naciones delante de ellos,  
->  Y los repartió como herencia por medida,  
->  Y asentó a las tribus de Israel en sus tiendas.
+>  y los repartió como herencia por medida,  
+>  y asentó a las tribus de Israel en sus tiendas.
 
 ---
 
@@ -313,7 +311,7 @@
 ## Salmo 78:57
 
 > Sino que retrocedieron y actuaron engañosamente como sus antepasados;  
->  Se desviaron como un arco defectuoso.
+>  se desviaron como un arco defectuoso.
 
 ## Salmo 78:58
 
@@ -329,68 +327,68 @@
 ## Salmo 78:60
 
 > De modo que abandonó el lugar de su morada en Silo,  
->  La tienda que había puesto entre los hombres,
+>  la tienda que había puesto entre los hombres,
 
 ## Salmo 78:61
 
-> Y entregó Su fuerza al cautiverio,  
->  Y Su gloria en manos del enemigo.
+> Permitió que Su poder fuera llevado cautivo,  
+>  y puso Su gloria en manos del enemigo.
 
 ## Salmo 78:62
 
 > También entregó a Su pueblo a la espada,  
->  Y se llenó de ira contra Su herencia.
+>  y se llenó de ira contra Su herencia.
 
 ## Salmo 78:63
 
 > El fuego consumió a Sus jóvenes,  
->  Y Sus doncellas no tuvieron cantos de boda.
+>  y Sus doncellas no tuvieron cantos de boda.
 
 ## Salmo 78:64
 
-> Sus sacerdotes cayeron a espada,  
->  Y Sus viudas no pudieron llorar.
+> Sus sacerdotes murieron por la espada,  
+>  y sus viudas no pudieron hacer duelo.
 
 ---
 
 ## Salmo 78:65
 
 > Entonces el Señor despertó como de un sueño,  
->  Como un guerrero vencido por el vino.
+>  como un guerrero vencido por el vino.
 
 ## Salmo 78:66
 
 > Hizo retroceder a Sus enemigos;  
->  Les impuso una vergüenza eterna.
+>  les impuso una vergüenza eterna.
 
 ## Salmo 78:67
 
 > También se apartó de la tienda de José,  
->  Y no escogió a la tribu de Efraín,
+>  y no escogió a la tribu de Efraín,
 
 ## Salmo 78:68
 
-> Sino que eligió a la tribu de Judá,  
->  El monte Sion, que amó.
+> sino que eligió a la tribu de Judá,  
+>  al monte Sion, que Él tanto amaba.
 
 ---
 
 ## Salmo 78:69
 
 > Y estableció Su santuario como las alturas,  
->  Como la tierra que ha fundado para siempre.
+>  como la tierra que ha fundado para siempre.
 
 ## Salmo 78:70
 
 > También escogió a Su siervo David,  
->  Y lo tomó de cuidar las ovejas;
+>  y lo tomó de cuidar las ovejas;
 
 ## Salmo 78:71
 
 > De cuidar las ovejas con corderos lactantes lo trajo Para pastorear a Su pueblo Jacob,  
->  Y a Israel Su herencia.
+>  y a Israel Su herencia.
 
 ## Salmo 78:72
 
 > Así que los pastoreó con integridad de corazón,  
->  Y los guió con manos hábiles.
+>  y los guió con manos hábiles.

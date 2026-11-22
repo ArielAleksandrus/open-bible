@@ -4,8 +4,8 @@
 
 ## Salmo 101:1
 
-> Cantaré de la misericordia y la justicia;  
->  A Ti, Señor, cantaré alabanzas.
+> Quiero cantar a la misericordia y a la justicia;  
+>  a Ti, Señor, te cantaré alabanzas.
 
 ## Salmo 101:2
 
@@ -18,42 +18,42 @@
 
 ## Salmo 101:3
 
-> No pondré nada inútil delante de mis ojos;
+> No pondré ante mis ojos nada que no valga la pena;
 
 ---
 
->  Desprecio las obras de los que se desvían;  
->  No se aferrará a mí.
+>  detesto lo que hacen los que se desvían;  
+>  eso no se me pegará.
 
 ## Salmo 101:4
 
-> Un corazón perverso se apartará de mí;  
->  No me involucraré en el mal.
+> Lejos de mí el corazón retorcido;  
+>  no tendré nada que ver con el mal.
 
 ---
 
 ## Salmo 101:5
 
-> Al que calumnia en secreto a su prójimo, lo pondré fin;  
->  Al que tiene una mirada altiva y un corazón arrogante, no lo soportaré.
+> Al que habla mal de su vecino a escondidas,  
+>  le haré callar para siempre; al de mirada altanera y corazón orgulloso, no lo aguantaré.
 
 ---
 
 ## Salmo 101:6
 
-> Mis ojos estarán sobre los fieles de la tierra, para que habiten conmigo;  
->  El que camina en un camino intachable es el que me servirá.
+> Me fijaré en los fieles del país para que vivan conmigo;  
+>  quien lleve una vida intachable, ese será quien me sirva.
 
 ---
 
 ## Salmo 101:7
 
-> El que practica el engaño no permanecerá en mi casa;  
->  El que habla mentiras no se mantendrá firme delante de mí.
+> En mi casa no tendrá lugar el que vive de engaños;  
+>  el que dice mentiras no se sostendrá en pie delante de mí.
 
 ---
 
 ## Salmo 101:8
 
-> Cada mañana eliminaré a todos los malvados de la tierra,  
->  Para librar la ciudad del Señor de todos los que cometen injusticia.
+> Cada mañana quitaré de en medio a todos los malvados del país,  
+>  para dejar la ciudad del Señor libre de todos los que hacen injusticia.

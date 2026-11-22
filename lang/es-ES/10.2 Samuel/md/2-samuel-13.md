@@ -2,8 +2,8 @@
 
 ## 2 Samuel 13:1
 
-Aconteció después de esto que Absalón, hijo de David, tenía una hermana hermosa que se llamaba Tamar,  
- y Amnón, hijo de David, la amó.
+Algún tiempo después sucedió esto: Absalón, hijo de David, tenía una hermana muy bella llamada Tamar, y Amnón,  
+ otro hijo de David, se enamoró de ella.
 
 ## 2 Samuel 13:2
 
@@ -130,15 +130,15 @@ Absalón no habló con Amnón ni bien ni mal;
 
 ## 2 Samuel 13:23
 
-Aconteció después de dos años completos,  
- que Absalón tenía esquiladores en Baal-hazor, que está cerca de Efraín,  
- y Absalón invitó a todos los hijos del rey.
+Pasados dos años completos,  
+ Absalón tenía esquiladores en Baal-hazor, cerca de Efraín,  
+ e invitó a todos los hijos del rey.
 
 ## 2 Samuel 13:24
 
-Entonces Absalón vino al rey y dijo:  
- “He aquí, tu siervo tiene esquiladores;  
- por favor, que el rey y sus siervos vayan con tu siervo.”
+Absalón fue a ver al rey y le dijo:  
+ “Mira, tu siervo tiene esquiladores;  
+ por favor, ven tú con tus siervos a acompañar a tu siervo.”
 
 ## 2 Samuel 13:25
 
@@ -166,8 +166,8 @@ Entonces Absalón ordenó a sus siervos, diciendo:
 
 ## 2 Samuel 13:29
 
-Y los siervos de Absalón hicieron con Amnón tal como les había mandado.  
- Entonces todos los hijos del rey se levantaron, montaron cada uno en su mula y huyeron.
+Los siervos de Absalón cumplieron la orden que él les había dado contra Amnón.  
+ Entonces todos los hijos del rey se levantaron, cada uno subió a su mula y salieron huyendo.
 
 ---
 
@@ -194,20 +194,20 @@ Ahora pues, no tome mi señor el rey este asunto a pecho, diciendo,
 
 ## 2 Samuel 13:34
 
-Ahora Absalón había huido.  
- Y el joven que estaba de guardia alzó sus ojos y miró,  
- y he aquí, mucha gente venía por el camino detrás de él al lado del monte.
+Mientras tanto, Absalón había huido.  
+ El joven que estaba de centinela levantó la vista y vio mucha gente que venía por el camino que estaba detrás de él,  
+ por la ladera del monte.
 
 ## 2 Samuel 13:35
 
 Jonadab dijo al rey:  
- “He aquí, los hijos del rey han venido; conforme a la palabra de tu siervo, así ha sucedido.”
+ “¡Mira, ya llegan los hijos del rey! Ha pasado tal como dijo tu siervo.”
 
 ## 2 Samuel 13:36
 
-Tan pronto como terminó de hablar,  
- he aquí, los hijos del rey vinieron y alzaron sus voces y lloraron;  
- y el rey y todos sus siervos también lloraron mucho.
+En cuanto terminó de hablar,  
+ llegaron los hijos del rey y se echaron a llorar a gritos;  
+ también el rey y todos sus siervos lloraron amargamente.
 
 ---
 

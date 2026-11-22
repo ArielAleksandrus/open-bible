@@ -38,7 +38,7 @@ Cuando las vasijas estuvieron llenas, ella dijo a su hijo, “Tráeme otra vasij
 
 Así que ella vino e informó al hombre de Dios.  
  Y él le instruyó,  
- “Ve, vende el aceite y paga tu deuda, y tú y tus hijos pueden vivir del resto.”
+ “Ve, vende el aceite y paga tu deuda, y tú y tus hijos podréis vivir del resto.”
 
 ---
 
@@ -111,7 +111,7 @@ Y dijo a su padre, “¡Mi cabeza, mi cabeza!”
 
 ## 2 Reyes 4:20
 
-Cuando lo hubo llevado y lo trajo a su madre, se sentó en su regazo hasta el mediodía,  
+Cuando lo tomó y lo llevó a su madre, se sentó en su regazo hasta el mediodía,  
  y luego murió.
 
 ## 2 Reyes 4:21
@@ -153,7 +153,7 @@ Ahora por favor corre a su encuentro y pregúntale:
 Cuando llegó al hombre de Dios en el monte, se agarró de sus pies.  
  Y Giezi se acercó para apartarla, pero el hombre de Dios dijo,  
  “Déjala, porque su alma está angustiada dentro de ella;  
- y el Señor me lo ha ocultado y no me lo ha informado.”
+ y el Señor me lo ha ocultado y no me lo ha revelado.”
 
 ## 2 Reyes 4:28
 
@@ -227,7 +227,7 @@ Cuando Eliseo regresó a Gilgal, había una hambruna en la tierra.
 ## 2 Reyes 4:39
 
 Entonces uno salió al campo a recoger hierbas, y encontró una vid silvestre,  
- y recogió de ella un regazo lleno de calabazas silvestres, y vino y las cortó en la olla de guiso,  
+ y llenó su manto de calabazas silvestres, y vino y las cortó en la olla de guiso,  
  aunque no sabían lo que eran.
 
 ## 2 Reyes 4:40
@@ -239,9 +239,9 @@ Así que lo sirvieron a los hombres para comer.
 
 ## 2 Reyes 4:41
 
-Entonces él dijo, “Traigan harina.”  
+Entonces él dijo, “Traed harina.”  
  Y la echó en la olla y dijo,  
- “Sírvanlo a la gente y que coman.”  
+ “Servidlo a la gente y que coman.”  
  Y no había nada dañino en la olla.
 
 ---

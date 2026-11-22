@@ -10,13 +10,13 @@
 ## Salmo 74:2
 
 > Recuerda a Tu pueblo, que adquiriste hace mucho tiempo,  
->  Que has reclamado como la tribu de Tu herencia;  
->  Y este Monte Sion, donde has residido.
+>  que has reclamado como la tribu de Tu herencia;  
+>  y este Monte Sion, donde has residido.
 
 ## Salmo 74:3
 
 > Acércate a las ruinas desoladas;  
->  El enemigo ha devastado todo en el santuario.
+>  el enemigo ha devastado todo en el santuario.
 
 ---
 
@@ -48,8 +48,8 @@
 ## Salmo 74:9
 
 > No vemos nuestras señales;  
->  Ya no hay ningún profeta,  
->  Ni hay entre nosotros quien sepa la duración.
+>  ya no hay ningún profeta,  
+>  ni hay entre nosotros quien sepa la duración.
 
 ## Salmo 74:10
 
@@ -66,19 +66,19 @@
 ## Salmo 74:12
 
 > Sin embargo, Dios es mi Rey desde hace mucho tiempo,  
->  Quien realiza obras de salvación en medio de la tierra.
+>  quien realiza obras de salvación en medio de la tierra.
 
 ---
 
 ## Salmo 74:13
 
-> Dividiste el mar con Tu fuerza;  
->  Quebrantaste las cabezas de los monstruos marinos en las aguas.
+> Con Tu fuerza abriste el mar en dos;  
+>  rompiste en las aguas las cabezas de los monstruos marinos.
 
 ## Salmo 74:14
 
 > Aplastaste las cabezas de Leviatán;  
->  Lo diste como alimento a las criaturas del desierto.
+>  lo diste como alimento a las criaturas del desierto.
 
 ## Salmo 74:15
 
@@ -100,22 +100,22 @@
 ## Salmo 74:18
 
 > Recuerda esto, Señor, que el enemigo Te ha insultado,  
->  Y un pueblo insensato ha tratado Tu nombre con desprecio.
+>  y un pueblo insensato ha tratado Tu nombre con desprecio.
 
 ## Salmo 74:19
 
 > No entregues el alma de Tu tórtola a la bestia salvaje;  
->  No olvides la vida de Tus afligidos para siempre.
+>  no olvides la vida de Tus afligidos para siempre.
 
 ## Salmo 74:20
 
 > Considera el pacto;  
->  Porque los lugares oscuros de la tierra están llenos de guaridas de violencia.
+>  porque los lugares oscuros de la tierra están llenos de guaridas de violencia.
 
 ## Salmo 74:21
 
 > Que los oprimidos no regresen deshonrados;  
->  Que los afligidos y los necesitados alaben Tu nombre.
+>  que los afligidos y los necesitados alaben Tu nombre.
 
 ## Salmo 74:22
 
@@ -125,4 +125,4 @@
 ## Salmo 74:23
 
 > No olvides la voz de Tus enemigos,  
->  El clamor de los que se levantan contra Ti, que asciende continuamente.
+>  el clamor de los que se levantan contra Ti, que asciende continuamente.

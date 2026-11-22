@@ -26,11 +26,11 @@ yo volveré mi rostro contra ese hombre y su familia y los cortaré de entre su 
 
 ## Levítico 20:7
 
-Conságrense y sean santos, porque yo soy el Señor su Dios.
+Consagraos y sed santos, porque yo soy el Señor vuestro Dios.
 
 ## Levítico 20:8
 
-Guarden mis estatutos y practíquenlos. Yo soy el Señor, que los santifico.
+Guardad mis estatutos y practicadlos. Yo soy el Señor, que os santifico.
 
 ## Levítico 20:9
 
@@ -54,15 +54,15 @@ Guarden mis estatutos y practíquenlos. Yo soy el Señor, que los santifico.
 
 ## Levítico 20:14
 
-‘Si un hombre se casa con una mujer y con la madre de ella, es una maldad. Tanto él como ellas serán quemados con fuego, para que no haya maldad entre ustedes.
+‘Si un hombre se casa con una mujer y con la madre de ella, es una maldad. Tanto él como ellas serán quemados con fuego, para que no haya maldad entre vosotros.
 
 ## Levítico 20:15
 
-‘Si un hombre tiene relaciones sexuales con un animal, será condenado a muerte, y matarán al animal.
+‘Si un hombre tiene relaciones sexuales con un animal, será condenado a muerte, y mataréis al animal.
 
 ## Levítico 20:16
 
-‘Si una mujer se acerca a un animal para tener relaciones sexuales con él, matarán tanto a la mujer como al animal. Serán condenados a muerte; su sangre caerá sobre sus propias cabezas.
+‘Si una mujer se acerca a un animal para tener relaciones sexuales con él, mataréis tanto a la mujer como al animal. Serán condenados a muerte; su sangre caerá sobre sus propias cabezas.
 
 ## Levítico 20:17
 
@@ -86,24 +86,24 @@ Guarden mis estatutos y practíquenlos. Yo soy el Señor, que los santifico.
 
 ## Levítico 20:22
 
-‘Guarden todos mis estatutos y leyes y síganlos, para que la tierra a la que los llevo a vivir no los vomite.
+‘Guardad todos mis estatutos y leyes y seguidlos, para que la tierra a la que os llevo a vivir no os vomite.
 
 ## Levítico 20:23
 
-No deben seguir las costumbres de las naciones que voy a expulsar delante de ustedes, porque hicieron todas estas cosas, y las aborrecí.
+No debéis seguir las costumbres de las naciones que voy a expulsar delante de vosotros, porque hicieron todas estas cosas, y las aborrecí.
 
 ## Levítico 20:24
 
-Pero les he dicho: “Heredarán su tierra; se la daré como herencia, una tierra que fluye leche y miel.” Yo soy el Señor su Dios, que los ha apartado de las naciones.
+Pero os he dicho: “Heredaréis su tierra; os la daré como herencia, una tierra que fluye leche y miel.” Yo soy el Señor vuestro Dios, que os ha apartado de las naciones.
 
 ## Levítico 20:25
 
-‘Por lo tanto, deben distinguir entre animales limpios e inmundos y entre aves inmundas y limpias. No se contaminen con ningún animal o ave o cualquier cosa que se arrastre por el suelo, aquellos que he apartado como inmundos para ustedes.
+‘Por lo tanto, debéis distinguir entre animales limpios e inmundos y entre aves inmundas y limpias. No os contaminéis con ningún animal o ave o cualquier cosa que se arrastre por el suelo, aquellos que he apartado como inmundos para vosotros.
 
 ## Levítico 20:26
 
-Serán santos para mí porque yo, el Señor, soy santo, y los he apartado de las naciones para que sean míos.
+Seréis santos para mí porque yo, el Señor, soy santo, y os he apartado de las naciones para que seáis míos.
 
 ## Levítico 20:27
 
-‘Un hombre o mujer que sea médium o espiritista entre ustedes debe ser condenado a muerte. Los apedrearán; su sangre caerá sobre sus propias cabezas.’”
+‘Un hombre o mujer que sea médium o espiritista entre vosotros debe ser condenado a muerte. Los apedrearéis; su sangre caerá sobre sus propias cabezas.’”

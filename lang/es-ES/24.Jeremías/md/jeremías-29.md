@@ -14,7 +14,7 @@ La carta fue entregada a Elasá hijo de Safán y a Gemarías hijo de Hilcías, a
 
 ## Jeremías 29:4
 
-Así dice el Señor de los Ejércitos, el Dios de Israel, a todos los exiliados que he enviado de Jerusalén a Babilonia:
+Así dice el Señor de los ejércitos, el Dios de Israel, a todos los exiliados que he enviado de Jerusalén a Babilonia:
 
 ## Jeremías 29:5
 
@@ -30,7 +30,7 @@ Buscad el bienestar de la ciudad a la que os he enviado al exilio, y orad al Se�
 
 ## Jeremías 29:8
 
-Porque así dice el Señor de los Ejércitos, el Dios de Israel: “No os dejéis engañar por los profetas y adivinos que están entre vosotros, y no prestéis atención a los sueños que les hacéis soñar.
+Porque así dice el Señor de los ejércitos, el Dios de Israel: “No os dejéis engañar por los profetas y adivinos que están entre vosotros, y no prestéis atención a los sueños que les hacéis soñar.
 
 ## Jeremías 29:9
 
@@ -66,7 +66,7 @@ esto es lo que dice el Señor acerca del rey que se sienta en el trono de David 
 
 ## Jeremías 29:17
 
-esto es lo que dice el Señor de los Ejércitos: “He aquí, estoy enviando la espada, el hambre y la peste contra ellos, y los haré como higos tan malos que no se pueden comer.
+esto es lo que dice el Señor de los ejércitos: “He aquí, estoy enviando la espada, el hambre y la peste contra ellos, y los haré como higos tan malos que no se pueden comer.
 
 ## Jeremías 29:18
 
@@ -82,7 +82,7 @@ Así que, escuchad la palabra del Señor, todos vosotros exiliados a quienes he 
 
 ## Jeremías 29:21
 
-Esto es lo que dice el Señor de los Ejércitos, el Dios de Israel, acerca de Acab hijo de Colaías y Sedequías hijo de Maaseías, que están profetizando falsedades en Mi nombre: “He aquí, los entregaré en manos de Nabucodonosor, rey de Babilonia, y él los matará delante de vuestros ojos.
+Esto es lo que dice el Señor de los ejércitos, el Dios de Israel, acerca de Acab hijo de Colaías y Sedequías hijo de Maaseías, que están profetizando falsedades en Mi nombre: “He aquí, los entregaré en manos de Nabucodonosor, rey de Babilonia, y él los matará delante de vuestros ojos.
 
 ## Jeremías 29:22
 
@@ -98,7 +98,7 @@ Habla a Semaías el Nehelamita, diciendo,
 
 ## Jeremías 29:25
 
-Esto es lo que dice el Señor de los Ejércitos, el Dios de Israel: “Porque has enviado cartas en tu propio nombre a todo el pueblo en Jerusalén, al sacerdote Zefanías hijo de Maaseías, y a todos los sacerdotes, diciendo,
+Esto es lo que dice el Señor de los ejércitos, el Dios de Israel: “Porque has enviado cartas en tu propio nombre a todo el pueblo en Jerusalén, al sacerdote Zefanías hijo de Maaseías, y a todos los sacerdotes, diciendo,
 
 ## Jeremías 29:26
 

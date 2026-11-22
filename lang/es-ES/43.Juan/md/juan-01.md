@@ -50,7 +50,7 @@ Vino a los suyos, pero los suyos no lo recibieron.
 
 ## Juan 1:12
 
-Pero a todos los que lo aceptaron, a los que tuvieron fe en su nombre, les concedió el privilegio de convertirse en hijos de Dios—
+Pero a todos los que lo aceptaron, a los que tuvieron fe en su nombre, les concedió el privilegio de convertirse en hijos de Dios,
 
 ## Juan 1:13
 
@@ -76,7 +76,7 @@ Porque la ley fue dada por medio de Moisés; la gracia y la verdad fueron dadas 
 
 ## Juan 1:18
 
-Nadie ha visto jamás a Dios, pero el único Hijo, que es Dios mismo y está en la relación más cercana con el Padre, lo ha dado a conocer.
+Nadie ha visto jamás a Dios, pero el único Hijo, que es Dios mismo y está en la más estrecha relación con el Padre, lo ha dado a conocer.
 
 ---
 
@@ -104,11 +104,11 @@ Juan respondió usando las palabras del profeta Isaías: “Yo soy la voz de uno
 
 ## Juan 1:24
 
-Ahora los mensajeros habían sido enviados por los fariseos para preguntar a Juan.
+Unos mensajeros habían sido enviados por los fariseos para preguntar a Juan.
 
 ## Juan 1:25
 
-Le cuestionaron: “¿Por qué entonces bautizas si no eres el Mesías, ni Elías, ni el Profeta?”
+Le preguntaron: “¿Por qué entonces bautizas si no eres el Mesías, ni Elías, ni el Profeta?”
 
 ## Juan 1:26
 
@@ -126,11 +126,11 @@ Esto sucedió en Betania al otro lado del Jordán, donde Juan estaba bautizando.
 
 ## Juan 1:29
 
-Al día siguiente Juan vio a Jesús que venía hacia él y dijo: “¡He aquí el Cordero de Dios, que quita el pecado del mundo!
+Al día siguiente Juan vio que Jesús venía hacia él y dijo: “¡Mirad, el Cordero de Dios, el que quita el pecado del mundo!
 
 ## Juan 1:30
 
-Este es de quien me referí cuando dije: ‘Después de mí viene un hombre que me supera, porque existía antes que yo.’
+Este es aquel a quien me referí cuando dije: ‘Después de mí viene un hombre que me supera, porque existía antes que yo.’
 
 ## Juan 1:31
 
@@ -152,11 +152,11 @@ He visto y doy testimonio de que este es el Hijo de Dios.”
 
 ## Juan 1:35
 
-Al día siguiente, Juan estaba presente de nuevo con dos de sus discípulos.
+Al día siguiente, Juan estaba otra vez allí con dos de sus discípulos.
 
 ## Juan 1:36
 
-Cuando vio a Jesús pasar, dijo: “¡He aquí el Cordero de Dios!”
+Al ver pasar a Jesús, dijo: “¡Mirad, el Cordero de Dios!”
 
 ## Juan 1:37
 
@@ -164,7 +164,7 @@ Al oír esto, los dos discípulos siguieron a Jesús.
 
 ## Juan 1:38
 
-Volviéndose, Jesús los vio siguiendo y preguntó: “¿Qué buscáis?” Ellos dijeron: “Rabí” (que significa Maestro), “¿dónde te hospedas?”
+Volviéndose, Jesús vio que lo seguían y les preguntó: “¿Qué buscáis?” Ellos dijeron: “Rabí” (que significa Maestro), “¿dónde te hospedas?”
 
 ## Juan 1:39
 
@@ -194,11 +194,11 @@ Felipe, al igual que Andrés y Pedro, era de la ciudad de Betsaida.
 
 ## Juan 1:45
 
-Felipe encontró a Natanael y le informó: “Hemos descubierto al que Moisés escribió en la Ley, y de quien también hablaron los profetas —Jesús de Nazaret, el hijo de José—.”
+Felipe encontró a Natanael y le dijo: “Hemos encontrado a aquel de quien escribió Moisés en la Ley, y de quien también hablaron los profetas: Jesús de Nazaret, el hijo de José.”
 
 ## Juan 1:46
 
-“¡Nazaret! ¿Puede salir algo bueno de allí?” cuestionó Natanael. “Ven y verás,” respondió Felipe.
+“¡Nazaret! ¿Puede salir algo bueno de allí?” preguntó Natanael. “Ven y verás,” respondió Felipe.
 
 ## Juan 1:47
 

@@ -104,7 +104,7 @@ Cuando los diez oyeron esto, se indignaron contra los dos hermanos.
 
 ## Mateo 20:25
 
-Jesús los llamó y les dijo: “Sabéis que los gobernantes de los gentiles se enseñorean de ellos, y sus altos oficiales ejercen autoridad sobre ellos.
+Jesús los reunió y les dijo: “Sabéis que los gobernantes de los gentiles los dominan como amos, y que sus altos funcionarios les imponen su autoridad.
 
 ## Mateo 20:26
 

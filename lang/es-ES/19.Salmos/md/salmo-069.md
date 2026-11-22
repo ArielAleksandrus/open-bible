@@ -5,52 +5,52 @@
 ## Salmo 69:1
 
 > Sálvame, Dios,  
->  Porque las aguas han amenazado mi vida.
+>  porque las aguas han amenazado mi vida.
 
 ## Salmo 69:2
 
-> Me he hundido en el lodo profundo, y no hay donde apoyar el pie;  
->  He llegado a aguas profundas, y la corriente me arrastra.
+> Me he hundido en un pantano profundo, y no tengo dónde apoyar el pie;  
+>  He llegado a aguas hondas, y la corriente me cubre.
 
 ## Salmo 69:3
 
-> Estoy agotado de tanto llorar; mi garganta está seca;  
->  Mis ojos desfallecen mientras espero a mi Dios.
+> Ya no puedo más de tanto gritar; tengo la garganta seca;  
+>  Se me cansan los ojos de esperar a mi Dios.
 
 ## Salmo 69:4
 
-> Los que me odian sin motivo son más que los cabellos de mi cabeza;  
->  Los que buscan destruirme son poderosos, los que se oponen a mí con falsedades;  
->  Lo que no robé, ahora debo devolver.
+> Los que me odian sin razón son más que los pelos de mi cabeza;  
+>  son fuertes los que quieren destruirme, los que me atacan con mentiras;  
+>  ahora tengo que devolver lo que no robé.
 
 ---
 
 ## Salmo 69:5
 
-> Dios, Tú conoces mi necedad,  
->  Y mi culpa no está oculta de Ti.
+> Dios, Tú sabes lo necio que he sido,  
+>  y no puedo esconderte mi culpa.
 
 ---
 
 ## Salmo 69:6
 
-> Que no sean avergonzados por mi causa los que esperan en Ti, Señor Dios de los ejércitos;  
->  Que no sean deshonrados por mi causa los que te buscan, Dios de Israel,
+> Señor Dios de los ejércitos, que los que esperan en Ti no tengan que avergonzarse por mi culpa;  
+>  Dios de Israel, que los que te buscan no queden deshonrados por mi culpa,
 
 ## Salmo 69:7
 
-> Porque por Tu causa he soportado afrentas;  
->  La deshonra ha cubierto mi rostro.
+> Porque por Ti he aguantado insultos;  
+>  tengo la cara cubierta de vergüenza.
 
 ## Salmo 69:8
 
-> Me he vuelto un extraño para mis hermanos,  
->  Y un desconocido para los hijos de mi madre.
+> Mis hermanos me tratan como a un extraño,  
+>  y los hijos de mi madre como a un desconocido.
 
 ## Salmo 69:9
 
-> Porque el celo por Tu casa me ha consumido,  
->  Y los insultos de los que Te insultan han caído sobre mí.
+> Porque el amor ardiente que siento por Tu casa me consume,  
+>  y los insultos de los que te insultan a Ti han caído sobre mí.
 
 ## Salmo 69:10
 
@@ -60,12 +60,12 @@
 ## Salmo 69:11
 
 > Cuando vestí de cilicio,  
->  Me convertí en un proverbio para ellos.
+>  me convertí en un proverbio para ellos.
 
 ## Salmo 69:12
 
 > Los que se sientan a la puerta hablan de mí,  
->  Y soy el tema de las canciones de los que están ebrios.
+>  y soy el tema de las canciones de los que están ebrios.
 
 ---
 
@@ -77,99 +77,99 @@
 
 ## Salmo 69:14
 
-> Líbrame del lodo y no dejes que me hunda;  
->  Que sea rescatado de los que me odian, y de las profundidades del agua.
+> Sácame del barro y no dejes que me hunda;  
+>  que me vea libre de los que me odian, y de las aguas profundas.
 
 ## Salmo 69:15
 
-> Que las aguas torrenciales no me arrastren Ni el abismo me trague,  
->  Ni el pozo cierre su boca sobre mí.
+> Que no me arrastre la riada Ni me trague lo profundo,  
+>  ni la fosa se cierre sobre mí.
 
 ---
 
 ## Salmo 69:16
 
 > Respóndeme, Señor, porque Tu bondad es abundante;  
->  En Tu gran compasión, vuélvete hacia mí,
+>  en Tu gran compasión, vuélvete hacia mí,
 
 ## Salmo 69:17
 
-> Y no escondas Tu rostro de Tu siervo,  
->  Porque estoy angustiado; respóndeme rápidamente.
+> Y no le ocultes Tu rostro a Tu siervo,  
+>  porque estoy en apuros; ¡date prisa en responderme!
 
 ## Salmo 69:18
 
-> Acércate a mi alma y redímela;  
->  ¡Rescátame a causa de mis enemigos!
+> Acércate a mí y rescátame;  
+>  ¡Ponme a salvo por causa de mis enemigos!
 
 ---
 
 ## Salmo 69:19
 
-> Tú conoces mi reproche, mi vergüenza y mi deshonra;  
->  Todos mis adversarios son conocidos por Ti.
+> Tú sabes cómo me insultan, mi vergüenza y mi deshonra;  
+>  Tú conoces a todos mis adversarios.
 
 ## Salmo 69:20
 
 > El reproche ha quebrantado mi corazón, y estoy tan débil.  
 >  Y busqué compasión, pero no la hubo,  
->  Y consoladores, pero no encontré ninguno.
+>  y consoladores, pero no encontré ninguno.
 
 ## Salmo 69:21
 
 > También me dieron comida amarga,  
->  Y para mi sed me ofrecieron vino agrio.
+>  y para mi sed me ofrecieron vino agrio.
 
 ---
 
 ## Salmo 69:22
 
 > Que su mesa delante de ellos se convierta en un lazo;  
->  Y cuando se sientan seguros, que se convierta en una trampa.
+>  y cuando se sientan seguros, que se convierta en una trampa.
 
 ## Salmo 69:23
 
-> Que sus ojos se oscurezcan para que no puedan ver,  
->  Y haz que sus cuerpos tiemblen continuamente.
+> Que se les nublen los ojos para que no puedan ver,  
+>  y haz que su cuerpo tiemble sin parar.
 
 ## Salmo 69:24
 
-> Derrama Tu indignación sobre ellos,  
->  Y que Tu ira feroz los alcance.
+> Descarga Tu enojo sobre ellos,  
+>  y que el fuego de Tu ira los alcance.
 
 ## Salmo 69:25
 
 > Que su campamento quede desierto;  
->  Que no haya nadie habitando en sus tiendas.
+>  que no haya nadie habitando en sus tiendas.
 
 ## Salmo 69:26
 
-> Porque han perseguido al que Tú has herido,  
->  Y cuentan el dolor de los que Tú has herido.
+> Porque persiguen al que Tú has golpeado,  
+>  y comentan el dolor de los que Tú has herido.
 
 ## Salmo 69:27
 
-> Añade iniquidad a su iniquidad,  
->  Y que no entren en Tu justicia.
+> Súmales culpa a su culpa,  
+>  y que no lleguen a tener parte en Tu justicia.
 
 ## Salmo 69:28
 
-> Que sean borrados del libro de la vida,  
->  Y que no sean inscritos con los justos.
+> Que sus nombres se borren del libro de la vida,  
+>  y que no figuren en la lista de los justos.
 
 ---
 
 ## Salmo 69:29
 
 > Pero yo estoy afligido y en dolor;  
->  Que Tu salvación, Dios, me ponga seguro en lo alto.
+>  que Tu salvación, Dios, me ponga seguro en lo alto.
 
 ---
 
 ## Salmo 69:30
 
-> Honraré el nombre de Dios con una canción,  
->  Y lo exaltaré con acción de gracias.
+> Daré honra al nombre de Dios con un canto,  
+>  y lo engrandeceré con mi gratitud.
 
 ## Salmo 69:31
 
@@ -183,21 +183,21 @@
 ## Salmo 69:33
 
 > Porque el Señor escucha a los necesitados,  
->  Y no desprecia a Sus prisioneros.
+>  y no se olvida de los suyos que están presos.
 
 ---
 
 ## Salmo 69:34
 
-> Que los cielos y la tierra lo exalten,  
->  Los mares y todo lo que se mueve en ellos.
+> Que el cielo y la tierra lo alaben,  
+>  el mar y todo lo que se mueve en él.
 
 ## Salmo 69:35
 
-> Porque Dios salvará a Sion y reconstruirá las ciudades de Judá,  
->  Para que habiten allí y la posean.
+> Porque Dios salvará a Sion y volverá a construir las ciudades de Judá,  
+>  para que la gente viva allí y sea dueña de ella.
 
 ## Salmo 69:36
 
-> La descendencia de Sus siervos la heredará,  
->  Y los que aman Su nombre vivirán en ella.
+> Los hijos de Sus siervos la recibirán como herencia,  
+>  y los que aman Su nombre vivirán en ella.

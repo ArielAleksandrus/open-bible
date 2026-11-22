@@ -76,7 +76,7 @@ Al llegar a Jerusalén, los hermanos y hermanas nos dieron una cálida bienvenid
 
 ## Hechos 21:18
 
-Al día siguiente, Pablo fue con nosotros a ver a Jacobo, y todos los ancianos estaban presentes.
+Al día siguiente, Pablo fue con nosotros a ver a Santiago, y todos los ancianos estaban presentes.
 
 ## Hechos 21:19
 

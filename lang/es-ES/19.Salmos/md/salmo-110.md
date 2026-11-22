@@ -4,29 +4,29 @@
 
 ## Salmo 110:1
 
-> El Señor dice a mi Señor:  
->  “Siéntate a Mi derecha Hasta que ponga a Tus enemigos por estrado de Tus pies.  
+> El Señor le dice a mi Señor:  
+>  “Siéntate a Mi derecha hasta que Yo haga de Tus enemigos el apoyo de Tus pies.  
 > ”
 
 ---
 
 ## Salmo 110:2
 
-> El Señor extenderá Tu fuerte cetro desde Sion, diciendo,  
->  “Domina en medio de Tus enemigos.”
+> Desde Sion el Señor extenderá el cetro de Tu poder, y dirá:  
+>  “Gobierna en medio de Tus enemigos.”
 
 ## Salmo 110:3
 
-> Tu pueblo se ofrecerá voluntariamente en el día de Tu poder;  
->  En santa hermosura, desde el seno de la aurora,  
->  Tu juventud es para Ti como el rocío.
+> El día que muestres Tu poder, Tu pueblo se ofrecerá de buena gana;  
+>  vestidos de santo esplendor, desde el vientre de la aurora,  
+>  Tus jóvenes vendrán a Ti como el rocío.
 
 ---
 
 ## Salmo 110:4
 
-> El Señor ha hecho un juramento inmutable,  
->  “Tú eres sacerdote para siempre Según el orden de Melquisedec.  
+> El Señor ha jurado, y no se volverá atrás:  
+>  “Tú eres sacerdote para siempre, a la manera de Melquisedec.  
 > ”
 
 ---
@@ -34,15 +34,14 @@
 ## Salmo 110:5
 
 > El Señor está a Tu derecha;  
->  Él aplastará a los reyes en el día de Su ira.
+>  en el día de Su enojo hará pedazos a los reyes.
 
 ## Salmo 110:6
 
-> Ejecutará juicio entre las naciones,  
->  Llenándolas de cadáveres,  
->  Aplastará a los jefes sobre una vasta tierra.
+> Juzgará a las naciones y las llenará de muertos;  
+>  aplastará a los jefes por toda la extensión de la tierra.
 
 ## Salmo 110:7
 
-> Se refrescará del arroyo en el camino;  
->  Por lo tanto, levantará Su cabeza en alto.
+> En el camino beberá agua del arroyo y recobrará las fuerzas;  
+>  por eso mantendrá alta la cabeza.

@@ -35,7 +35,7 @@ trayendo justicia a aquellos que no conocen a Dios y a aquellos que no siguen el
 
 ## 2 Tesalonicenses 1:9
 
-Estos individuos enfrentarán la consecuencia de la destrucción eterna, separados de la presencia del Señor y de la gloria de su poder,
+Su castigo será una destrucción eterna, lejos de la presencia del Señor y de la gloria de su poder,
 
 ## 2 Tesalonicenses 1:10
 

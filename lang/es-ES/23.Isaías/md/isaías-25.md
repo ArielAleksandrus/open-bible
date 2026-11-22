@@ -14,7 +14,7 @@ Como resultado, pueblos fuertes te honrarán; ciudades de naciones despiadadas t
 
 ## Isaías 25:4
 
-Porque has sido un refugio para el pobre, un refugio para el necesitado en su angustia, un abrigo contra la tormenta y una sombra contra el calor; porque el aliento de los despiadados es como una tormenta contra un muro.
+Porque has sido una fortaleza para el pobre, un refugio para el necesitado en su angustia, un abrigo contra la tormenta y una sombra contra el calor; porque el aliento de los despiadados es como una tormenta contra un muro.
 
 ## Isaías 25:5
 
@@ -30,11 +30,11 @@ Y en este monte, destruirá el velo que envuelve a todos los pueblos, el manto q
 
 ## Isaías 25:8
 
-Él devorará la muerte para siempre, y el Señor Soberano enjugará las lágrimas de todos los rostros; quitará la deshonra de su pueblo de toda la tierra. El Señor ha hablado.
+Él acabará con la muerte para siempre, y el Señor Dios secará las lágrimas de todos los rostros; quitará la deshonra de su pueblo en toda la tierra. Así lo ha dicho el Señor.
 
 ## Isaías 25:9
 
-Y en ese día se dirá: “Ciertamente este es nuestro Dios; hemos esperado por él, y él nos ha salvado. Este es el Señor por quien hemos esperado; regocijémonos y alegrémonos en su salvación.”
+Aquel día se dirá: “¡Este sí es nuestro Dios! En Él pusimos nuestra esperanza y Él nos ha salvado. Este es el Señor, en quien hemos esperado; ¡alegrémonos y hagamos fiesta porque nos ha salvado!”
 
 ## Isaías 25:10
 

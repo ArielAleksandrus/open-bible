@@ -26,7 +26,7 @@ Si decidiera gloriarme, no sería insensato, porque diría la verdad; pero me ab
 
 ## 2 Corintios 12:7
 
-A causa de la extraordinaria grandeza de las revelaciones, para que no me volviera arrogante, se me dio una espina en la carne, un mensajero de Satanás para atormentarme —¡para que no me volviera arrogante—!
+A causa de la extraordinaria grandeza de las revelaciones, para que no me volviera arrogante, se me dio una espina en la carne, un mensajero de Satanás para atormentarme, ¡para que no me volviera arrogante!
 
 ## 2 Corintios 12:8
 
@@ -34,11 +34,11 @@ Respecto a esto, rogué al Señor tres veces que lo apartara de mí.
 
 ## 2 Corintios 12:9
 
-Y Él me ha dicho: “Mi gracia es suficiente para ti, porque el poder se perfecciona en la debilidad.” Por tanto, con mucho gusto me gloriaré en mis debilidades, para que el poder de Cristo habite en mí.
+Pero Él me ha dicho: “Mi gracia te basta, porque el poder llega a su plenitud en la debilidad.” Por eso, con muchísimo gusto presumiré de mis debilidades, para que el poder de Cristo viva en mí.
 
 ## 2 Corintios 12:10
 
-Por eso, me complazco en las debilidades, en los insultos, en las angustias, en las persecuciones, en las dificultades, por amor a Cristo; porque cuando soy débil, entonces soy fuerte.
+Por eso, por amor a Cristo, me alegro en las debilidades, en los insultos, en las necesidades, en las persecuciones y en las dificultades; porque cuando soy débil, entonces soy fuerte.
 
 ## 2 Corintios 12:11
 

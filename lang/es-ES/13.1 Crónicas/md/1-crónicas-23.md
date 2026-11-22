@@ -64,8 +64,8 @@ Los hijos de Ladán fueron:
 
 Los hijos de Simei fueron:
 
->  Selomit, Haziel y Harán —tres.  
->  Estos fueron los jefes de las casas paternas de Ladán—.
+>  Selomot, Haziel y Harán —tres—.  
+>  Estos fueron los jefes de las casas paternas de Ladán.
 
 ---
 
@@ -250,7 +250,7 @@ Deben estar de pie cada mañana para dar gracias y alabar al Señor,
 
 ## 1 Crónicas 23:31
 
-> y para presentar todas las ofrendas quemadas al Señor,  
+> y para presentar todos los holocaustos al Señor,  
 >  en los sábados, las lunas nuevas y las fiestas señaladas,  
 >  en el número especificado por la ordenanza sobre ellas,  
 >  continuamente delante del Señor.
@@ -259,7 +259,7 @@ Deben estar de pie cada mañana para dar gracias y alabar al Señor,
 
 ## 1 Crónicas 23:32
 
-Así que deben realizar los deberes del tabernáculo de reunión,
+Así que deben realizar los deberes del tienda de reunión,
 
 >  los deberes del lugar santo,  
 >  y los deberes de los hijos de Aarón, sus parientes,  

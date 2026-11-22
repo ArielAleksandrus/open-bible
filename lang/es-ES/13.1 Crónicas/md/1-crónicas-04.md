@@ -4,7 +4,7 @@
 
 Los hijos de Judá fueron:
 
->  Pérez, Hezrón, Carmi, Hur y Sobal.
+>  Fares, Hezrón, Carmi, Hur y Sobal.
 
 ---
 
@@ -13,7 +13,7 @@ Los hijos de Judá fueron:
 El hijo de Sobal, Reaía, fue el padre de Jahat,
 
 >  y Jahat fue el padre de Ahumai y Lahad.  
->  Estos fueron de la línea de los Zoratitas.
+>  Estos fueron de la línea de los zoratitas.
 
 ---
 
@@ -77,12 +77,12 @@ Ahora bien, Jabes fue más honorable que sus hermanos,
 
 ## 1 Crónicas 4:10
 
-Y Jabes invocó al Dios de Israel, diciendo,
+Jabes clamó al Dios de Israel:
 
->  “¡Oh, si me bendijeras en verdad, y ensancharas mi territorio,  
->  y si tu mano estuviera conmigo,  
->  y me libraras del mal para que no me dañara!”  
->  Y Dios le concedió lo que pidió.
+>  “¡Ojalá me bendigas de verdad y amplíes mis fronteras,  
+>  que tu mano me acompañe y que me guardes del mal,  
+>  para que no me haga daño!”  
+>  Y Dios le dio lo que había pedido.
 
 ---
 
@@ -142,7 +142,7 @@ Los hijos de Jehallel fueron:
 Los hijos de Ezra fueron:
 
 >  Jéter, Mered, Efer y Jalón.  
->  Y estos son los hijos de Bitia, la hija de Faraón,  
+>  Y estos son los hijos de Bitia, la hija del faraón,  
 >  que Mered tomó:
 
 >  Ella concibió y dio a luz a Miriam, Samai e Isbah, el padre de Estemoa.
@@ -155,7 +155,7 @@ Su esposa judía dio a luz a Jered, el padre de Gedor,
  Heber, el padre de Soco,  
  y Jecutiel, el padre de Zanoa.
 
->  Estos fueron los hijos de Bitia, la hija de Faraón, que Mered había tomado.
+>  Estos fueron los hijos de Bitia, la hija del faraón, que Mered había tomado.
 
 ---
 
@@ -163,8 +163,8 @@ Su esposa judía dio a luz a Jered, el padre de Gedor,
 
 Los hijos de la esposa de Hodías, la hermana de Naham, fueron:
 
->  el antepasado de Keila el Garmita,  
->  y Estemoa el Maacateo.
+>  el antepasado de Keila el garmita,  
+>  y Estemoa el maacateo.
 
 ---
 
@@ -249,7 +249,7 @@ en Bilha, Ezem y Tolad,
 
 ## 1 Crónicas 4:30
 
-en Betuel, Horma y Ziclague,
+en Betuel, Horma y Siclag,
 
 ## 1 Crónicas 4:31
 
@@ -318,8 +318,8 @@ Encontraron pastos ricos y buenos,
 
 ## 1 Crónicas 4:41
 
-Ahora bien, los que vinieron listados por nombre en los días de Ezequías, rey de Judá,  
- atacaron sus tiendas y a los meunitas que se encontraron allí,  
+Ahora bien, estos que han sido mencionados por nombre vinieron en los días de Ezequías,  
+ rey de Judá, y atacaron sus tiendas y a los meunitas que se encontraron allí,  
  y los destruyeron por completo hasta el día de hoy,  
  y vivieron en su lugar, porque había pastos allí para sus rebaños.
 

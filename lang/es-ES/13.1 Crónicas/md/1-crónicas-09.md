@@ -12,7 +12,7 @@ Así, todo Israel fue registrado en genealogías,
 
 Ahora los primeros que vivieron en sus posesiones en sus ciudades fueron:
 
->  Israelitas, sacerdotes, levitas y los sirvientes del templo.
+>  israelitas, sacerdotes, levitas y los sirvientes del templo.
 
 ---
 
@@ -47,7 +47,7 @@ Algunos descendientes de Judá, Benjamín, Efraín y Manasés residieron en Jeru
 
 ## 1 Crónicas 9:8
 
-> junto con Ibneías, descendiente de Jerojam,  
+> junto con Ibneías, descendiente de Jeroham,  
 >  y Elá, descendiente de Uzi y Micri,  
 >  y Mesulam, descendiente de Sefatías, Reuel e Ibnías;
 
@@ -68,20 +68,20 @@ Algunos descendientes de Judá, Benjamín, Efraín y Manasés residieron en Jeru
 
 ## 1 Crónicas 9:11
 
-> y Azarías, descendiente de Hilcías, Mesulam, Sadoc, Meraiot y Ahitub, oficial principal de la casa de Dios;
+> y Azarías, descendiente de Hilcías, Mesulam, Sadoc, Meraiot y Ahitob, oficial principal de la casa de Dios;
 
 ---
 
 ## 1 Crónicas 9:12
 
-> y Adaías, descendiente de Jerojam, Pasur y Malquías;  
+> y Adaías, descendiente de Jeroham, Pasur y Malquías;  
 >  y Maasai, descendiente de Adiel, Jazerá, Mesulam, Mesilemit y Imer;
 
 ---
 
 ## 1 Crónicas 9:13
 
-> y sus parientes, jefes de las casas de sus padres, 1,760 hombres capaces para el trabajo del servicio de la casa de Dios.
+> y sus parientes, jefes de las casas de sus padres, 1 760 hombres capaces para el trabajo del servicio de la casa de Dios.
 
 ---
 
@@ -101,7 +101,7 @@ Algunos descendientes de Judá, Benjamín, Efraín y Manasés residieron en Jeru
 ## 1 Crónicas 9:16
 
 > y Abdías, descendiente de Semaías, Galal y Jedutún;  
->  y Berequías, descendiente de Asa y Elcana, que vivían en los asentamientos de los Netofatitas.
+>  y Berequías, descendiente de Asa y Elcana, que vivían en los asentamientos de los netofatitas.
 
 ---
 
@@ -133,7 +133,7 @@ Salum, descendiente de Coré, Ebiasaf y Coré,
 
 ## 1 Crónicas 9:20
 
-Fineas, descendiente de Eleazar, había sido gobernante sobre ellos anteriormente,  
+Finees, descendiente de Eleazar, había sido gobernante sobre ellos anteriormente,  
  y el Señor estaba con él.
 
 ---
@@ -243,7 +243,7 @@ Estos eran líderes de las casas de los padres de los levitas según sus generac
 
 ## 1 Crónicas 9:35
 
-En Gabaón, Jeiel el padre de Gabaón vivía,
+En Gabaón vivía Jeiel, el padre de Gabaón,
 
 >  y el nombre de su esposa era Maaca.
 
@@ -287,13 +287,13 @@ El hijo de Jonatán fue Merib-baal,
 
 Los hijos de Mica incluían:
 
->  Pitón, Melec, Tarea y Ahaz.
+>  Pitón, Melec, Tarea y Acaz.
 
 ---
 
 ## 1 Crónicas 9:42
 
-Ahaz fue padre de Jara,
+Acaz fue padre de Jara,
 
 >  y Jara fue padre de Alemet, Azmavet y Zimri;  
 >  y Zimri fue padre de Moza;

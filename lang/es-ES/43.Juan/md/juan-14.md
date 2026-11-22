@@ -2,7 +2,7 @@
 
 ## Juan 14:1
 
-“No se turbe vuestro corazón. Confiad en Dios; confiad también en mí.
+“Que vuestro corazón no se angustie. Confiad en Dios, y confiad también en mí.
 
 ## Juan 14:2
 
@@ -66,7 +66,7 @@ Si me pedís cualquier cosa en mi nombre, la cumpliré.
 
 ## Juan 14:16
 
-Y yo pediré al Padre, y él os proporcionará otro Consolador, para que esté con vosotros para siempre—
+Y yo pediré al Padre, y él os proporcionará otro Consolador, para que esté con vosotros para siempre,
 
 ## Juan 14:17
 
@@ -106,7 +106,7 @@ El que no me ama no obedecerá mi enseñanza. Las palabras que oís no son mías
 
 ## Juan 14:25
 
-“Os he compartido estas cosas mientras estoy aún con vosotros.
+“Os he dicho estas cosas mientras estoy aún con vosotros.
 
 ## Juan 14:26
 
@@ -114,7 +114,7 @@ Pero el Consolador, el Espíritu Santo, a quien el Padre enviará en mi nombre, 
 
 ## Juan 14:27
 
-La paz os dejo; mi paz os doy. No os la doy como el mundo la da. No se turbe vuestro corazón, ni tenga miedo.
+Os dejo la paz; os doy mi paz. Yo no os la doy como la da el mundo. Que vuestro corazón no se angustie ni tenga miedo.
 
 ## Juan 14:28
 
@@ -130,4 +130,4 @@ No os diré mucho más, porque el príncipe de este mundo viene. Él no tiene po
 
 ## Juan 14:31
 
-pero viene para que el mundo entienda que amo al Padre y hago exactamente lo que mi Padre me ha mandado. “Venid ahora; vámonos.
+pero viene para que el mundo entienda que amo al Padre y hago exactamente lo que mi Padre me ha mandado. Venid ahora; vámonos.

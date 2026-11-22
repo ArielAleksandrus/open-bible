@@ -1,7 +1,7 @@
 # Isaías Capítulo 64
 
 ## Isaías 64:1
-¡Oh, si rasgaras los cielos y descendieras, para que los montes temblasen ante tu presencia!
+¡Ojalá abrieras los cielos y bajaras, para que los montes temblaran ante tu presencia!
 
 ## Isaías 64:2
 Como el fuego enciende el matorral y hace hervir el agua, desciende para dar a conocer tu nombre a tus adversarios, ¡que las naciones tiemblen ante tu presencia!
@@ -10,28 +10,28 @@ Como el fuego enciende el matorral y hace hervir el agua, desciende para dar a c
 Cuando hiciste cosas terribles que no esperábamos, descendiste, y los montes temblaron ante tu presencia.
 
 ## Isaías 64:4
-Desde tiempos antiguos, nadie ha oído ni percibido por el oído, ni ojo alguno ha visto a otro Dios fuera de ti, que actúe en favor de los que esperan en él.
+Desde siempre, nadie ha oído ni ha escuchado jamás, ni ojo alguno ha visto que haya otro Dios fuera de ti, que actúe a favor de los que esperan en él.
 
 ## Isaías 64:5
-Te encuentras con quienes se alegran en hacer justicia, que se acuerdan de ti en tus caminos. He aquí, te enojaste, porque pecamos; continuamos en nuestros pecados por mucho tiempo. ¿Cómo, pues, seremos salvos?
+Sales al encuentro de los que disfrutan haciendo el bien, de los que se acuerdan de ti y siguen tus caminos. Pero tú te enojaste, porque pecamos; y seguimos pecando durante mucho tiempo. ¿Cómo podremos salvarnos?
 
 ## Isaías 64:6
-Todos nosotros hemos venido a ser como un impuro, y todas nuestras justicias como trapo de inmundicia; todos nosotros nos marchitamos como una hoja, y nuestras iniquidades, como el viento, nos arrastran.
+Todos nosotros nos hemos vuelto como alguien impuro, y todas nuestras buenas obras son como un trapo sucio; todos nos marchitamos como una hoja, y nuestras maldades nos arrastran como el viento.
 
 ## Isaías 64:7
-No hay quien invoque tu nombre, que se despierte para asirse de ti; porque has escondido tu rostro de nosotros y nos has entregado al poder de nuestras iniquidades.
+No hay nadie que te invoque, nadie que se despierte para agarrarse de ti; porque nos has escondido tu rostro y nos has dejado a merced de nuestras maldades.
 
 ## Isaías 64:8
-Sin embargo, tú, Señor, eres nuestro Padre. Nosotros somos el barro, y tú eres nuestro alfarero; todos nosotros somos obra de tu mano.
+Y sin embargo, Señor, tú eres nuestro Padre. Nosotros somos el barro y tú el alfarero; todos somos obra de tus manos.
 
 ## Isaías 64:9
-No te enojes sobremanera, Señor, ni recuerdes para siempre nuestras iniquidades. He aquí, por favor mira, porque todos nosotros somos tu pueblo.
+No te enojes tanto, Señor, ni te acuerdes para siempre de nuestras maldades. Míranos, por favor, que todos somos tu pueblo.
 
 ## Isaías 64:10
-Tus santas ciudades se han convertido en un desierto; Sion se ha convertido en un yermo, Jerusalén en una desolación.
+Tus ciudades santas se han quedado vacías como un desierto; Sion es un desierto, y Jerusalén, un montón de ruinas.
 
 ## Isaías 64:11
-Nuestro santo y hermoso templo, donde nuestros antepasados te alabaron, ha sido consumido por el fuego, y todas nuestras cosas preciadas se han convertido en ruinas.
+Nuestro templo santo y hermoso, donde nuestros antepasados te alababan, ha sido quemado, y todo lo que más queríamos ha quedado en ruinas.
 
 ## Isaías 64:12
-¿Te contendrás ante estas cosas, Señor? ¿Permanecerás en silencio y nos dejarás sufrir sobremanera?
+Después de todo esto, Señor, ¿te vas a quedar sin hacer nada? ¿Vas a seguir callado y dejarnos sufrir sin medida?

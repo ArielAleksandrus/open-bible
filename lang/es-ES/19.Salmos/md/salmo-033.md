@@ -2,8 +2,8 @@
 
 ## Salmo 33:1
 
-> Alegraos en el Señor, oh justos;  
->  La alabanza es propia de los rectos.
+> Justos, alegraos en el Señor;  
+>  a la gente honrada le sienta bien alabarle.
 
 ## Salmo 33:2
 
@@ -19,103 +19,103 @@
 
 ## Salmo 33:4
 
-> Porque la palabra del Señor es verdadera,  
->  Y toda su obra se hace con fidelidad.
+> Porque lo que el Señor dice es verdad,  
+>  y todo lo que hace lo hace con fidelidad.
 
 ## Salmo 33:5
 
-> Él ama la justicia y el derecho;  
->  La tierra está llena de la bondad del Señor.
+> Él ama lo que es recto y justo;  
+>  la bondad del Señor llena toda la tierra.
 
 ---
 
 ## Salmo 33:6
 
-> Por la palabra del Señor fueron creados los cielos,  
->  Y por el aliento de su boca todo su ejército.
+> Con su palabra el Señor creó los cielos,  
+>  y con el soplo de su boca, todas las estrellas.
 
 ## Salmo 33:7
 
-> Él junta las aguas del mar como un montón;  
->  Él almacena las profundidades en depósitos.
+> Él amontona las aguas del mar;  
+>  Él guarda los océanos profundos como en un almacén.
 
 ## Salmo 33:8
 
-> Tema toda la tierra al Señor;  
->  Que todos los habitantes del mundo teman ante Él.
+> Que toda la tierra tenga reverencia al Señor;  
+>  que todos los que viven en el mundo se llenen de respeto ante Él.
 
 ## Salmo 33:9
 
-> Porque Él habló, y todo fue hecho;  
->  Él mandó, y todo se estableció.
+> Porque Él habló, y todo empezó a existir;  
+>  Él dio la orden, y todo quedó firme.
 
 ---
 
 ## Salmo 33:10
 
-> El Señor frustra el consejo de las naciones;  
->  Él desbarata los planes de los pueblos.
+> El Señor hace fracasar los planes de las naciones;  
+>  Él echa por tierra las intrigas de los pueblos.
 
 ## Salmo 33:11
 
-> El consejo del Señor permanece para siempre,  
->  Los pensamientos de su corazón por todas las generaciones.
+> Pero los planes del Señor se mantienen para siempre,  
+>  lo que Él piensa en su corazón dura por todas las generaciones.
 
 ---
 
 ## Salmo 33:12
 
-> Bienaventurada la nación cuyo Dios es el Señor,  
->  El pueblo que Él ha escogido como herencia suya.
+> Feliz la nación que tiene al Señor por su Dios,  
+>  el pueblo que Él ha escogido como suyo.
 
 ## Salmo 33:13
 
-> El Señor observa desde el cielo;  
->  Él ve a todos los hijos de los hombres;
+> Desde el cielo el Señor observa;  
+>  Él ve a toda la humanidad;
 
 ## Salmo 33:14
 
-> Desde su morada Él contempla A todos los habitantes de la tierra,
+> Desde el lugar donde vive Él vigila A todos los que viven en la tierra,
 
 ## Salmo 33:15
 
-> Él, quien forma el corazón de todos ellos,  
->  Él, quien comprende todas sus obras.
+> Él, que les da forma a los corazones de todos,  
+>  Él, que entiende todo lo que hacen.
 
 ---
 
 ## Salmo 33:16
 
-> Un rey no se salva por un gran ejército;  
->  Un guerrero no se libra por su gran fuerza.
+> No es un gran ejército lo que salva a un rey;  
+>  no es su mucha fuerza lo que pone a salvo a un guerrero.
 
 ## Salmo 33:17
 
-> Un caballo es una esperanza vana para la victoria;  
->  Ni con su gran fuerza puede librar.
+> Es inútil esperar la victoria de un caballo;  
+>  con toda su fuerza, no puede salvar a nadie.
 
 ## Salmo 33:18
 
-> He aquí, el ojo del Señor está sobre los que le temen,  
->  Sobre los que esperan en su fidelidad,
+> Mirad, el Señor no aparta los ojos de los que le respetan,  
+>  de los que ponen su esperanza en su fidelidad,
 
 ## Salmo 33:19
 
-> Para librar su alma de la muerte Y para mantenerlos con vida en tiempos de hambre.
+> Para salvarles la vida de la muerte Y para mantenerlos vivos cuando llegue el hambre.
 
 ---
 
 ## Salmo 33:20
 
-> Nuestra alma espera al Señor;  
->  Él es nuestra ayuda y nuestro escudo.
+> Nosotros ponemos nuestra esperanza en el Señor;  
+>  Él nos ayuda y nos protege como un escudo.
 
 ## Salmo 33:21
 
-> Porque nuestro corazón se alegra en Él,  
->  Porque confiamos en su santo nombre.
+> Porque nuestro corazón está feliz con Él,  
+>  porque confiamos en su santo nombre.
 
 ## Salmo 33:22
 
-> Sea tu favor, Señor, sobre nosotros,  
->  Tal como hemos esperado en ti.
+> Señor, que tu favor esté con nosotros,  
+>  Tal como lo esperamos de ti.

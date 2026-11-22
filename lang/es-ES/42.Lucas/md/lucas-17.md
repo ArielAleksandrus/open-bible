@@ -24,7 +24,7 @@ Los apóstoles imploraron al Señor: “¡Fortalece nuestra fe!”
 
 ## Lucas 17:6
 
-El Señor respondió: “Si tenéis fe tan pequeña como un grano de mostaza, podríais decir a este árbol de morera: ‘Desarráigate y plántate en el mar’, y os obedecería.
+El Señor respondió: “Si tuvierais una fe tan pequeña como una semilla de mostaza, podríais decirle a esta morera: ‘Arráncate de raíz y plántate en el mar’, y os obedecería.
 
 ---
 

@@ -42,7 +42,7 @@ Ahora bien, si llega Timoteo, aseguraos de que no tenga nada que temer mientras 
 
 ## 1 Corintios 16:11
 
-Así que no lo menospreciéis. Sino enviadlo en paz, para que venga a mí; porque lo espero con los hermanos.
+Así que no lo menospreciéis. Más bien, enviadlo en paz, para que venga a mí; porque lo espero con los hermanos.
 
 ## 1 Corintios 16:12
 
@@ -58,7 +58,7 @@ Aseguraos de que todo lo que hagáis sea hecho con amor.
 
 ## 1 Corintios 16:15
 
-Ahora os ruego, hermanos y hermanas: conocéis la casa de Estéfanas, que son los primeros frutos de Acaya, y que se han dedicado al servicio de los santos,
+Ahora os ruego, hermanos y hermanas: conocéis la casa de Estéfanas, que son las primicias de Acaya, y que se han dedicado al servicio de los santos,
 
 ## 1 Corintios 16:16
 
@@ -74,7 +74,7 @@ Porque han refrescado mi espíritu y el vuestro. Por tanto, reconoced a tales in
 
 ## 1 Corintios 16:19
 
-Las iglesias de Asia os envían saludos. Áquila y Priscila os saludan cordialmente en el Señor, junto con la iglesia que se reúne en su casa.
+Las iglesias de Asia os envían saludos. Aquila y Priscila os saludan cordialmente en el Señor, junto con la iglesia que se reúne en su casa.
 
 ## 1 Corintios 16:20
 

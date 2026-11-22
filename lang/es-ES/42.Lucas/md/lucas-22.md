@@ -22,7 +22,7 @@ Ellos se alegraron y acordaron darle dinero.
 
 ## Lucas 22:6
 
-Él aceptó, y buscó una oportunidad para entregar a Jesús a ellos lejos de la multitud.
+Él aceptó, y buscó una oportunidad para entregarles a Jesús lejos de la multitud.
 
 ---
 
@@ -40,7 +40,7 @@ Le preguntaron: “¿Dónde quieres que la preparemos?”
 
 ## Lucas 22:10
 
-Él respondió: “Al entrar en la ciudad, os saldrá al encuentro un hombre llevando un cántaro de agua. Seguidle hasta la casa donde entre,
+Él les dijo: “Cuando entréis en la ciudad, os encontraréis con un hombre que lleva un cántaro de agua. Id tras él hasta la casa en la que entre,
 
 ## Lucas 22:11
 
@@ -88,11 +88,11 @@ De igual manera, después de cenar, tomó la copa, diciendo: “Esta copa es el 
 
 ## Lucas 22:21
 
-Pero ved, la mano del que me traiciona está conmigo en la mesa.
+Pero mirad, la mano del que me traiciona está con la mía en la mesa.
 
 ## Lucas 22:22
 
-El Hijo del Hombre va según lo que está decretado, pero ¡ay de aquel hombre por quien es traicionado!”
+El Hijo del Hombre se irá tal como está decretado, pero ¡ay de ese hombre que lo traiciona!”
 
 ## Lucas 22:23
 
@@ -106,7 +106,7 @@ También surgió entre ellos una disputa sobre quién de ellos sería considerad
 
 ## Lucas 22:25
 
-Jesús les dijo: “Los reyes de los gentiles se enseñorean de ellos; y los que tienen autoridad sobre ellos son llamados Benefactores.
+Jesús les dijo: “Los reyes de los gentiles los dominan, y a los que tienen autoridad sobre ellos los llaman Benefactores.
 
 ## Lucas 22:26
 
@@ -126,7 +126,7 @@ Y yo os confiero un reino, así como mi Padre me lo ha conferido a mí,
 
 ## Lucas 22:30
 
-para que comáis y bebáis a mi mesa en mi reino y os sentéis en tronos, juzgando a las doce tribus de Israel.
+para que comáis a mi mesa en mi reino y os sentéis en tronos para gobernar a las doce tribus de Israel.
 
 ---
 
@@ -154,7 +154,7 @@ Entonces Jesús les preguntó: “Cuando os envié sin bolsa, sin alforja, ni sa
 
 ## Lucas 22:36
 
-Él les dijo: “Pero ahora, el que tenga bolsa, tómela, y también la alforja; y el que no tenga espada, venda su manto y compre una.
+Él les dijo: “Pero ahora, si tenéis bolsa, llevadla, y también la alforja; y si no tenéis espada, vended vuestro manto y comprad una.
 
 ## Lucas 22:37
 
@@ -196,7 +196,7 @@ Cuando se levantó de la oración y volvió a los discípulos, los encontró dor
 
 ## Lucas 22:46
 
-“¿Por qué dormís?” Les preguntó. “Levantaos y orad para que no caigáis en tentación.”
+“¿Por qué dormís?” les preguntó. “Levantaos y orad para que no caigáis en tentación.”
 
 ---
 
@@ -206,7 +206,7 @@ Mientras aún hablaba, se acercó una multitud, y el hombre llamado Judas, uno d
 
 ## Lucas 22:48
 
-pero Jesús le preguntó: “Judas, ¿con un beso traicionas al Hijo del Hombre?”
+pero Jesús le preguntó: “Judas, ¿vienes a traicionar al Hijo del Hombre con un beso?”
 
 ## Lucas 22:49
 
@@ -226,13 +226,13 @@ Entonces Jesús dijo a los principales sacerdotes, a los oficiales de la guardia
 
 ## Lucas 22:53
 
-Cada día estaba con vosotros en los patios del templo, y no pusisteis mano sobre mí. Pero esta es vuestra hora —cuando la oscuridad tiene su dominio—.”
+Cada día estaba con vosotros en los patios del templo, y no pusisteis mano sobre mí. Pero esta es vuestra hora, cuando la oscuridad tiene su dominio.”
 
 ---
 
 ## Lucas 22:54
 
-Entonces le prendieron, le llevaron y le llevaron a la casa del sumo sacerdote. Pedro le seguía a distancia.
+Entonces le prendieron, se lo llevaron y le condujeron a la casa del sumo sacerdote. Pedro le seguía a distancia.
 
 ## Lucas 22:55
 

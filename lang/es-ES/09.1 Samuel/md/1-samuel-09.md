@@ -2,7 +2,7 @@
 
 ## 1 Samuel 9:1
 
-Había un hombre de Benjamín cuyo nombre era Quis, hijo de Abiel, hijo de Zeror, hijo de Becorat, hijo de Afía, un benjamita, un hombre de riqueza.
+Había un hombre de Benjamín cuyo nombre era Quis, hijo de Abiel, hijo de Zeror, hijo de Becorat, hijo de Afía, un benjaminita, un hombre de riqueza.
 
 ## 1 Samuel 9:2
 
@@ -89,7 +89,7 @@ En cuanto a tus asnas que se perdieron hace tres días, no te preocupes por ella
 
 ## 1 Samuel 9:21
 
-Saúl respondió y dijo: “¿No soy yo un benjamita, de la más pequeña de las tribus de Israel, y no es mi familia la menor de todas las familias de la tribu de Benjamín? ¿Por qué entonces me hablas de esta manera?”
+Saúl respondió y dijo: “¿No soy yo un benjaminita, de la más pequeña de las tribus de Israel, y no es mi familia la menor de todas las familias de la tribu de Benjamín? ¿Por qué entonces me hablas de esta manera?”
 
 ---
 

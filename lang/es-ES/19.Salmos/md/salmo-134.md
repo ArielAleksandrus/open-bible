@@ -4,15 +4,15 @@
 
 ## Salmo 134:1
 
-> ¡Mirad, bendecid al Señor, todos los siervos del Señor,  
->  Que servís de noche en la casa del Señor!
+> ¡Venid, alabad al Señor, todos los siervos del Señor,  
+>  que de noche servís en la casa del Señor!
 
 ## Salmo 134:2
 
-> Alzad vuestras manos hacia el lugar santo Y ofreced alabanza al Señor.
+> Levantad las manos hacia el lugar santo y alabad al Señor.
 
 ---
 
 ## Salmo 134:3
 
-> Que el Señor, el Creador del cielo y de la tierra, te bendiga desde Sion.
+> Que el Señor, que creó el cielo y la tierra, te bendiga desde Sion.

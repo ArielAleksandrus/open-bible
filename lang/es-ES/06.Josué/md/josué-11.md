@@ -84,11 +84,11 @@ Porque fue obra del Señor endurecer sus corazones para hacer la guerra contra I
 
 ## Josué 11:21
 
-En ese tiempo Josué vino y eliminó a los anakim de la región montañosa: de Hebrón, Debir, Anab, de toda la región montañosa de Judá, y de toda la región montañosa de Israel. Josué los destruyó por completo y a sus ciudades.
+En ese tiempo Josué vino y eliminó a los anaceos de la región montañosa: de Hebrón, Debir, Anab, de toda la región montañosa de Judá, y de toda la región montañosa de Israel. Josué los destruyó por completo y a sus ciudades.
 
 ## Josué 11:22
 
-No quedaron anakim en el territorio israelita; solo en Gaza, Gat y Asdod sobrevivieron algunos.
+No quedaron anaceos en el territorio israelita; solo en Gaza, Gat y Asdod sobrevivieron algunos.
 
 ---
 

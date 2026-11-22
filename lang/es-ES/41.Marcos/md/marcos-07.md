@@ -46,7 +46,7 @@ Porque Moisés dijo, ‘Honra a tu padre y a tu madre,’ y, ‘Cualquiera que m
 
 ## Marcos 7:11
 
-Pero vosotros decís que si alguien declara que lo que podría haber sido usado para ayudar a su padre o madre es Corbán (es decir, dedicado a Dios)—
+Pero vosotros decís que si alguien declara que lo que podría haber sido usado para ayudar a su padre o madre es Corbán (es decir, dedicado a Dios),
 
 ## Marcos 7:12
 
@@ -146,7 +146,7 @@ Jesús lo llevó aparte, lejos de la multitud, y puso Sus dedos en los oídos de
 
 ## Marcos 7:34
 
-Miró hacia arriba, suspiró profundamente y le dijo, “¡Effatá!” (que significa “¡Sé abierto!”).
+Miró hacia arriba, suspiró profundamente y le dijo, “¡Effatá!” (que significa “¡Ábrete!”).
 
 ## Marcos 7:35
 

@@ -10,7 +10,7 @@ Saúl estaba en los alrededores de Guibeá, bajo el granado que hay en Migrón. 
 
 ## 1 Samuel 14:3
 
-Y Ahías, hijo de Ahitob, hermano de Icabod, hijo de Finees, hijo de Elí, sacerdote del Señor en Silo, llevaba el efod. Pero la gente no sabía que Jonatán se había ido.
+y Ahías, hijo de Ahitob, hermano de Icabod, hijo de Finees, hijo de Elí, sacerdote del Señor en Silo, llevaba el efod. Pero la gente no sabía que Jonatán se había ido.
 
 ## 1 Samuel 14:4
 
@@ -57,7 +57,7 @@ Entonces Jonatán subió con sus manos y pies, y su escudero tras él. Y cayeron
 
 ## 1 Samuel 14:14
 
-En ese primer ataque, Jonatán y su escudero mataron como a veinte hombres en un espacio de media yugada de tierra.
+En ese primer ataque, Jonatán y su escudero mataron a unos veinte hombres en un trecho de tierra de unos cien metros.
 
 ## 1 Samuel 14:15
 
@@ -217,7 +217,7 @@ Ahinoam, hija de Ahimaaz, era la esposa de Saúl. El comandante de su ejército 
 
 ## 1 Samuel 14:51
 
-Saúl era hijo de Cis, y Ner, el padre de Abner, era hijo de Abiel.
+Saúl era hijo de Quis, y Ner, el padre de Abner, era hijo de Abiel.
 
 ## 1 Samuel 14:52
 

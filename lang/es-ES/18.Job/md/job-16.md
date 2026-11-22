@@ -2,7 +2,7 @@
 
 ## Job 16:1
 
-Job respondió, diciendo,
+Job respondió diciendo:
 
 ## Job 16:2
 
@@ -33,11 +33,11 @@ Job respondió, diciendo,
 ## Job 16:7
 
 > Seguramente, ahora Dios me ha agotado;
->  habéis devastado toda mi casa.
+>  has devastado toda mi casa.
 
 ## Job 16:8
 
-> Me habéis consumido,
+> Me has consumido,
 >  y se ha convertido en un testigo;
 >  mi delgadez se levanta y testifica contra mí.
 

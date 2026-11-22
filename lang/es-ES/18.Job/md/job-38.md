@@ -10,8 +10,8 @@ Entonces el Señor habló a Job desde el torbellino y dijo:
 
 ## Job 38:3
 
-> Ciñe tus lomos como un hombre;
->  te preguntaré, y tú me informarás.
+> Cíñete el cinturón como un hombre;
+>  yo te haré preguntas, y tú me las responderás.
 
 ---
 
@@ -50,7 +50,7 @@ Entonces el Señor habló a Job desde el torbellino y dijo:
 
 ## Job 38:11
 
-> cuando dije, ‘Hasta aquí llegarás y no más allá;
+> cuando dije: ‘Hasta aquí llegarás y no más allá;
 >  aquí se detendrán tus orgullosas olas’?
 
 ---
@@ -144,7 +144,7 @@ Entonces el Señor habló a Job desde el torbellino y dijo:
 
 ## Job 38:29
 
-> ¿De quién vientre viene el hielo?
+> ¿Del vientre de quién sale el hielo?
 >  ¿Quién da a luz la escarcha de los cielos
 
 ## Job 38:30
@@ -178,7 +178,7 @@ Entonces el Señor habló a Job desde el torbellino y dijo:
 ## Job 38:35
 
 > ¿Envías los relámpagos en su camino?
->  ¿Se presentan ante ti, diciendo, ‘Aquí estamos’?
+>  ¿Se presentan ante ti, diciendo: ‘Aquí estamos’?
 
 ## Job 38:36
 

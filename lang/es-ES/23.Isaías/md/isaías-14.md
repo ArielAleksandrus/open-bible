@@ -22,7 +22,7 @@ El Señor ha destrozado la vara de los impíos, el cetro de los gobernantes,
 
 ## Isaías 14:6
 
-que golpeó a los pueblos con ira con golpes incesantes, y sometió a las naciones con ira con persecución implacable.
+que golpeaba con furor a los pueblos con golpes incesantes, y dominaba con ira a las naciones con persecución implacable.
 
 ## Isaías 14:7
 
@@ -42,19 +42,19 @@ Todos te responderán y te dirán: “Tú también te has vuelto débil como nos
 
 ## Isaías 14:11
 
-Tu pompa y el sonido de tus arpas han sido llevados al sepulcro; los gusanos se extienden debajo de ti, y los gusanos te cubren.
+Tu pompa y el sonido de tus arpas han sido llevados al sepulcro; las larvas se extienden debajo de ti, y los gusanos te cubren.
 
 ## Isaías 14:12
 
-¡Cómo has caído del cielo, lucero, hijo de la aurora! Has sido derribado a la tierra, tú que una vez abatías a las naciones.
+¡Qué caída la tuya desde el cielo, estrella brillante, hijo de la aurora! Te han tirado por tierra, a ti, que antes derribabas a las naciones.
 
 ## Isaías 14:13
 
-Dijiste en tu corazón: “Ascenderé a los cielos; levantaré mi trono por encima de las estrellas de Dios; me sentaré en el monte de la asamblea, en las alturas más remotas del norte.
+Tú que pensabas: “Subiré hasta el cielo; pondré mi trono más alto que las estrellas de Dios; me sentaré como rey en el monte de la asamblea, allá en lo más alto del norte.
 
 ## Isaías 14:14
 
-Me elevaré por encima de las nubes; me haré semejante al Altísimo.”
+Subiré más arriba que las nubes; seré igual que el Altísimo.”
 
 ## Isaías 14:15
 
@@ -62,7 +62,7 @@ Sin embargo, has sido derribado al reino de los muertos, a las profundidades del
 
 ## Isaías 14:16
 
-Los que te vean te mirarán fijamente, reflexionarán sobre tu destino: “¿Es este el hombre que hizo temblar la tierra, que sacudió los reinos,
+Los que te vean se quedarán mirándote y pensarán en lo que te ha pasado: “¿Este es el hombre que hacía temblar la tierra, que hacía estremecer a los reinos,
 
 ## Isaías 14:17
 
@@ -86,17 +86,17 @@ Prepara un lugar para sacrificar a sus hijos por los pecados de sus antepasados;
 
 ## Isaías 14:22
 
-“Me levantaré contra ellos,” declara el Señor Todopoderoso, “y cortaré de Babilonia nombre y sobrevivientes, descendencia y posteridad,” declara el Señor.
+“Me levantaré contra ellos,” declara el Señor de los ejércitos, “y cortaré de Babilonia nombre y sobrevivientes, descendencia y posteridad,” declara el Señor.
 
 ## Isaías 14:23
 
-“La convertiré en un lugar para búhos y en pantanos; la barreré con la escoba de la destrucción,” declara el Señor Todopoderoso.
+“La convertiré en un lugar para búhos y en pantanos; la barreré con la escoba de la destrucción,” declara el Señor de los ejércitos.
 
 ---
 
 ## Isaías 14:24
 
-El Señor Todopoderoso ha jurado: “Ciertamente, como lo he planeado, así será, y como lo he propuesto, así se mantendrá.
+El Señor de los ejércitos ha jurado: “Ciertamente, como lo he planeado, así será, y como lo he propuesto, así se mantendrá.
 
 ## Isaías 14:25
 
@@ -108,7 +108,7 @@ Este es el plan ideado contra toda la tierra; esta es la mano extendida sobre to
 
 ## Isaías 14:27
 
-Porque el Señor Todopoderoso ha propuesto, y ¿quién puede frustrarlo? Su mano está extendida, y ¿quién puede devolverla?
+El Señor de los ejércitos lo ha decidido, ¿y quién podrá impedirlo? Su mano está extendida, ¿y quién podrá detenerla?
 
 ---
 
@@ -118,7 +118,7 @@ En el año en que murió el rey Acaz, vino esta profecía:
 
 ## Isaías 14:29
 
-No te regocijes, todos vosotros filisteos, de que la vara que te golpeó está rota; de la raíz de esa serpiente saldrá una víbora, su fruto será una serpiente veloz y venenosa.
+No te regocijes, Filistea entera, de que la vara que te golpeó esté rota; de la raíz de esa serpiente saldrá una víbora, su fruto será una serpiente veloz y venenosa.
 
 ## Isaías 14:30
 
@@ -126,7 +126,7 @@ Los más pobres encontrarán pasto, y los necesitados se acostarán seguros. Per
 
 ## Isaías 14:31
 
-¡Lamenta, puerta! ¡Clama, ciudad! ¡Derrítete, todos vosotros filisteos! Una nube de humo viene del norte, y no hay rezagado en sus filas.
+¡Lamenta, puerta! ¡Clama, ciudad! ¡Derrítete, Filistea entera! Una nube de humo viene del norte, y no hay rezagado en sus filas.
 
 ## Isaías 14:32
 

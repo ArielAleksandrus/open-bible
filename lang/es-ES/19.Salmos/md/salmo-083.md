@@ -4,23 +4,22 @@
 
 ## Salmo 83:1
 
-> Dios, no guardes silencio;  
->  No te quedes callado, oh Dios, ni inmóvil.
+> Dios, no te quedes en silencio;  
+>  no te calles, Dios, no te quedes sin hacer nada.
 
 ## Salmo 83:2
 
-> Porque mira, tus enemigos rugen,  
->  Y los que te odian han alzado la cabeza.
+> Mira cómo se alborotan tus enemigos;  
+>  los que están contra ti se han alzado.
 
 ## Salmo 83:3
 
-> Traman astutos planes contra tu pueblo,  
->  Y conspiran contra tus protegidos.
+> Traman planes astutos contra tu pueblo y se ponen de acuerdo contra los que tú quieres.
 
 ## Salmo 83:4
 
-> Han dicho: “Venid, destruyámoslos como nación,  
->  Para que el nombre de Israel no sea recordado.”
+> Han dicho: “Vamos, acabemos con ellos como nación,  
+>  para que el nombre de Israel quede en el olvido.”
 
 ---
 
@@ -31,8 +30,8 @@
 
 ## Salmo 83:6
 
-> Las tiendas de Edom y de los ismaelitas,  
->  Moab y los agarenos;
+> los campamentos de Edom y de los ismaelitas,  
+>  de Moab y de los agarenos;
 
 ## Salmo 83:7
 
@@ -51,17 +50,16 @@
 ## Salmo 83:9
 
 > Trátalos como a Madián,  
->  Como a Sísara y Jabín en el río Cisón,
+>  como a Sísara y Jabín en el río Cisón,
 
 ## Salmo 83:10
 
-> Que perecieron en Endor,  
->  Sirviendo de abono para la tierra.
+> que encontraron su fin en Endor y quedaron como basura sobre la tierra.
 
 ## Salmo 83:11
 
 > Haz que sus nobles sean como Oreb y Zeeb,  
->  Y sus príncipes como Zeba y Zalmuna,
+>  y sus príncipes como Zeba y Zalmuna,
 
 ## Salmo 83:12
 
@@ -73,29 +71,29 @@
 ## Salmo 83:13
 
 > Dios mío, hazlos como polvo en remolino,  
->  Como paja llevada por el viento.
+>  como paja llevada por el viento.
 
 ## Salmo 83:14
 
 > Como fuego que consume el bosque,  
->  Y como llama que incendia las montañas,
+>  y como llama que incendia las montañas,
 
 ## Salmo 83:15
 
-> Persíguelos con tu tempestad,  
->  Y aterrorízalos con tu tormenta.
+> así,  
+>  persíguelos con tu tempestad y llénalos de miedo con tu tormenta.
 
 ## Salmo 83:16
 
 > Cubre sus rostros de vergüenza,  
->  Para que busquen tu nombre, Señor.
+>  para que busquen tu nombre, Señor.
 
 ---
 
 ## Salmo 83:17
 
-> Sean eternamente avergonzados y turbados,  
->  Sean humillados y perezcan,
+> Que queden avergonzados y aterrados para siempre;  
+>  que sean humillados y desaparezcan,
 
 ## Salmo 83:18
 

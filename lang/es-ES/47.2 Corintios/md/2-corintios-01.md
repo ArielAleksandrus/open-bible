@@ -3,7 +3,7 @@
 ## 2 Corintios 1:1
 
 De Pablo, apóstol de Cristo Jesús por la voluntad de Dios, y Timoteo nuestro hermano,  
- A la iglesia de Dios en Corinto, junto con todos los santos en toda Acaya:
+ a la iglesia de Dios en Corinto, junto con todos los santos en toda Acaya:
 
 ## 2 Corintios 1:2
 
@@ -15,11 +15,11 @@ Alabado sea el Dios y Padre de nuestro Señor Jesucristo, el Padre misericordios
 
 ## 2 Corintios 1:4
 
-Quien nos consuela en todas nuestras tribulaciones, para que podamos consolar a los que están en cualquier tribulación con el consuelo con que nosotros mismos somos consolados por Dios.
+Él nos anima en todas nuestras dificultades, para que también nosotros podamos animar a los que pasan por cualquier dificultad, con el mismo consuelo que nosotros recibimos de Dios.
 
 ## 2 Corintios 1:5
 
-Porque así como participamos abundantemente en los sufrimientos de Cristo, así también por medio de Cristo abunda nuestro consuelo.
+Porque, así como tenemos una gran parte en los sufrimientos de Cristo, también por medio de Cristo nuestro consuelo se desborda.
 
 ## 2 Corintios 1:6
 
@@ -91,7 +91,7 @@ Quien también puso su sello de propiedad sobre nosotros y puso su Espíritu en 
 
 ## 2 Corintios 1:23
 
-Pero llamo a Dios como testigo, que fue para perdonaros que no volví a Corinto.
+Pero pongo a Dios por testigo de que fue por consideración a vosotros que no volví a Corinto.
 
 ## 2 Corintios 1:24
 

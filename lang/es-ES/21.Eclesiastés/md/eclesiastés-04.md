@@ -4,7 +4,7 @@
 Una vez más, observé todos los actos de opresión que ocurren bajo el sol. Vi las lágrimas de los oprimidos, y no tenían consolador; el poder estaba del lado de sus opresores, y no tenían consolador.
 
 ## Eclesiastés 4:2
-Concluí que los muertos que ya han pasado son más afortunados que los vivos que aún están vivos.
+Concluí que los muertos, que ya murieron, son más afortunados que los vivos, que aún viven.
 
 ## Eclesiastés 4:3
 Sin embargo, mejor que ambos es el que nunca ha nacido, que no ha presenciado las malas acciones hechas bajo el sol.
@@ -22,10 +22,10 @@ Mejor es un puñado con tranquilidad que dos puñados con trabajo y correr tras 
 De nuevo, observé algo fútil bajo el sol:
 
 ## Eclesiastés 4:8
-Había un hombre que estaba solo, sin hijo ni hermano. No había fin a su trabajo, pero sus ojos no se saciaban de riquezas. "¿Para quién estoy trabajando," se preguntó, "y privándome de disfrute?" Esto también es vanidad, y una tarea miserable.
+Había un hombre que estaba solo, sin hijo ni hermano. Su trabajo no tenía fin, pero sus ojos no se saciaban de riquezas. “¿Para quién estoy trabajando”, se preguntó, “y privándome de disfrute?” Esto también es vanidad, y una tarea miserable.
 
 ## Eclesiastés 4:9
-Dos son más efectivos que uno, ya que tienen un buen retorno por sus esfuerzos:
+Dos valen más que uno, porque sacan más provecho de su esfuerzo:
 
 ## Eclesiastés 4:10
 Si uno cae, el otro puede levantarlo. Pero lástima de quien cae y no tiene a nadie que lo ayude a levantarse.

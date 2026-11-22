@@ -66,7 +66,7 @@ En la luz del rostro de un rey hay vida, y su favor es como una nube que trae ll
 
 ## Proverbios 16:16
 
-Cuánto mejor es adquirir sabiduría que oro, y obtener entendimiento es preferible a la plata.
+¡Cuánto mejor es adquirir sabiduría que oro! Y obtener entendimiento es preferible a la plata.
 
 ## Proverbios 16:17
 
@@ -86,7 +86,7 @@ Quien presta atención a la instrucción encontrará el bien, y bienaventurado e
 
 ## Proverbios 16:21
 
-Los sabios de corazón son llamados discernidos, y la dulzura del habla aumenta la persuasión.
+Los sabios de corazón son llamados entendidos, y la dulzura del habla aumenta la persuasión.
 
 ## Proverbios 16:22
 
@@ -124,7 +124,7 @@ Una persona violenta seduce a su vecino y lo lleva por un camino dañino.
 
 ## Proverbios 16:30
 
-Quien guiña con el ojo está tramando perversidad; quien comprime sus labios hace que el mal se realice.
+Quien guiña con el ojo está tramando perversidad; quien aprieta los labios hace que el mal se realice.
 
 ## Proverbios 16:31
 
@@ -136,4 +136,4 @@ Mejor es una persona paciente que un guerrero, quien controla su espíritu que q
 
 ## Proverbios 16:33
 
-La suerte se echa en el regazo, pero su decisión proviene del Señor.
+Las suertes se echan en el regazo, pero lo que salga lo decide el Señor.

@@ -128,7 +128,7 @@ Luego Josué construyó un altar al Señor, un altar al Dios de Israel, en el mo
 
 ## Josué 8:31
 
-como Moisés, el siervo del Señor, había mandado a los israelitas, como está escrito en el Libro de la Ley de Moisés —un altar de piedras sin labrar, sobre el cual no se había usado herramienta de hierro. Ofrecieron holocaustos sobre él al Señor, y sacrificaron ofrendas de paz—.
+como Moisés, el siervo del Señor, había mandado a los israelitas, como está escrito en el Libro de la Ley de Moisés: un altar de piedras sin labrar, sobre el cual no se había usado herramienta de hierro. Ofrecieron holocaustos sobre él al Señor, y sacrificaron ofrendas de paz.
 
 ## Josué 8:32
 

@@ -34,7 +34,7 @@ Caldea será saqueada; todos los que la saqueen se saciarán,” declara el Señ
 “Porque os alegráis y os regocijáis, vosotros que saqueáis mi herencia, porque retozáis como una novilla en la era y relincháis como caballos,
 
 ## Jeremías 50:12
-vuestra madre se avergonzará mucho; la que os dio a luz será humillada. Se convertirá en la más insignificante de las naciones, un desierto, una tierra árida, un desierto.
+vuestra madre se avergonzará mucho; la que os dio a luz será humillada. Se convertirá en la más insignificante de las naciones, un yermo, una tierra árida, un desierto.
 
 ## Jeremías 50:13
 Por la ira del Señor no será habitada sino que quedará completamente desolada. Todo el que pase por Babilonia se asombrará y se burlará de todas sus heridas.
@@ -52,7 +52,7 @@ Cortad al sembrador de Babilonia, y al que maneja la hoz en tiempo de cosecha. P
 “Israel es un rebaño disperso, alejado por leones. El primero en devorarlos fue el rey de Asiria; el último en roer sus huesos fue Nabucodonosor, rey de Babilonia.”
 
 ## Jeremías 50:18
-Por lo tanto, esto es lo que dice el Señor de los Ejércitos, el Dios de Israel: “Castigaré al rey de Babilonia y a su tierra como castigué al rey de Asiria.
+Por lo tanto, esto es lo que dice el Señor de los ejércitos, el Dios de Israel: “Castigaré al rey de Babilonia y a su tierra como castigué al rey de Asiria.
 
 ## Jeremías 50:19
 Y traeré a Israel de vuelta a su pasto, y pastarán en el Carmelo y Basán; su apetito se saciará en las colinas de Efraín y Galaad.
@@ -73,7 +73,7 @@ En aquellos días y en ese tiempo,” declara el Señor, “se buscará la culpa
 Puse una trampa para ti, Babilonia, y fuiste atrapada antes de que lo supieras; fuiste hallada y capturada porque te opusiste al Señor.
 
 ## Jeremías 50:25
-El Señor ha abierto Su arsenal y ha sacado las armas de Su ira, porque el Soberano Señor de los Ejércitos tiene trabajo que hacer en la tierra de los caldeos.
+El Señor ha abierto Su arsenal y ha sacado las armas de Su ira, porque el Señor Dios de los ejércitos tiene trabajo que hacer en la tierra de los caldeos.
 
 ## Jeremías 50:26
 Venid contra ella desde el borde más lejano. Abrid sus almacenes; amontonadla como montones de grano y destruidla completamente, sin dejar remanente.
@@ -91,19 +91,19 @@ Oíd a los fugitivos y refugiados de Babilonia proclamando en Sion cómo el Señ
 Por lo tanto, sus jóvenes caerán en sus calles; todos sus soldados serán silenciados en ese día,” declara el Señor.
 
 ## Jeremías 50:31
-“He aquí, estoy contra ti, arrogante,” declara el Señor, el Señor de los Ejércitos, “porque ha llegado tu día, el tiempo en que te castigaré.
+“He aquí, estoy contra ti, arrogante,” declara el Señor, el Señor de los ejércitos, “porque ha llegado tu día, el tiempo en que te castigaré.
 
 ## Jeremías 50:32
 El arrogante tropezará y caerá sin que nadie lo levante; encenderé un fuego en sus ciudades que consumirá todos sus alrededores.”
 
 ## Jeremías 50:33
-Esto es lo que dice el Señor de los Ejércitos: “El pueblo de Israel está oprimido, y el pueblo de Judá también. Todos sus captores los retienen firmemente, negándose a dejarlos ir.
+Esto es lo que dice el Señor de los ejércitos: “El pueblo de Israel está oprimido, y el pueblo de Judá también. Todos sus captores los retienen firmemente, negándose a dejarlos ir.
 
 ## Jeremías 50:34
-Sin embargo, su Redentor es fuerte; el Señor de los Ejércitos es Su nombre. Defenderá vigorosamente su causa para que pueda traer descanso a su tierra, pero inquietud a los que viven en Babilonia.
+Sin embargo, su Redentor es fuerte; el Señor de los ejércitos es Su nombre. Defenderá vigorosamente su causa para que pueda traer descanso a su tierra, pero inquietud a los que viven en Babilonia.
 
 ## Jeremías 50:35
-“¡Una espada contra los caldeos!” declara el Señor —“contra los que viven en Babilonia y contra sus oficiales y sabios—!
+“¡Una espada contra los caldeos!” declara el Señor, “¡contra los que viven en Babilonia y contra sus oficiales y sabios!
 
 ## Jeremías 50:36
 ¡Una espada contra sus sacerdotes oráculos! Se volverán necios. ¡Una espada contra sus guerreros! Se llenarán de terror.
@@ -130,7 +130,7 @@ Están armados con arcos y jabalinas; son crueles y sin misericordia. Su voz rug
 El rey de Babilonia ha oído el informe sobre ellos, y sus manos cuelgan inertes. La angustia lo ha atrapado, dolor como el de una mujer en parto.
 
 ## Jeremías 50:44
-“¡He aquí, uno subirá como un león desde los matorrales del Jordán a un pastizal rico; porque en un instante los ahuyentaré de allí, y pondré sobre él a quien sea escogido. Porque ¿quién es como Yo, y quién puede desafiarme? ¿Y qué pastor puede enfrentarse a Mí?”
+“He aquí, uno subirá como un león desde los matorrales del Jordán a un pastizal rico; porque en un instante los ahuyentaré de allí, y pondré sobre él a quien sea escogido. Porque ¿quién es como Yo, y quién puede desafiarme? ¿Y qué pastor puede enfrentarse a Mí?”
 
 ## Jeremías 50:45
 Por lo tanto, escuchad lo que el Señor ha planeado contra Babilonia, lo que ha propuesto contra la tierra de los caldeos: Los jóvenes del rebaño serán arrastrados; su pasto se horrorizará ante su destino.

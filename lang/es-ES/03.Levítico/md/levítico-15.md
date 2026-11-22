@@ -102,7 +102,7 @@ Si una mujer tiene flujo de sangre durante muchos días, no en el tiempo de su i
 
 ## Levítico 15:26
 
-Cualquier cama en la que se acueste durante su flujo será como su cama en la menstruación, y todo lo que se siente será impuro, como su impureza menstrual.
+Cualquier cama en la que se acueste durante su flujo será como su cama en la menstruación, y todo aquello sobre lo que se siente será impuro, como su impureza menstrual.
 
 ## Levítico 15:27
 
@@ -130,4 +130,4 @@ Esta es la ley para un hombre con flujo, y para cualquiera que quede impuro por 
 
 ## Levítico 15:33
 
-y para una mujer en su impureza menstrual, y para cualquiera con flujo, hombre o mujer, y para un hombre que tenga relaciones sexuales con una mujer que está impura.
+y para una mujer en su impureza menstrual, y para cualquiera con flujo, hombre o mujer, y para un hombre que tenga relaciones sexuales con una mujer que está impura.’”

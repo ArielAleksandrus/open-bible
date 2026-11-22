@@ -4,8 +4,8 @@
 
 ## Salmo 88:1
 
-> Señor, Dios de mi salvación,  
->  He clamado de día y de noche delante de Ti.
+> Señor, Dios que me salvas,  
+>  de día te grito, y de noche también, delante de Ti.
 
 ## Salmo 88:2
 
@@ -17,48 +17,48 @@
 ## Salmo 88:3
 
 > Porque mi alma está llena de problemas,  
->  Y mi vida se acerca a Seol.
+>  y mi vida se acerca al Seol.
 
 ## Salmo 88:4
 
 > Soy considerado como uno que desciende al pozo;  
->  Me he convertido como una persona sin fuerza,
+>  Soy como una persona sin fuerza,
 
 ## Salmo 88:5
 
 > Abandonado entre los muertos,  
->  Como los muertos que yacen en la tumba,  
->  A quienes ya no recuerdas,  
->  Y están cortados de Tu mano.
+>  como los muertos que yacen en la tumba,  
+>  a quienes ya no recuerdas,  
+>  y están cortados de Tu mano.
 
 ---
 
 ## Salmo 88:6
 
 > Me has puesto en el pozo más profundo,  
->  En lugares oscuros, en las profundidades.
+>  en lugares oscuros, en las profundidades.
 
 ## Salmo 88:7
 
 > Tu ira ha pesado sobre mí,  
->  Y me has abrumado con todas Tus olas.
+>  y me has abrumado con todas Tus olas.
 
 >  Selah
 
 ## Salmo 88:8
 
-> Has alejado de mí a mis conocidos;  
->  Me has hecho objeto de repulsión para ellos;  
->  Estoy encerrado y no puedo salir.
+> Has apartado de mí a los que me conocían;  
+>  me has vuelto repugnante a sus ojos;  
+>  estoy atrapado y no tengo salida.
 
 ## Salmo 88:9
 
-> Mi ojo se ha consumido a causa de la miseria;
+> Tengo los ojos gastados de tanto sufrir;
 
 ---
 
->  He clamado a Ti cada día, Señor;  
->  He extendido mis manos hacia Ti.
+>  Señor, todos los días te llamo;  
+>  hacia Ti levanto mis manos.
 
 ## Salmo 88:10
 
@@ -82,12 +82,12 @@
 ## Salmo 88:13
 
 > Pero yo, Señor, he clamado a Ti por ayuda,  
->  Y por la mañana mi oración llega a Ti.
+>  y por la mañana mi oración llega a Ti.
 
 ## Salmo 88:14
 
-> Señor, ¿por qué apartas de mí Tu alma?  
->  ¿Por qué escondes Tu rostro de mí?
+> Señor, ¿por qué le das la espalda a mi alma?  
+>  ¿Por qué me ocultas Tu rostro?
 
 ---
 
@@ -104,7 +104,7 @@
 ## Salmo 88:17
 
 > Me han rodeado como agua todo el día;  
->  Me han cercado por completo.
+>  me han cercado por completo.
 
 ## Salmo 88:18
 

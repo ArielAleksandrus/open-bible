@@ -14,7 +14,7 @@ Pero para mí es de poca importancia que sea juzgado por vosotros, o por cualqui
 
 ## 1 Corintios 4:4
 
-Porque no soy consciente de nada en contra de mí mismo; sin embargo, esto no me justifica, sino que el que me juzga es el Señor.
+Porque mi conciencia no me acusa de nada; sin embargo, esto no me justifica, sino que el que me juzga es el Señor.
 
 ## 1 Corintios 4:5
 
@@ -26,7 +26,7 @@ Ahora bien, estas cosas, hermanos y hermanas, las he aplicado figuradamente a m�
 
 ## 1 Corintios 4:7
 
-Porque ¿quién te considera superior? ¿Y qué tienes que no hayas recibido? Pero si lo recibiste, ¿por qué te jactas como si no lo hubieras recibido?
+Porque ¿quién te ha hecho superior a los demás? ¿Y qué tienes que no se te haya dado? Y si se te ha dado, ¿por qué presumes como si lo hubieras conseguido tú solo?
 
 ## 1 Corintios 4:8
 
@@ -38,7 +38,7 @@ Porque, creo, Dios nos ha exhibido a nosotros, los apóstoles, al final, como de
 
 ## 1 Corintios 4:10
 
-Somos necios por causa de Cristo, pero vosotros sois sabios en Cristo; nosotros somos débiles, pero vosotros sois fuertes; vosotros sois honrados, pero nosotros somos sin honor.
+Somos necios por causa de Cristo, pero vosotros sois sabios en Cristo; nosotros somos débiles, pero vosotros sois fuertes; vosotros sois honrados, pero nosotros somos despreciados.
 
 ## 1 Corintios 4:11
 
@@ -46,7 +46,7 @@ Hasta este momento presente estamos hambrientos y sedientos, y estamos mal vesti
 
 ## 1 Corintios 4:12
 
-Y trabajamos, trabajando con nuestras propias manos; cuando somos insultados, bendecimos; cuando somos perseguidos, lo soportamos;
+Y nos fatigamos trabajando con nuestras propias manos; cuando somos insultados, bendecimos; cuando somos perseguidos, lo soportamos;
 
 ## 1 Corintios 4:13
 

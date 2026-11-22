@@ -2,8 +2,8 @@
 
 ## 1 Crónicas 12:1
 
-Estos son los que vinieron a David en Ziclague,  
- cuando aún estaba restringido por causa de Saúl, hijo de Quis;
+Estos son los que vinieron a David en Siclag,  
+ cuando aún tenía que esconderse de Saúl, hijo de Quis;
 
 >  y estaban entre los valientes que le ayudaron en la batalla.
 
@@ -30,7 +30,7 @@ El líder era Ahiezer, seguido por Joás,
 
 ## 1 Crónicas 12:4
 
-> e Ismaías el gibeonita, un valiente líder entre los treinta, y sobre ellos.  
+> e Ismaías el gabaonita, un valiente líder entre los treinta, y sobre ellos.  
 >  Luego vinieron Jeremías, Jahaziel, Johanán, Jozabad el gederatita,
 
 ---
@@ -66,7 +66,7 @@ De los gaditas vinieron a David en la fortaleza en el desierto hombres valientes
 
 ## 1 Crónicas 12:9
 
-> Ezer era el líder, Obadías le seguía, Eliab era el tercero,
+> Ezer era el líder, Abdías le seguía, Eliab era el tercero,
 
 ---
 
@@ -104,7 +104,7 @@ Estos hijos de Gad eran líderes en el ejército;
 
 ## 1 Crónicas 12:15
 
-Estos son los que cruzaron el Jordán en el primer mes cuando estaba desbordando todos sus márgenes,
+Estos son los que cruzaron el Jordán en el primer mes cuando se desbordaba por todas sus orillas,
 
 >  y ahuyentaron a todos los que estaban en los valles, al este y al oeste.
 
@@ -121,7 +121,7 @@ Entonces algunos de las tribus de Benjamín y Judá se unieron a David en la for
 David salió a su encuentro y les dijo,
 
 >  “Si venís a mí en paz para ayudarme, mi corazón se unirá con vosotros;  
->  pero si para traicionarme a mis enemigos, aunque no hay violencia en mis manos,  
+>  pero si es para entregarme a mis enemigos, aunque no hay violencia en mis manos,  
 >  que el Dios de nuestros padres lo vea y juzgue.”
 
 ---
@@ -151,7 +151,7 @@ De Manasés algunos desertaron a David cuando estaba a punto de ir a la batalla 
 
 ## 1 Crónicas 12:20
 
-Cuando fue a Ziclague, los que vinieron a él de Manasés fueron:
+Cuando fue a Siclag, los que vinieron a él de Manasés fueron:
 
 >  Adná, Jozabad, Jediael, Micael, Jozabad, Elihú y Ziletai,  
 >  capitanes de miles que pertenecían a Manasés.
@@ -162,7 +162,7 @@ Cuando fue a Ziclague, los que vinieron a él de Manasés fueron:
 
 Ayudaron a David contra la banda de merodeadores,
 
->  porque todos eran hombres valientes de valor y eran capitanes en el ejército.
+>  porque todos eran hombres valientes y eran capitanes en el ejército.
 
 ---
 
@@ -186,15 +186,15 @@ Ahora estos son los números de las divisiones preparadas para la guerra,
 
 Los hijos de Judá que llevaban escudo y lanza eran:
 
->  6,800, equipados para la guerra.
+>  6 800, equipados para la guerra.
 
 ---
 
 ## 1 Crónicas 12:25
 
-De los hijos de Simeón, hombres valientes de valor para la guerra:
+De los hijos de Simeón, hombres valientes para la guerra:
 
->  7,100.
+>  7 100.
 
 ---
 
@@ -202,15 +202,15 @@ De los hijos de Simeón, hombres valientes de valor para la guerra:
 
 De los hijos de Leví:
 
->  sumaban 4,600.
+>  sumaban 4 600.
 
 ---
 
 ## 1 Crónicas 12:27
 
-Jehoiada era el líder de la casa de Aarón,
+Joiada era el líder de la casa de Aarón,
 
->  y con él estaban 3,700.
+>  y con él estaban 3 700.
 
 ---
 
@@ -226,16 +226,16 @@ También Sadoc, un joven poderoso en valor,
 
 De los hijos de Benjamín, parientes de Saúl:
 
->  3,000;  
+>  3 000;  
 >  porque hasta ese momento la mayoría de ellos habían mantenido su lealtad a la casa de Saúl.
 
 ---
 
 ## 1 Crónicas 12:30
 
-De los hijos de Efraín, hombres valientes de valor, hombres famosos en las casas de sus padres:
+De los hijos de Efraín, hombres valientes, hombres famosos en las casas de sus padres:
 
->  20,800.
+>  20 800.
 
 ---
 
@@ -243,7 +243,7 @@ De los hijos de Efraín, hombres valientes de valor, hombres famosos en las casa
 
 De la media tribu de Manasés:
 
->  18,000, que fueron designados por nombre para venir y hacer rey a David.
+>  18 000, que fueron designados por nombre para venir y hacer rey a David.
 
 ---
 
@@ -260,7 +260,7 @@ De los hijos de Isacar, hombres que entendían los tiempos, con conocimiento de 
 
 De Zabulón, los que salieron a la batalla con todo tipo de armas de guerra, preparados para la batalla:
 
->  50,000, que podían formar en orden de batalla sin doble corazón.
+>  50 000, que podían formar en orden de batalla sin doble corazón.
 
 ---
 
@@ -268,8 +268,8 @@ De Zabulón, los que salieron a la batalla con todo tipo de armas de guerra, pre
 
 De Neftalí:
 
->  1,000 capitanes,  
->  y con ellos 37,000 con escudo y lanza.
+>  1 000 capitanes,  
+>  y con ellos 37 000 con escudo y lanza.
 
 ---
 
@@ -277,7 +277,7 @@ De Neftalí:
 
 De los danitas, que podían formar en orden de batalla:
 
->  28,600.
+>  28 600.
 
 ---
 
@@ -285,7 +285,7 @@ De los danitas, que podían formar en orden de batalla:
 
 De Aser, los que salieron para la guerra, que podían formar en orden de batalla:
 
->  40,000.
+>  40 000.
 
 ---
 
@@ -293,7 +293,7 @@ De Aser, los que salieron para la guerra, que podían formar en orden de batalla
 
 Del otro lado del Jordán, de los rubenitas, los gaditas y la media tribu de Manasés, con todo tipo de armas para la guerra:
 
->  120,000.
+>  120 000.
 
 ---
 
@@ -316,6 +316,6 @@ Estuvieron allí con David tres días, comiendo y bebiendo,
 ## 1 Crónicas 12:40
 
 Además, los que estaban cerca de ellos, incluso hasta Isacar, Zabulón y Neftalí,  
- trajeron comida en asnos, camellos, mulas y bueyes —grandes cantidades de harina, tortas de higos, tortas de pasas, vino, aceite, bueyes y ovejas.
+ trajeron comida en asnos, camellos, mulas y bueyes —grandes cantidades de harina, tortas de higos, tortas de pasas, vino, aceite, bueyes y ovejas—.
 
->  Había alegría en verdad en Israel—.
+>  Había gran alegría en Israel.

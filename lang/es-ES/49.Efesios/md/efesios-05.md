@@ -2,11 +2,11 @@
 
 ## Efesios 5:1
 
-Sed imitadores de Dios, por tanto, como hijos amados;
+Por eso, imitad a Dios, como hijos suyos muy queridos;
 
 ## Efesios 5:2
 
-y andad en amor, así como Cristo os amó y se entregó por nosotros como ofrenda y sacrificio fragante a Dios.
+y vivid con amor, así como Cristo os amó y se entregó por nosotros como ofrenda y sacrificio de olor agradable a Dios.
 
 ## Efesios 5:3
 
@@ -22,7 +22,7 @@ Porque de esto podéis estar seguros: ningún inmoral, impuro o avaro —tal per
 
 ## Efesios 5:6
 
-Que nadie os engañe con palabras vacías, porque por causa de tales cosas viene la ira de Dios sobre los desobedientes.
+Que nadie os engañe con palabras sin sentido, porque precisamente por estas cosas la ira de Dios cae sobre los que desobedecen.
 
 ## Efesios 5:7
 
@@ -30,7 +30,7 @@ Por tanto, evitad ser partícipes con ellos;
 
 ## Efesios 5:8
 
-porque en otro tiempo erais tinieblas, pero ahora sois luz en el Señor. Vivid como hijos de luz,
+porque antes vivíais en la oscuridad, pero ahora sois luz por estar unidos al Señor. Vivid como hijos de la luz,
 
 ## Efesios 5:9
 
@@ -42,7 +42,7 @@ y tratad de aprender lo que agrada al Señor.
 
 ## Efesios 5:11
 
-No participéis en las obras infructuosas de las tinieblas, sino más bien exponedlas;
+No toméis parte en las obras inútiles de la oscuridad; al contrario, sacadlas a la luz;
 
 ## Efesios 5:12
 
@@ -56,13 +56,13 @@ Pero todo lo que es expuesto por la luz se hace visible, porque todo lo que es i
 
 Por eso se dice:
 
->  “Despiértate, tú que duermes,  
->  y levántate de los muertos,  
+>  “Despierta, tú que duermes,  
+>  levántate de entre los muertos,  
 >  y la luz de Cristo brillará sobre ti.”
 
 ## Efesios 5:15
 
-Tened mucho cuidado, entonces, de cómo vivís —actuando sabiamente,—
+Tened mucho cuidado, entonces, de cómo vivís, actuando sabiamente,
 
 ## Efesios 5:16
 
@@ -74,19 +74,19 @@ Por tanto, no seáis insensatos, sino buscad entender cuál es la voluntad del S
 
 ## Efesios 5:18
 
-No os embriaguéis con vino, lo cual lleva a la disolución, sino sed llenos del Espíritu,
+No os emborrachéis con vino, que lleva al desenfreno; dejad más bien que el Espíritu os llene,
 
 ## Efesios 5:19
 
-hablando entre vosotros con salmos, himnos y cánticos espirituales, cantando y haciendo música de corazón al Señor,
+y animaos unos a otros con salmos, himnos y cantos espirituales, cantando y alabando al Señor de todo corazón,
 
 ## Efesios 5:20
 
-dando siempre gracias a Dios el Padre por todo, en el nombre de nuestro Señor Jesucristo.
+y dad siempre gracias a Dios el Padre por todo, en el nombre de nuestro Señor Jesucristo.
 
 ## Efesios 5:21
 
-Mostrad sumisión mutua por reverencia a Cristo.
+Someteos unos a otros por reverencia a Cristo.
 
 ## Efesios 5:22
 
@@ -106,11 +106,11 @@ Maridos, amad a vuestras esposas, así como Cristo amó a la iglesia y se ofreci
 
 ## Efesios 5:26
 
-para santificarla, limpiándola con el lavado del agua por la palabra,
+para hacerla santa, limpiándola con el agua del lavamiento por medio de la palabra,
 
 ## Efesios 5:27
 
-y para presentarla a sí mismo como una iglesia gloriosa, sin mancha, arruga ni ningún otro defecto, sino santa e intachable.
+y para presentársela a sí mismo como una iglesia llena de gloria, sin manchas, ni arrugas, ni ningún otro defecto, sino santa e intachable.
 
 ## Efesios 5:28
 
@@ -118,7 +118,7 @@ De la misma manera, los maridos deben amar a sus esposas como aman a sus propios
 
 ## Efesios 5:29
 
-Después de todo, nadie odia jamás su propio cuerpo, sino que lo alimenta y cuida, así como Cristo hace con la iglesia—
+Al fin y al cabo, nadie ha odiado nunca su propio cuerpo; al contrario, lo alimenta y lo cuida, así como Cristo lo hace con la iglesia,
 
 ## Efesios 5:30
 

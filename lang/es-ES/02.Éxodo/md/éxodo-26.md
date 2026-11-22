@@ -100,7 +100,7 @@ Cuélgalo con ganchos de oro en cuatro columnas de madera de acacia recubiertas 
 Cuelga el velo de los broches y coloca el arca de la ley del pacto detrás del velo. El velo servirá como separación entre el Lugar Santo y el Lugar Santísimo.
 
 ## Éxodo 26:34
-Coloca la cubierta del propiciatorio sobre el arca de la ley del pacto en el Lugar Santísimo.
+Coloca el propiciatorio sobre el arca de la ley del pacto en el Lugar Santísimo.
 
 ## Éxodo 26:35
 Coloca la mesa fuera del velo en el lado norte del tabernáculo y posiciona el candelabro frente a ella en el lado sur.

@@ -31,10 +31,10 @@ Entonces esta ciudad me traerá alegría, alabanza y honor ante todas las nacion
 “Esto es lo que dice el Señor: ‘En este lugar, del cual decís, “Es un desierto desolado, sin gente ni animales,” en las ciudades de Judá y en las calles de Jerusalén que están desiertas, sin gente ni animales, se volverán a escuchar
 
 ## Jeremías 33:11
-los sonidos de alegría y felicidad, las voces del novio y la novia, y las voces de aquellos que traen ofrendas de agradecimiento a la casa del Señor, diciendo, “Dad gracias al Señor Todopoderoso, porque el Señor es bueno; Su amor perdura para siempre.” Porque restauraré la fortuna de la tierra como antes,’ dice el Señor.
+los sonidos de alegría y felicidad, las voces del novio y la novia, y las voces de aquellos que traen ofrendas de acción de gracias a la casa del Señor, diciendo, “Dad gracias al Señor de los ejércitos, porque el Señor es bueno; Su amor perdura para siempre.” Porque restauraré la fortuna de la tierra como antes,’ dice el Señor.
 
 ## Jeremías 33:12
-“Esto es lo que dice el Señor Todopoderoso: ‘En este lugar, que es desolado y sin gente ni animales, en todas sus ciudades habrá nuevamente pastos para que los pastores descansen sus rebaños.
+“Esto es lo que dice el Señor de los ejércitos: ‘En este lugar, que es desolado y sin gente ni animales, en todas sus ciudades habrá nuevamente pastos para que los pastores descansen sus rebaños.
 
 ## Jeremías 33:13
 En las ciudades de la región montañosa, las colinas occidentales y el Néguev, en el territorio de Benjamín, en las aldeas alrededor de Jerusalén y en las ciudades de Judá, los rebaños volverán a pasar bajo el cuidado de quien los cuenta,’ dice el Señor.
@@ -43,7 +43,7 @@ En las ciudades de la región montañosa, las colinas occidentales y el Néguev,
 ‘Viene el tiempo,’ declara el Señor, ‘cuando cumpliré la buena promesa que hice al pueblo de Israel y Judá.
 
 ## Jeremías 33:15
-En esos días y en ese tiempo, haré que surja un Retoño justo de la línea de David; Él ejecutará justicia y rectitud en la tierra.
+En esos días y en ese tiempo, haré que surja un Renuevo justo de la línea de David; Él ejecutará justicia y rectitud en la tierra.
 
 ## Jeremías 33:16
 En esos días Judá será salvada y Jerusalén vivirá segura. Este es el nombre por el cual será llamada: El Señor Nuestra Justicia.’
@@ -52,7 +52,7 @@ En esos días Judá será salvada y Jerusalén vivirá segura. Este es el nombre
 Porque esto es lo que dice el Señor: ‘David nunca carecerá de un hombre que se siente en el trono de la casa de Israel,
 
 ## Jeremías 33:18
-ni los sacerdotes levitas carecerán de un hombre que esté delante de Mí para ofrecer holocaustos, quemar ofrendas de grano y presentar sacrificios continuamente.’”
+ni los sacerdotes levitas carecerán de un hombre que esté delante de Mí para ofrecer holocaustos, quemar ofrendas de cereal y presentar sacrificios continuamente.’”
 
 ## Jeremías 33:19
 El mensaje del Señor vino a Jeremías, diciendo,

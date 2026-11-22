@@ -2,31 +2,31 @@
 
 ## Isaías 3:1
 
-He aquí que el Señor, el Dios de los ejércitos, está a punto de retirar de Jerusalén y de Judá tanto el sustento como el apoyo: toda provisión de pan y toda provisión de agua;
+Mirad: el Señor, el Dios de los ejércitos, está a punto de quitarle a Jerusalén y a Judá todo aquello en que se apoyan: toda la reserva de pan y toda la reserva de agua;
 
 ## Isaías 3:2
 
-El valiente y el guerrero, el juez y el profeta, el adivino y el anciano,
+el hombre poderoso y el soldado, el juez y el profeta, el adivino y el anciano,
 
 ## Isaías 3:3
 
-El capitán de cincuenta y el hombre de distinción, el consejero y el artesano hábil, y el experto encantador.
+el jefe de cincuenta y el hombre importante, el consejero y el artesano habilidoso, y el experto en hechizos.
 
 ## Isaías 3:4
 
-"Nombraré a simples muchachos como sus líderes, y niños indisciplinados los gobernarán."
+“Nombraré a simples muchachos como sus líderes, y niños indisciplinados los gobernarán.”
 
 ## Isaías 3:5
 
-Y el pueblo será oprimido, cada uno por otro y cada uno por su vecino; el joven se levantará contra el anciano, y el humilde contra el honrado.
+La gente se maltratará entre sí, cada uno a su vecino; los jóvenes faltarán al respeto a los viejos, y los humildes a los que tienen honra.
 
 ## Isaías 3:6
 
-Cuando un hombre se apodere de su hermano en la casa de su padre, diciendo: "Tienes un manto, serás nuestro líder; ¡hazte cargo de este montón de ruinas!"
+Cuando un hombre se apodere de su hermano en la casa de su padre, diciendo: “Tienes un manto, serás nuestro líder; ¡hazte cargo de este montón de ruinas!”
 
 ## Isaías 3:7
 
-Ese día protestará, diciendo: "No seré vuestro sanador, porque en mi casa no hay ni pan ni manto; no me nombréis líder del pueblo."
+Ese día protestará, diciendo: “No seré vuestro sanador, porque en mi casa no hay ni pan ni manto; no me nombréis líder del pueblo.”
 
 ## Isaías 3:8
 
@@ -38,11 +38,11 @@ La expresión de sus rostros testifica contra ellos; exhiben su pecado como Sodo
 
 ## Isaías 3:10
 
-Decid a los justos que les irá bien, porque disfrutarán del fruto de sus acciones.
+Decidles a los justos que todo les irá bien, porque disfrutarán de lo que han hecho.
 
 ## Isaías 3:11
 
-¡Ay de los malvados! Les irá mal, porque lo que sus manos han hecho se les hará a ellos.
+¡Ay del malvado! Todo le irá mal, porque recibirá lo mismo que ha hecho.
 
 ## Isaías 3:12
 
@@ -56,21 +56,21 @@ El Señor toma Su posición para contender, y se levanta para juzgar al pueblo.
 
 ## Isaías 3:14
 
-El Señor entra en juicio con los ancianos y líderes de Su pueblo: "Sois vosotros quienes habéis devastado mi viña; los despojos de los pobres están en vuestras casas.
+El Señor entra en juicio con los ancianos y líderes de Su pueblo: “Sois vosotros quienes habéis devastado mi viña; los despojos de los pobres están en vuestras casas.
 
 ## Isaías 3:15
 
-¿Qué queréis decir con aplastar a Mi pueblo y moler las caras de los pobres?" declara el Señor, el Dios de los ejércitos.
+¿Qué pretendéis al aplastar a mi pueblo y moler el rostro de los pobres?” declara el Señor, el Dios de los ejércitos.
 
 ---
 
 ## Isaías 3:16
 
-Además, el Señor dice: "Porque las hijas de Sion son altivas, y caminan con cuellos erguidos y ojos seductores, andando con pasos cortos y haciendo tintinear sus tobilleras,
+Además, el Señor dice: “Porque las hijas de Sion son altivas, y caminan con cuellos erguidos y ojos seductores, andando con pasos cortos y haciendo tintinear sus tobilleras,
 
 ## Isaías 3:17
 
-El Señor afligirá los cueros cabelludos de las hijas de Sion con llagas, y el Señor dejará sus frentes al descubierto."
+El Señor afligirá los cueros cabelludos de las hijas de Sion con llagas, y el Señor dejará sus frentes al descubierto.”
 
 ## Isaías 3:18
 
@@ -106,4 +106,4 @@ Tus hombres encontrarán su destino por la espada, y tus guerreros caerán en ba
 
 ## Isaías 3:26
 
-Y sus puertas lamentarán y llorarán, y ella se sentará desolada en el suelo.
+Y sus puertas se lamentarán y llorarán, y ella se sentará desolada en el suelo.

@@ -11,17 +11,17 @@
 ## Salmo 8:2
 
 > De la boca de los niños y de los que maman, has ordenado la fortaleza A causa de Tus adversarios,  
->  Para silenciar al enemigo y al vengador.
+>  para silenciar al enemigo y al vengador.
 
 ## Salmo 8:3
 
 > Cuando contemplo Tus cielos, obra de Tus manos,  
->  La luna y las estrellas, que Tú has colocado,
+>  la luna y las estrellas, que Tú has colocado,
 
 ## Salmo 8:4
 
 > ¿Qué es el hombre para que de él te acuerdes,  
->  Y el hijo del hombre para que lo cuides?
+>  y el hijo del hombre para que lo cuides?
 
 ---
 
@@ -33,17 +33,17 @@
 ## Salmo 8:6
 
 > Le has dado dominio sobre las obras de Tus manos;  
->  Todo lo has puesto bajo sus pies,
+>  todo lo has puesto bajo sus pies,
 
 ## Salmo 8:7
 
 > Todas las ovejas y los bueyes,  
->  Y también las bestias del campo,
+>  y también las bestias del campo,
 
 ## Salmo 8:8
 
 > Las aves del cielo, y los peces del mar,  
->  Todo lo que recorre los senderos de los mares.
+>  todo lo que recorre los senderos de los mares.
 
 ---
 

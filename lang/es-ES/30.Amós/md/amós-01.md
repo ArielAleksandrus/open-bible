@@ -8,7 +8,7 @@ Las palabras de Amós, que estaba entre los pastores de Tecoa, la visión que vi
 
 Y dijo:
 
->  “El Señor ruge desde Sión y truena desde Jerusalén;
+>  “El Señor ruge desde Sion y truena desde Jerusalén;
 >  los pastizales de los pastores se lamentan,
 >  y la cumbre del Carmelo se seca.
 > ”
@@ -55,7 +55,7 @@ Así dice el Señor:
 >  y el remanente de los filisteos perecerá,
 > ”
 
- dice el Señor Soberano.
+ dice el Señor Dios.
 
 ## Amós 1:9
 

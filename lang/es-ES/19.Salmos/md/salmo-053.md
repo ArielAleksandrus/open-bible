@@ -4,21 +4,21 @@
 
 ## Salmo 53:1
 
-> Dice el necio en su corazón: “No hay Dios.”  
->  Se han corrompido, y han cometido abominable injusticia;  
->  No hay quien haga el bien.
+> El necio piensa dentro de sí: “No hay Dios.  
+> ” Son gente corrupta, han cometido injusticias detestables;  
+>  nadie hace lo bueno.
 
 ---
 
 ## Salmo 53:2
 
-> Dios observó desde el cielo sobre la humanidad Para ver si hay alguien que posea entendimiento,  
->  Que busque a Dios.
+> Desde el cielo Dios observó a la humanidad Para ver si quedaba alguien con entendimiento,  
+>  alguien que busque a Dios.
 
 ## Salmo 53:3
 
-> Todos se han desviado; juntos se han corrompido;  
->  No hay quien haga el bien, ni siquiera uno.
+> Todos se han apartado; todos a la vez se han echado a perder;  
+>  nadie hace lo bueno, ni uno solo.
 
 ---
 
@@ -31,9 +31,9 @@
 
 ## Salmo 53:5
 
-> Estaban en gran temor donde no había causa para temer;  
->  Porque Dios dispersó los huesos de los que acampaban contra ti;  
->  Los pusiste en vergüenza, porque Dios los había rechazado.
+> Se llenaron de terror donde no había nada que temer;  
+>  porque Dios ha esparcido los huesos de los que te sitiaban;  
+>  tú los dejaste en vergüenza, porque Dios los había rechazado.
 
 ---
 

@@ -70,7 +70,7 @@ Hizo lo malo ante los ojos del Señor su Dios;
 ## 2 Crónicas 36:13
 
 También desafió al rey Nabucodonosor, quien le había hecho jurar lealtad por Dios.  
- Pero endureció su cerviz y obstinó su corazón contra el regreso al Señor Dios de Israel.
+ Pero endureció su cerviz y obstinó su corazón para no volverse al Señor Dios de Israel.
 
 ## 2 Crónicas 36:14
 
@@ -82,20 +82,20 @@ Además, todos los oficiales de los sacerdotes y el pueblo fueron sumamente infi
 
 ## 2 Crónicas 36:15
 
-Y el Señor, el Dios de sus padres, les envió palabra una y otra vez por medio de Sus mensajeros,  
- porque tuvo compasión de Su pueblo y de Su morada;
+Una y otra vez el Señor, el Dios de sus padres, les mandó aviso por medio de Sus mensajeros,  
+ porque sentía compasión de Su pueblo y del lugar donde Él habitaba;
 
 ## 2 Crónicas 36:16
 
-pero ellos persistentemente se burlaron de los mensajeros de Dios, despreciaron Sus palabras y ridiculizaron a Sus profetas,  
- hasta que la ira del Señor se levantó contra Su pueblo, hasta que no hubo remedio.
+pero ellos no dejaban de burlarse de los mensajeros de Dios, despreciaban Sus palabras y se reían de Sus profetas,  
+ hasta que la ira del Señor se encendió contra Su pueblo y ya no hubo remedio.
 
 ## 2 Crónicas 36:17
 
 Por lo tanto, Él trajo contra ellos al rey de los caldeos,  
  quien mató a sus jóvenes con la espada en la casa de su santuario,  
  y no tuvo compasión de joven ni de doncella, anciano ni enfermo;  
- Él los entregó todos en sus manos.
+ Él los entregó a todos en sus manos.
 
 ## 2 Crónicas 36:18
 

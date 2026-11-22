@@ -50,7 +50,7 @@ Cruzasteis el Jordán y llegasteis a Jericó. Los ciudadanos de Jericó lucharon
 
 ## Josué 24:12
 
-Envié el tábano delante de vosotros, que los expulsó de delante de vosotros, incluidos los dos reyes amorreos. No fue con vuestra espada ni con vuestro arco.
+Envié la avispa delante de vosotros, que los expulsó de delante de vosotros, incluidos los dos reyes amorreos. No fue con vuestra espada ni con vuestro arco.
 
 ## Josué 24:13
 

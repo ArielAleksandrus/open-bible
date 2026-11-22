@@ -122,7 +122,7 @@ En verdad os digo que a las personas se les pueden perdonar todos sus pecados y 
 
 ## Marcos 3:29
 
-pero quien hable contra el Espíritu Santo nunca será perdonado; son culpables de un pecado eterno.”
+pero quien hable contra el Espíritu Santo nunca será perdonado; es culpable de un pecado eterno.”
 
 ## Marcos 3:30
 
@@ -140,7 +140,7 @@ Una multitud estaba sentada alrededor de Él, y le dijeron: “Tu madre y tus he
 
 ## Marcos 3:33
 
-“¿Quiénes son considerados mi madre y mis hermanos?” preguntó.
+“¿Quiénes son mi madre y mis hermanos?” preguntó.
 
 ## Marcos 3:34
 

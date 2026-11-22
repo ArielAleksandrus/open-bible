@@ -2,15 +2,15 @@
 
 ## Isaías 6:1
 
-En el año en que murió el rey Uzías, vi al Señor sentado en un trono, alto y exaltado, y el borde de su manto llenaba el templo.
+El año en que murió el rey Uzías vi al Señor sentado en un trono muy alto y elevado, y la cola de su manto llenaba el templo.
 
 ## Isaías 6:2
 
-Por encima de Él estaban los serafines, cada uno con seis alas: con dos cubrían sus rostros, con dos cubrían sus pies, y con dos volaban.
+Por encima de Él había serafines, y cada uno tenía seis alas: con dos se tapaban la cara, con dos se tapaban los pies y con dos volaban.
 
 ## Isaías 6:3
 
-Y se llamaban el uno al otro, diciendo: “Santo, santo, santo es el Señor de los ejércitos; toda la tierra está llena de su gloria.”
+Y se decían a gritos unos a otros: “Santo, santo, santo es el Señor de los ejércitos; su gloria llena toda la tierra.”
 
 ## Isaías 6:4
 
@@ -18,19 +18,19 @@ Al sonido de sus voces, los cimientos de los umbrales temblaron, y el templo se 
 
 ## Isaías 6:5
 
-Entonces dije: “¡Ay de mí, porque estoy perdido! Porque soy un hombre de labios impuros, y habito en medio de un pueblo de labios impuros; porque mis ojos han visto al Rey, el Señor de los ejércitos.”
+Entonces dije: “¡Ay de mí, estoy perdido! Mis labios son impuros, y vivo en medio de un pueblo de labios impuros; ¡y he visto con mis propios ojos al Rey, al Señor de los ejércitos!”
 
 ## Isaías 6:6
 
-Entonces uno de los serafines voló hacia mí con un carbón encendido, que había tomado con tenazas del altar.
+Entonces uno de los serafines vino volando hacia mí con una brasa que había sacado del altar con unas tenazas.
 
 ## Isaías 6:7
 
-Tocó mi boca con él y dijo: “Mira, esto ha tocado tus labios; tu culpa ha sido quitada y tu pecado ha sido expiado.”
+Con ella me tocó la boca y me dijo: “Mira, esto ha tocado tus labios; ya no tienes culpa y tu pecado queda perdonado.”
 
 ## Isaías 6:8
 
-Entonces oí la voz del Señor que decía: “¿A quién enviaré, y quién irá por nosotros?” Y yo dije: “Aquí estoy. ¡Envíame a mí!”
+Después oí la voz del Señor, que decía: “¿A quién voy a enviar? ¿Quién irá de parte nuestra?” Y yo le respondí: “Aquí estoy. ¡Mándame a mí!”
 
 ## Isaías 6:9
 
@@ -38,11 +38,11 @@ Entonces oí la voz del Señor que decía: “¿A quién enviaré, y quién irá
 
 ## Isaías 6:10
 
-Haz insensible el corazón de este pueblo, haz pesados sus oídos, y cierra sus ojos; no sea que vean con sus ojos, oigan con sus oídos, entiendan con su corazón, y se conviertan y sean sanados.”
+Vuelve duro el corazón de este pueblo, tápales los oídos y ciérrales los ojos; que no vean con sus ojos ni oigan con sus oídos ni entiendan con su corazón, no sea que se vuelvan a Mí y sean sanados.”
 
 ## Isaías 6:11
 
-Entonces pregunté: “¿Hasta cuándo, Señor?” Y Él respondió: “Hasta que las ciudades queden desoladas y sin habitantes, las casas estén desiertas y los campos arruinados y devastados,
+Entonces le pregunté: “¿Hasta cuándo, Señor?” Y Él me respondió: “Hasta que las ciudades queden en ruinas y sin nadie que viva en ellas, hasta que las casas queden vacías y los campos, destrozados y arrasados,
 
 ## Isaías 6:12
 

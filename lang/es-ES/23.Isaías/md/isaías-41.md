@@ -2,7 +2,7 @@
 
 ## Isaías 41:1
 
-“Guarden silencio ante mí, costas, y que las naciones renueven sus fuerzas. Que se acerquen y hablen; reunámonos para el juicio.
+“Guardad silencio ante mí, costas, y que las naciones renueven sus fuerzas. Que se acerquen y hablen; reunámonos para el juicio.
 
 ## Isaías 41:2
 
@@ -26,19 +26,19 @@ Cada uno ayuda a su compañero y dice a su hermano: “¡Sé fuerte!”
 
 ## Isaías 41:7
 
-El artesano anima al orfebre, y el que alisa con el martillo anima al que golpea el yunque. Dicen del soldado, “Está bien.” Lo aseguran con clavos para que no se tambalee.
+El artesano anima al orfebre, y el que alisa con el martillo anima al que golpea el yunque. Dicen de la soldadura: “Está bien.” Lo aseguran con clavos para que no se tambalee.
 
 ## Isaías 41:8
 
-“Pero tú, Israel, mi siervo, Jacob a quien he escogido, descendientes de Abraham mi amigo,
+“Pero tú, Israel, mi siervo, Jacob, a quien yo elegí, descendiente de mi amigo Abraham,
 
 ## Isaías 41:9
 
-te tomé de los confines de la tierra y te llamé de sus partes más remotas. Te dije: ‘Tú eres mi siervo; te he escogido y no te he rechazado.
+yo te traje desde los extremos de la tierra y te llamé desde sus rincones más lejanos. Te dije: ‘Tú eres mi siervo; te he elegido y no te he rechazado.
 
 ## Isaías 41:10
 
-No temas, porque yo estoy contigo; no te desalientes, porque yo soy tu Dios. Te fortaleceré y te ayudaré; te sostendré con mi mano derecha justa.
+No tengas miedo, que yo estoy contigo; no te angusties, que yo soy tu Dios. Te daré fuerzas y te ayudaré; te sostendré con mi mano derecha, que hace justicia.
 
 ## Isaías 41:11
 
@@ -50,11 +50,11 @@ Aunque busques a tus adversarios, no los encontrarás. Los que guerrean contra t
 
 ## Isaías 41:13
 
-Porque yo soy el Señor tu Dios, que sostiene tu mano derecha, y te digo: ‘No temas; yo te ayudaré.’
+Porque yo soy el Señor tu Dios, que te agarra de la mano derecha y te dice: ‘No tengas miedo; yo te ayudo.’
 
 ## Isaías 41:14
 
-No temas, gusano Jacob, pequeño Israel, porque yo mismo te ayudaré,” declara el Señor, tu Redentor, el Santo de Israel.
+No tengas miedo, Jacob, pobre gusano, pequeño Israel, porque yo mismo te ayudaré,” declara el Señor, tu Redentor, el Santo de Israel.
 
 ## Isaías 41:15
 
@@ -70,7 +70,7 @@ Los aventarás, y el viento se los llevará, y una tormenta los dispersará. Per
 
 ## Isaías 41:18
 
-Haré que fluyan ríos en las alturas desiertas, y manantiales en los valles. Convertiré el desierto en estanques de agua, y la tierra seca en fuentes de agua.
+Haré brotar ríos en las colinas peladas y manantiales en medio de los valles. Convertiré el desierto en lagunas y la tierra seca en fuentes de agua.
 
 ## Isaías 41:19
 
@@ -82,19 +82,19 @@ para que la gente observe y reconozca, medite y comprenda, que la mano del Seño
 
 ## Isaías 41:21
 
-“Presenten su caso,” dice el Señor. “Presenten sus argumentos,” dice el Rey de Jacob.
+“Presentad vuestro caso,” dice el Señor. “Presentad vuestros argumentos,” dice el Rey de Jacob.
 
 ## Isaías 41:22
 
-Que los traigan y nos declaren lo que va a suceder. Dígannos qué fueron las cosas anteriores, para que las consideremos y sepamos su desenlace. O declárennos las cosas por venir,
+Que los traigan y nos declaren lo que va a suceder. Decidnos qué fueron las cosas anteriores, para que las consideremos y sepamos su desenlace. O declaradnos las cosas por venir,
 
 ## Isaías 41:23
 
-revelen lo que el futuro depara, para que sepamos que son dioses. Hagan algo, ya sea bueno o malo, para que nos asombremos y nos llenemos de temor.
+revelad lo que el futuro depara, para que sepamos que sois dioses. Haced algo, ya sea bueno o malo, para que nos asombremos y nos llenemos de temor.
 
 ## Isaías 41:24
 
-Pero ustedes son menos que nada, y sus obras son completamente inútiles; quien los elige es una abominación.
+Pero vosotros sois menos que nada, y vuestras obras son completamente inútiles; quien os elige es una abominación.
 
 ## Isaías 41:25
 
@@ -102,7 +102,7 @@ Pero ustedes son menos que nada, y sus obras son completamente inútiles; quien 
 
 ## Isaías 41:26
 
-¿Quién ha declarado esto desde el principio, para que lo sepamos, o desde tiempos antiguos, para que digamos, ‘Él tiene razón’? Nadie lo declaró, nadie lo proclamó, nadie oyó palabras de ustedes.
+¿Quién ha declarado esto desde el principio, para que lo sepamos, o desde tiempos antiguos, para que digamos, ‘Él tiene razón’? Nadie lo declaró, nadie lo proclamó, nadie oyó palabras de vosotros.
 
 ## Isaías 41:27
 
@@ -114,4 +114,4 @@ Pero cuando miro, no hay nadie, ningún consejero entre ellos, que, si pregunto,
 
 ## Isaías 41:29
 
-¡Miren, todos son engañosos! Sus obras no valen nada; sus imágenes son solo viento y confusión.
+¡Mirad, todos son engañosos! Sus obras no valen nada; sus imágenes son solo viento y confusión.

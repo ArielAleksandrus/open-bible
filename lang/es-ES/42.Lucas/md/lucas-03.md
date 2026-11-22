@@ -23,9 +23,9 @@ Como está escrito en el libro de las palabras del profeta Isaías:
 ## Lucas 3:5
 
 > Todo valle será rellenado,
->  y todo monte y collado rebajado.
->  lo torcido se enderezará,
->  y los caminos ásperos se allanarán.
+>  todo monte y toda colina serán aplanados.
+>  Los caminos torcidos quedarán rectos,
+>  y los ásperos, lisos.
 
 ## Lucas 3:6
 
@@ -35,15 +35,15 @@ Como está escrito en el libro de las palabras del profeta Isaías:
 
 ## Lucas 3:7
 
-Juan dijo a las multitudes que salían para ser bautizadas por él: “¡Generación de víboras! ¿Quién os enseñó a huir de la ira venidera?
+Juan dijo a las multitudes que salían para que él las bautizara: “¡Raza de víboras! ¿Quién os advirtió que huyerais de la ira que viene?
 
 ## Lucas 3:8
 
-Producid frutos dignos de arrepentimiento. Y no comencéis a decir entre vosotros, ‘Tenemos a Abraham por padre.’ Porque os digo que Dios puede levantar hijos a Abraham de estas piedras.
+Dad frutos que estén de acuerdo con el arrepentimiento. Y no empecéis a deciros: ‘Nuestro padre es Abraham.’ Porque os digo que Dios puede sacar hijos para Abraham de estas piedras.
 
 ## Lucas 3:9
 
-Ya el hacha está puesta a la raíz de los árboles, y todo árbol que no da buen fruto será cortado y echado en el fuego.”
+El hacha ya está junto a la raíz de los árboles, y todo árbol que no dé buen fruto será cortado y arrojado al fuego.”
 
 ---
 
@@ -53,7 +53,7 @@ La multitud preguntó, “¿Qué debemos hacer?”
 
 ## Lucas 3:11
 
-Juan respondió, “El que tiene dos túnicas, dé al que no tiene; y el que tiene comida, haga lo mismo.”
+Juan respondió, “Quien tenga dos túnicas, que comparta con el que no tiene ninguna; y quien tenga comida, que haga lo mismo.”
 
 ## Lucas 3:12
 

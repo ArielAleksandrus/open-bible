@@ -89,8 +89,8 @@ Entonces Elihú continuó y habló:
 
 ## Job 34:18
 
-> ¿No es Él quien declara a los reyes, ‘No valéis nada,’
->  y a los nobles, ‘Sois corruptos,’
+> ¿No es Él quien declara a los reyes: ‘No valéis nada,’
+>  y a los nobles: ‘Sois corruptos,’
 
 ## Job 34:19
 
@@ -146,7 +146,7 @@ Entonces Elihú continuó y habló:
 
 > Cuando Él permanece en silencio, ¿quién puede condenarlo?
 >  Si esconde su rostro, ¿quién puede verlo?
->  Él está sobre tanto la nación como el individuo,
+>  Él está por igual sobre la nación y sobre el individuo,
 
 ## Job 34:30
 
@@ -156,7 +156,7 @@ Entonces Elihú continuó y habló:
 
 ## Job 34:31
 
-> “Porque, ¿ha dicho alguien a Dios,
+> “Porque, ¿ha dicho alguien a Dios:
 >  ‘He soportado el castigo; no ofenderé más;
 
 ## Job 34:32
@@ -175,7 +175,7 @@ Entonces Elihú continuó y habló:
 ## Job 34:34
 
 > Los hombres entendidos me dirán,
->  y un hombre sabio que me escuche dirá,
+>  y un hombre sabio que me escuche dirá:
 
 ## Job 34:35
 
@@ -190,5 +190,5 @@ Entonces Elihú continuó y habló:
 ## Job 34:37
 
 > Porque añade rebelión a su pecado;
->  aplaude entre nosotros y aumenta sus palabras contra Dios.
+>  bate palmas con burla entre nosotros y aumenta sus palabras contra Dios.
 > ”

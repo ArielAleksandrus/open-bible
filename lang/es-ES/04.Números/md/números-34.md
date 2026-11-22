@@ -14,7 +14,7 @@ El Señor habló a Moisés, diciendo estas palabras,
 
 ## Números 34:4
 
-cruzando al sur de la subida de Acrabim, continuará hasta Zin, y pasará al sur de Cades Barnea. Luego llegará a Hazar Addar y continuará hasta Azmón,
+cruzando al sur de la subida de Acrabim, continuará hasta Zin, y pasará al sur de Cades-barnea. Luego llegará a Hazar Addar y continuará hasta Azmón,
 
 ## Números 34:5
 
@@ -46,7 +46,7 @@ El límite bajará desde Sefam hasta Riblá al este de Ain, y continuará a lo l
 
 ## Números 34:12
 
-Luego el límite bajará a lo largo del Jordán y terminará en el Mar Salado. “‘Esta será vuestra tierra, con sus límites por todos lados.’”
+Luego el límite bajará a lo largo del Jordán y terminará en el Mar Salado. Esta será vuestra tierra, con sus límites por todos lados.’”
 
 ## Números 34:13
 

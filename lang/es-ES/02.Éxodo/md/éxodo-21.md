@@ -16,7 +16,7 @@ Si su amo le proporciona una esposa y ella le da hijos o hijas, la esposa y sus 
 Pero si el siervo declara: ‘Tengo afecto por mi amo, mi esposa y mis hijos; no me iré como hombre libre,’
 
 ## Éxodo 21:6
-entonces su amo lo llevará ante Dios. Lo llevará a la puerta o al poste de la puerta y le perforará la oreja con un punzón, y lo servirá permanentemente.
+entonces su amo lo llevará ante Dios. Lo llevará a la puerta o al poste de la puerta y le perforará la oreja con un punzón, y le servirá para siempre.
 
 ## Éxodo 21:7
 “Si un hombre vende a su hija como sierva, ella no se irá libre como lo hacen los siervos varones.

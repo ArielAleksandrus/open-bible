@@ -16,7 +16,7 @@ Zofar el naamatita respondió:
 
 ## Job 11:4
 
-> Tú afirmas, ‘Mi doctrina es pura,
+> Tú afirmas: ‘Mi doctrina es pura,
 >  y soy limpio a tus ojos.’
 
 ## Job 11:5
@@ -38,8 +38,8 @@ Zofar el naamatita respondió:
 
 ## Job 11:8
 
-> Son más altos que los cielos —¿qué puedes lograr?
->  Son más profundos que la tumba— ¿qué puedes entender?
+> Son más altos que los cielos: ¿qué puedes lograr?
+>  Son más profundos que el Seol: ¿qué puedes entender?
 
 ## Job 11:9
 
@@ -100,5 +100,5 @@ Zofar el naamatita respondió:
 ## Job 11:20
 
 > Pero los ojos de los malvados fallarán,
->  y la escapatoria les eludirá;
+>  y no tendrán escapatoria;
 >  su esperanza será exhalar el último suspiro.”

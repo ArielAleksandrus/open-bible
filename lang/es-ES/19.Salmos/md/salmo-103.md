@@ -4,121 +4,121 @@
 
 ## Salmo 103:1
 
-> Bendice, alma mía, al Señor,  
->  Y bendiga todo mi ser su santo nombre.
+> Alma mía, alaba al Señor;  
+>  que todo lo que hay dentro de mí alabe su santo nombre.
 
 ## Salmo 103:2
 
-> Alaba, alma mía, al Señor,  
->  Y no olvides ninguno de sus beneficios;
+> Alma mía, alaba al Señor,  
+>  y acuérdate de todo el bien que te ha hecho;
 
 ## Salmo 103:3
 
-> Él es quien perdona todas tus iniquidades,  
->  Quien sana todas tus dolencias;
+> Él perdona todas tus culpas,  
+>  Él cura todas tus enfermedades;
 
 ## Salmo 103:4
 
-> Quien rescata del hoyo tu vida,  
->  Quien te corona de favores y misericordias;
+> Él rescata tu vida de la fosa,  
+>  Él te llena de favor y de compasión como de una corona;
 
 ## Salmo 103:5
 
-> Quien sacia de bien tu boca,  
->  De modo que te rejuvenezcas como el águila.
+> Él colma tu vida de cosas buenas,  
+>  y así te renueva la juventud, como al águila.
 
 ---
 
 ## Salmo 103:6
 
-> El Señor hace justicia Y derecho a todos los que padecen violencia.
+> El Señor actúa con rectitud y hace justicia a todos los oprimidos.
 
 ---
 
 ## Salmo 103:7
 
-> Dio a conocer sus caminos a Moisés,  
->  Sus obras a los hijos de Israel.
+> A Moisés le enseñó sus caminos,  
+>  y a los israelitas sus obras.
 
 ## Salmo 103:8
 
-> Misericordioso y clemente es el Señor,  
->  Lento para la ira y grande en misericordia.
+> El Señor es compasivo y bondadoso;  
+>  tarda en enojarse y está lleno de misericordia.
 
 ## Salmo 103:9
 
-> No contenderá para siempre,  
->  Ni para siempre guardará el enojo.
+> No vive acusándonos,  
+>  ni guarda su enojo para siempre.
 
 ## Salmo 103:10
 
-> No ha hecho con nosotros conforme a nuestras iniquidades,  
->  Ni nos ha pagado conforme a nuestros pecados.
+> No nos ha tratado como merecen nuestros pecados,  
+>  ni nos ha hecho pagar lo que valen nuestras culpas.
 
 ## Salmo 103:11
 
-> Porque como la altura de los cielos sobre la tierra,  
->  Así engrandeció su misericordia sobre los que le temen.
+> Porque tan alto como está el cielo sobre la tierra,  
+>  así de grande es su misericordia con los que le temen.
 
 ## Salmo 103:12
 
-> Cuanto está lejos el oriente del occidente,  
->  Hizo alejar de nosotros nuestras transgresiones.
+> Tan lejos como está el este del oeste,  
+>  así de lejos ha echado de nosotros nuestras rebeldías.
 
 ---
 
 ## Salmo 103:13
 
-> Como el padre se compadece de los hijos,  
->  Se compadece el Señor de los que le temen.
+> Así como un padre siente compasión por sus hijos,  
+>  el Señor siente compasión por los que le temen.
 
 ## Salmo 103:14
 
-> Porque él conoce nuestra condición;  
->  Se acuerda de que somos polvo.
+> Porque él sabe de qué estamos hechos;  
+>  se acuerda de que no somos más que polvo.
 
 ## Salmo 103:15
 
-> El hombre, como la hierba son sus días;  
->  Florece como la flor del campo.
+> La vida del ser humano es como la hierba;  
+>  brota como una flor silvestre.
 
 ## Salmo 103:16
 
-> Que pasó el viento por ella, y pereció,  
->  Y su lugar no la conocerá más.
+> Pasa el viento sobre ella, y ya no existe,  
+>  y ni el lugar donde estuvo se acuerda de ella.
 
 ## Salmo 103:17
 
-> Mas la misericordia del Señor es desde la eternidad y hasta la eternidad Sobre los que le temen,  
->  Y su justicia sobre los hijos de los hijos,
+> Pero la misericordia del Señor dura desde siempre y para siempre sobre los que le temen,  
+>  y su justicia alcanza a los hijos de sus hijos,
 
 ## Salmo 103:18
 
-> Sobre los que guardan su pacto Y se acuerdan de sus mandamientos para ponerlos por obra.
+> a los que cumplen su pacto y se acuerdan de obedecer sus mandamientos.
 
 ---
 
 ## Salmo 103:19
 
-> El Señor estableció en los cielos su trono,  
->  Y su reino domina sobre todos.
+> El Señor ha puesto su trono en el cielo,  
+>  y su reino gobierna sobre todo.
 
 ---
 
 ## Salmo 103:20
 
-> Bendecid al Señor, vosotros sus ángeles,  
->  Poderosos en fortaleza, que ejecutáis su palabra,  
->  Obedeciendo a la voz de su palabra.
+> Alabad al Señor, ángeles suyos,  
+>  poderosos y fuertes,  
+>  que cumplís sus órdenes y obedecéis la voz de su palabra.
 
 ## Salmo 103:21
 
-> Bendecid al Señor, vosotros todos sus ejércitos,  
->  Ministros suyos, que hacéis su voluntad.
+> Alabad al Señor, todos sus ejércitos,  
+>  vosotros que le servís y hacéis lo que él quiere.
 
 ## Salmo 103:22
 
-> Bendecid al Señor, vosotros todas sus obras,  
->  En todos los lugares de su señorío;
+> Alabad al Señor, todas sus obras,  
+>  en cada rincón de su reino;
 
->  ¡Bendice, alma mía, al Señor!
+>  ¡alma mía, alaba al Señor!

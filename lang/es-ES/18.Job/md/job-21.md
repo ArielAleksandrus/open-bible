@@ -93,7 +93,7 @@ Job respondió:
 
 ## Job 21:19
 
-> Se dice, ‘Dios guarda la iniquidad de una persona para sus hijos.’
+> Se dice: ‘Dios guarda la iniquidad de una persona para sus hijos.’
 >  Que les pague para que lo conozcan ellos mismos.
 
 ## Job 21:20
@@ -111,7 +111,7 @@ Job respondió:
 ## Job 21:22
 
 > ¿Puede alguien impartir conocimiento a Dios,
->  ya que él juzga incluso a los más altos?
+>  ya que Él juzga incluso a los más altos?
 
 ## Job 21:23
 
@@ -140,7 +140,7 @@ Job respondió:
 
 ## Job 21:28
 
-> Preguntáis, ‘¿Dónde está ahora la casa del noble,
+> Preguntáis: ‘¿Dónde está ahora la casa del noble,
 >  las tiendas donde vivieron los malvados?’
 
 ## Job 21:29

@@ -67,21 +67,21 @@ Y entre todos mis hijos (porque el Señor me ha bendecido con muchos),
 
 ## 1 Crónicas 28:8
 
-Así que ahora, ante la vista de todo Israel, la asamblea del Señor,  
- y en la audiencia de nuestro Dios,
+Así que ahora, a la vista de todo Israel, la asamblea del Señor,  
+ y a oídos de nuestro Dios,
 
->  guarda y busca todos los mandamientos del Señor tu Dios para que poseas la buena tierra y la dejes como herencia a tus hijos después de ti para siempre.
+>  guardad y buscad todos los mandamientos del Señor vuestro Dios, para que poseáis la buena tierra y la dejéis como herencia a vuestros hijos después de vosotros para siempre.
 
 ---
 
 ## 1 Crónicas 28:9
 
-En cuanto a ti, mi hijo Salomón, reconoce al Dios de tu padre,
+En cuanto a ti, Salomón, hijo mío,
 
->  y sírvele con un corazón entero y una mente dispuesta;  
->  porque el Señor escudriña todos los corazones, y entiende toda intención de los pensamientos.  
->  Si le buscas, Él te dejará encontrarle;  
->  pero si le abandonas, Él te rechazará para siempre.
+>  reconoce al Dios de tu padre y sírvele con un corazón íntegro y de buena gana,  
+>  porque el Señor examina todos los corazones y conoce cada propósito de los pensamientos.  
+>  Si lo buscas, Él dejará que lo encuentres;  
+>  pero si lo abandonas, te rechazará para siempre.
 
 ---
 
@@ -178,5 +178,5 @@ Entonces David dijo a su hijo Salomón,
 
 Ahora mira, están las divisiones de los sacerdotes y los levitas para todo el servicio de la casa de Dios,
 
->  y toda persona dispuesta de cualquier habilidad estará contigo en todo el trabajo,  
->  para todo el trabajo, también los oficiales y todo el pueblo, estarán enteramente a tu disposición.”
+>  y toda persona dispuesta de cualquier habilidad estará contigo en toda la obra;  
+>  también los oficiales y todo el pueblo estarán enteramente a tu disposición.”

@@ -70,11 +70,11 @@ Entonces Abraham se inclinó y se rió, pensando en su corazón: “¿Puede nace
 
 ## Génesis 17:18
 
-Y Abraham dijo a Dios: “¡Oh que Ismael viva bajo Tu bendición!”
+Y Abraham dijo a Dios: “¡Ojalá Ismael viva bajo Tu bendición!”
 
 ## Génesis 17:19
 
-Pero Dios dijo: “No, sino que tu esposa Sara te dará un hijo, y llamarás su nombre Isaac; y estableceré Mi pacto con él como un pacto eterno para sus descendientes después de él.
+Pero Dios dijo: “No, sino que tu esposa Sara te dará un hijo, y le pondrás por nombre Isaac; y estableceré Mi pacto con él como un pacto eterno para sus descendientes después de él.
 
 ## Génesis 17:20
 
@@ -86,7 +86,7 @@ Sin embargo, estableceré Mi pacto con Isaac, a quien Sara te dará a luz en est
 
 ## Génesis 17:22
 
-Después de terminar Su conversación con Abraham, Dios se fue de él.
+Después de terminar Su conversación con Abraham, Dios subió y se apartó de él.
 
 ## Génesis 17:23
 

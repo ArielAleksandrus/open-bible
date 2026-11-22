@@ -39,7 +39,7 @@
 
 ## Job 33:8
 
-> “Pero has hablado en mi oído,
+> “Pero has hablado a mis oídos,
 >  y he escuchado las mismas palabras que dijiste:
 
 ## Job 33:9
@@ -61,7 +61,7 @@
 
 ## Job 33:12
 
-> “Pero te digo, en esto no tienes razón,
+> “Pero te digo que en esto no tienes razón,
 >  porque Dios es más grande que cualquier humano.
 
 ## Job 33:13
@@ -123,7 +123,7 @@
 
 ## Job 33:24
 
-> y él es misericordioso con ellos, y dice,
+> y él es misericordioso con ellos, y dice:
 >  ‘Líbralos de descender al abismo;
 >  he encontrado un rescate para ellos—
 
@@ -140,7 +140,7 @@
 
 ## Job 33:27
 
-> Cantarán a otros y dirán,
+> Cantarán a otros y dirán:
 >  ‘He pecado y pervertido lo que era correcto,
 >  pero no recibí lo que merecía.
 

@@ -44,13 +44,13 @@ Inmediatamente ella cayó a sus pies y murió. Los jóvenes entraron, la encontr
 
 ## Hechos 5:11
 
-Un profundo sentido de asombro se apoderó de toda la iglesia y de todos los que oyeron acerca de estos eventos.
+Un gran temor se apoderó de toda la iglesia y de todos los que oyeron acerca de estos eventos.
 
 ---
 
 ## Hechos 5:12
 
-Muchos signos y maravillas eran realizados por los apóstoles entre el pueblo, y todos los creyentes solían reunirse en el Pórtico de Salomón.
+Muchas señales y maravillas eran realizadas por los apóstoles entre el pueblo, y todos los creyentes solían reunirse en el Pórtico de Salomón.
 
 ## Hechos 5:13
 
@@ -84,7 +84,7 @@ Pero durante la noche, un ángel del Señor abrió las puertas de la prisión y 
 
 ## Hechos 5:20
 
-“Id, estad en los atrios del templo,” dijo, “y compartid con el pueblo acerca de esta nueva vida.”
+“Id, estad en los atrios del templo,” dijo, “y hablad al pueblo de esta nueva vida.”
 
 ## Hechos 5:21
 

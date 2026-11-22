@@ -14,7 +14,7 @@ Después de su sufrimiento, se presentó vivo ante ellos con muchas pruebas conv
 
 ## Hechos 1:4
 
-En una ocasión, mientras los reunía, les instruyó que no se fueran de Jerusalén, sino que esperaran la promesa del Padre, “de la cual,” dijo, “me habéis oído hablar;
+En una ocasión, mientras los reunía, les ordenó que no se fueran de Jerusalén, sino que esperaran la promesa del Padre, “de la cual,” dijo, “me habéis oído hablar;
 
 ## Hechos 1:5
 
@@ -42,21 +42,21 @@ Después de decir esto, fue elevado mientras ellos miraban, y una nube lo ocult�
 
 ## Hechos 1:10
 
-Mientras miraban fijamente al cielo mientras él se iba, de repente dos hombres con vestiduras blancas se pusieron junto a ellos.
+Mientras miraban fijamente al cielo, viendo cómo él se iba, de repente dos hombres con vestiduras blancas se pusieron junto a ellos.
 
 ## Hechos 1:11
 
-“Varones galileos,” dijeron, “¿por qué estáis mirando al cielo? Este mismo Jesús, que ha sido llevado de vosotros al cielo, volverá de la misma manera que le habéis visto ir al cielo.”
+“Hombres de Galilea,” les dijeron, “¿por qué os quedáis mirando al cielo? Este mismo Jesús, que se os ha llevado al cielo, regresará de la misma forma en que lo habéis visto irse al cielo.”
 
 ---
 
 ## Hechos 1:12
 
-Entonces regresaron a Jerusalén desde el monte llamado de los Olivos, que está cerca de Jerusalén, a un día de camino en sábado.
+Entonces regresaron a Jerusalén desde el monte llamado de los Olivos, que está cerca de Jerusalén, a la distancia que se permitía caminar en sábado.
 
 ## Hechos 1:13
 
-Cuando llegaron, subieron al aposento alto donde se alojaban. Estaban presentes Pedro, Juan, Jacobo y Andrés; Felipe y Tomás, Bartolomé y Mateo; Jacobo hijo de Alfeo, Simón el Zelote, y Judas hijo de Jacobo.
+Cuando llegaron, subieron al aposento alto donde se alojaban. Estaban presentes Pedro, Juan, Santiago y Andrés; Felipe y Tomás, Bartolomé y Mateo; Santiago hijo de Alfeo, Simón el Zelote, y Judas hijo de Santiago.
 
 ## Hechos 1:14
 
@@ -74,7 +74,7 @@ En aquellos días Pedro se levantó entre los creyentes (un grupo de unas 120 pe
 
 ## Hechos 1:17
 
-Él fue contado entre nosotros y compartió en este ministerio.”
+Él fue contado entre nosotros y tuvo parte en este ministerio.”
 
 ## Hechos 1:18
 
@@ -111,7 +111,7 @@ Entonces propusieron a dos hombres: José llamado Barsabás (también conocido c
 
 ## Hechos 1:24
 
-Luego oraron, “Señor, tú que conoces los corazones de todos, revela cuál de estos dos has escogido
+Luego oraron, “Señor, tú que conoces los corazones de todos, revélanos cuál de estos dos has escogido
 
 ## Hechos 1:25
 

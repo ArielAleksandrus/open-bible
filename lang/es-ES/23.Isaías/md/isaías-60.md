@@ -2,23 +2,23 @@
 
 ## Isaías 60:1
 
-“Levántate y resplandece, porque ha venido tu luz, y la gloria del Señor ha amanecido sobre ti.
+“¡Levántate y brilla, que ha llegado tu luz! La gloria del Señor amanece sobre ti.
 
 ## Isaías 60:2
 
-He aquí que tinieblas cubrirán la tierra y oscuridad profunda a los pueblos, pero el Señor amanecerá sobre ti, y su gloria aparecerá sobre ti.
+Mira: la oscuridad cubre la tierra, y una espesa negrura envuelve a los pueblos, pero sobre ti amanece el Señor, y sobre ti se deja ver su gloria.
 
 ## Isaías 60:3
 
-Las naciones serán atraídas a tu luz, y los reyes al resplandor de tu amanecer.
+Las naciones se sentirán atraídas por tu luz, y los reyes por el resplandor de tu amanecer.
 
 ## Isaías 60:4
 
-“Levanta tus ojos y mira alrededor; todos se reúnen y vienen a ti. Tus hijos vendrán de lejos, y tus hijas serán llevadas en la cadera.
+“Alza los ojos y mira a tu alrededor; todos se juntan y vienen hacia ti. Tus hijos llegan de lejos, y a tus hijas las traen en brazos.
 
 ## Isaías 60:5
 
-Entonces verás y resplandecerás, y tu corazón latirá y se ensanchará de gozo; la riqueza de los mares será traída a ti, y las riquezas de las naciones vendrán a ti.
+Cuando lo veas, se te iluminará la cara, y el corazón te latirá con fuerza y te estallará de alegría; te traerán las riquezas del mar, y vendrán a ti los tesoros de las naciones.
 
 ## Isaías 60:6
 
@@ -30,7 +30,7 @@ Todos los rebaños de Cedar se reunirán para ti, los carneros de Nebaiot te ser
 
 ## Isaías 60:8
 
-¿Quiénes son estos que vuelan como nubes, como palomas a sus nidos?
+¿Quiénes son esos que vienen volando como nubes, como palomas que vuelven a su nido?
 
 ## Isaías 60:9
 
@@ -70,15 +70,15 @@ En lugar de bronce traeré oro, y plata en lugar de hierro; en lugar de madera t
 
 ## Isaías 60:18
 
-No se oirá más violencia en tu tierra, ni ruina ni destrucción dentro de tus fronteras; sino que llamarás a tus muros Salvación y a tus puertas Alabanza.
+Nunca más se oirá hablar de violencia en tu país, ni de ruina ni destrucción dentro de tus fronteras; a tus murallas las llamarás Salvación, y a tus puertas, Alabanza.
 
 ## Isaías 60:19
 
-El sol ya no será tu luz de día, ni el resplandor de la luna brillará sobre ti; porque el Señor será tu luz eterna, y tu Dios será tu gloria.
+Ya no necesitarás el sol para alumbrarte de día, ni la luz de la luna para darte claridad; porque el Señor será tu luz para siempre, y tu Dios será tu gloria.
 
 ## Isaías 60:20
 
-Tu sol nunca se pondrá de nuevo, y tu luna no menguará más; porque el Señor será tu luz eterna, y los días de tu luto terminarán.
+Tu sol no volverá a ponerse, ni tu luna dejará de brillar; porque el Señor será tu luz para siempre, y se acabarán tus días de luto.
 
 ## Isaías 60:21
 
@@ -86,4 +86,4 @@ Entonces todo tu pueblo será justo; poseerán la tierra para siempre. Son el re
 
 ## Isaías 60:22
 
-El menor de ustedes se convertirá en mil, el más pequeño en una nación poderosa. Yo, el Señor, lo haré rápidamente a su tiempo.”
+El más pequeño llegará a ser mil, y el más insignificante, una nación poderosa. Yo, el Señor, lo haré realidad pronto, cuando llegue el momento.”

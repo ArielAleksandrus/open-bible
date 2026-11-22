@@ -34,8 +34,8 @@ Escuchad esta palabra que el Señor ha hablado contra vosotros, oh pueblo de Isr
 
 ## Amós 3:8
 
-> El león ha rugido —¿quién no temerá?
->  El Señor Dios ha hablado— ¿quién no profetizará?
+> El león ha rugido, ¿quién no temerá?
+>  El Señor Dios ha hablado, ¿quién no profetizará?
 
 ## Amós 3:9
 
@@ -50,7 +50,7 @@ Escuchad esta palabra que el Señor ha hablado contra vosotros, oh pueblo de Isr
 
 ## Amós 3:11
 
-Por tanto, esto es lo que dice el Señor Soberano:
+Por tanto, esto es lo que dice el Señor Dios:
 
 >  “Un adversario rodeará la tierra y derribará vuestras defensas,
 >  y vuestros palacios serán saqueados.

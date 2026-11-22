@@ -48,7 +48,7 @@ Y regresó para ser curado en Jezreel de las heridas que le habían infligido en
 
 ## 2 Crónicas 22:7
 
-Ahora bien, la caída de Ocozías fue de Dios, en que fue a Joram.  
+Ahora bien, la caída de Ocozías vino de Dios, por haber ido a ver a Joram.  
  Porque cuando llegó, salió con Joram contra Jehú, hijo de Nimsi,  
  a quien el Señor había ungido para eliminar la casa de Acab.
 

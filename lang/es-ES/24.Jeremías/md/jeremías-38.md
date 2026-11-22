@@ -37,7 +37,7 @@ Así que Ebed-Melec tomó a los hombres con él y fue a una habitación debajo d
 Ebed-Melec el cusita dijo a Jeremías: “Pon estas ropas y trapos viejos bajo tus brazos para acolchar las cuerdas.” Y Jeremías lo hizo,
 
 ## Jeremías 38:13
-y lo sacaron con las cuerdas y lo sacaron de la cisterna. Jeremías permaneció en el patio de la guardia.
+y tiraron de él con las cuerdas y lo sacaron de la cisterna. Jeremías permaneció en el patio de la guardia.
 
 ## Jeremías 38:14
 Entonces el rey Sedequías envió a buscar al profeta Jeremías y lo hizo llevar a la tercera entrada de la casa del Señor. El rey dijo a Jeremías: “Te voy a preguntar algo; no me ocultes nada.”
@@ -49,7 +49,7 @@ Jeremías dijo a Sedequías: “Si te lo digo, ¿no me matarás ciertamente? Inc
 Pero el rey Sedequías juró este juramento en secreto a Jeremías: “Tan cierto como que vive el Señor, que nos ha dado la vida, no te mataré ni te entregaré a los que quieren matarte.”
 
 ## Jeremías 38:17
-Entonces Jeremías dijo a Sedequías: “Así dice el Señor Dios de los Ejércitos, el Dios de Israel: ‘Si te rindes a los oficiales del rey de Babilonia, tu vida será perdonada y esta ciudad no será quemada; tú y tu familia vivirán.
+Entonces Jeremías dijo a Sedequías: “Así dice el Señor Dios de los ejércitos, el Dios de Israel: ‘Si te rindes a los oficiales del rey de Babilonia, tu vida será perdonada y esta ciudad no será quemada; tú y tu familia vivirán.
 
 ## Jeremías 38:18
 Pero si no te rindes a los oficiales del rey de Babilonia, esta ciudad será entregada en manos de los caldeos y la quemarán; tú mismo no escaparás de ellos.’”
@@ -67,7 +67,7 @@ Sin embargo, si decides no rendirte, el Señor me ha mostrado esto:
 ‘He aquí, todas las mujeres que quedan en el palacio del rey de Judá serán sacadas a los oficiales del rey de Babilonia. Esas mujeres te dirán: “Tus amigos cercanos te han engañado y te han vencido. Tus pies están hundidos en el lodo; te han abandonado.”
 
 ## Jeremías 38:23
-“Todas tus esposas e hijos serán sacados a los caldeos. Tú mismo no escaparás de sus manos, sino que serás capturado por el rey de Babilonia; y esta ciudad será quemada.”
+Todas tus esposas e hijos serán sacados a los caldeos. Tú mismo no escaparás de sus manos, sino que serás capturado por el rey de Babilonia; y esta ciudad será quemada.’”
 
 ## Jeremías 38:24
 Entonces Sedequías dijo a Jeremías: “No dejes que nadie sepa de esta conversación, o morirás.

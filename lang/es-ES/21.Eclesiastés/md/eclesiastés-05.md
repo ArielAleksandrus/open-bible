@@ -4,7 +4,7 @@
 Sé cauteloso al entrar en la casa de Dios, y acércate para escuchar en lugar de presentar la ofrenda de los necios, que no se dan cuenta de que están haciendo mal.
 
 ## Eclesiastés 5:2
-No seas imprudente con tu boca, ni apresurado en tu corazón para plantear un asunto ante Dios. Porque Dios está en el cielo y tú estás en la tierra, así que sean pocas tus palabras.
+No hables a la ligera ni te precipites a presentarle a Dios cualquier asunto. Dios está en el cielo y tú en la tierra; así que habla poco.
 
 ## Eclesiastés 5:3
 Porque los sueños vienen con mucho ajetreo, y la voz del necio con muchas palabras.
@@ -40,7 +40,7 @@ El sueño del trabajador es dulce, ya sea que coma poco o mucho, pero la abundan
 Hay un mal grave que he visto bajo el sol: la riqueza acumulada en detrimento de su dueño,
 
 ## Eclesiastés 5:14
-o la riqueza perdida por circunstancias desafortunadas, dejando nada para que sus hijos hereden.
+o la riqueza perdida por circunstancias desafortunadas, sin dejar nada en herencia a sus hijos.
 
 ## Eclesiastés 5:15
 Así como uno viene desnudo del vientre de su madre, así partirá como vino. No se llevará nada de su trabajo que pueda llevar en sus manos.

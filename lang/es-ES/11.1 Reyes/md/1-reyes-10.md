@@ -14,7 +14,7 @@ Llegó a Jerusalén con un séquito muy grande,
 ## 1 Reyes 10:3
 
 Salomón respondió a todas sus preguntas;  
- nada fue ocultado al rey que él no le aclarara.
+ no hubo nada tan oculto para el rey que no pudiera explicárselo.
 
 ## 1 Reyes 10:4
 
@@ -28,7 +28,7 @@ la comida de su mesa,
  la asistencia de sus ministros y sus vestiduras,  
  sus coperos,  
  y su escalera por la que subía a la casa del Señor,  
- ya no quedó más espíritu en ella.
+ se quedó sin aliento.
 
 ## 1 Reyes 10:6
 
@@ -108,7 +108,7 @@ Además,
 
 ## 1 Reyes 10:19
 
-Había seis escalones al trono y un respaldo redondeado en su parte trasera,  
+El trono tenía seis escalones y un respaldo redondeado en su parte trasera,  
  con brazos a cada lado del asiento,  
  y dos leones de pie junto a los brazos.
 
@@ -143,7 +143,7 @@ Todo el mundo buscaba audiencia con Salomón,
 ## 1 Reyes 10:25
 
 Y traían cada uno su regalo: artículos de plata y oro, vestiduras, armas, especias, caballos y mulas,  
- tanto año tras año.
+ año tras año.
 
 ---
 

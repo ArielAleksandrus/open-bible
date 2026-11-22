@@ -80,7 +80,7 @@ Con mano fuerte y brazo extendido,
 
 ## Salmo 136:13
 
-Al que dividió el Mar Rojo en partes,
+Al que dividió el Mar Rojo en dos,
 
 >  Su amor es eterno.
 
@@ -92,7 +92,7 @@ E hizo pasar a Israel por en medio de él,
 
 ## Salmo 136:15
 
-Pero derribó a Faraón y a su ejército en el Mar Rojo,
+Pero arrojó al faraón y a su ejército en el Mar Rojo,
 
 >  Su amor es eterno.
 

@@ -4,10 +4,10 @@
 Consideré todo esto y determiné que los justos, los sabios y sus obras están en las manos de Dios. Sin embargo, nadie sabe si el amor o el odio les espera.
 
 ## Eclesiastés 9:2
-Todos comparten el mismo destino: los justos y los malvados, los buenos y los malos, los limpios y los impuros, los que ofrecen sacrificios y los que no los ofrecen. Como es con el bueno, así es con el pecador; el que jura un juramento es como el que teme jurar.
+Todos comparten el mismo destino: los justos y los malvados, los buenos y los malos, los limpios y los impuros, los que ofrecen sacrificios y los que no los ofrecen. Como es con el bueno, así es con el pecador; el que jura es como el que teme jurar.
 
 ## Eclesiastés 9:3
-Este es el mal en todo lo que ocurre bajo el sol: el mismo destino le sucede a todos. Además, los corazones de las personas están llenos de maldad, y la locura reside en sus corazones mientras viven, y después se unen a los muertos.
+Este es el mal en todo lo que ocurre bajo el sol: el mismo destino les sobreviene a todos. Además, los corazones de las personas están llenos de maldad, y la locura reside en sus corazones mientras viven, y después se unen a los muertos.
 
 ## Eclesiastés 9:4
 Para cualquiera que esté entre los vivos, hay esperanza; de hecho, un perro vivo es mejor que un león muerto.
@@ -25,10 +25,10 @@ Ve entonces, come tu pan con alegría, y bebe tu vino con un corazón alegre, po
 Asegúrate de que tus vestiduras sean siempre blancas, y que no falte aceite en tu cabeza.
 
 ## Eclesiastés 9:9
-Disfruta de la vida con tu amada esposa todos los días de tu vida fútil que Dios te ha dado bajo el sol —todos tus días fútiles. Porque esta es tu porción en la vida y en tu trabajo bajo el sol—.
+Disfruta de la vida con tu amada esposa todos los días de tu vida fútil que Dios te ha dado bajo el sol —todos tus días fútiles—. Porque esta es tu porción en la vida y en tu trabajo bajo el sol.
 
 ## Eclesiastés 9:10
-Todo lo que tu mano encuentre para hacer, hazlo con todas tus fuerzas, porque en el Seol, adonde vas, no hay actividad ni planificación ni conocimiento ni sabiduría.
+Todo lo que te venga a la mano hacer, hazlo con todas tus ganas, porque en el Seol, a donde te diriges, ya no se trabaja ni se hacen planes, ni hay conocimiento ni sabiduría.
 
 ## Eclesiastés 9:11
 Observé de nuevo bajo el sol que la carrera no es para los veloces, ni la batalla para los fuertes, ni el pan para los sabios, ni la riqueza para los entendidos, ni el favor para los hábiles; sino que el tiempo y el azar les suceden a todos.
