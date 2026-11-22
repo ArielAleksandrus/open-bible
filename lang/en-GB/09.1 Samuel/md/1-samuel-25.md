@@ -211,7 +211,7 @@ But in the morning, when the wine had gone out of Nabal, his wife told him these
 
 ## 1 Samuel 25:38
 
-About ten days later, the Lord caused Nabal to pass away.
+About ten days later, the Lord struck Nabal, and he died.
 
 ---
 

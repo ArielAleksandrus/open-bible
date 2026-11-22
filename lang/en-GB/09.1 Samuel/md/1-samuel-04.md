@@ -14,7 +14,7 @@ The Philistines arranged their forces to confront Israel, and as the battle unfo
 
 ## 1 Samuel 4:3
 
-When the soldiers returned to the camp, the elders of Israel said, “Why did the Lord allow us to be defeated today by the Philistines? Let us bring the ark of the covenant of the Lord from Shiloh, so that He may go with us and save us from our enemies.”
+When the soldiers returned to the camp, the elders of Israel said, “Why has the Lord defeated us today before the Philistines? Let us bring the ark of the covenant of the Lord from Shiloh, so that He may go with us and save us from our enemies.”
 
 ## 1 Samuel 4:4
 

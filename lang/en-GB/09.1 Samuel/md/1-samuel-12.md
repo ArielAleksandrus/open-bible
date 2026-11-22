@@ -37,7 +37,7 @@ When Jacob went into Egypt and your fathers cried out to the Lord, then the Lord
 
 ## 1 Samuel 12:9
 
-But they forgot the Lord their God, and so He allowed them to fall into the hand of Sisera, commander of the army of Hazor, and into the hand of the Philistines, and into the hand of the king of Moab, and they fought against them.
+But they forgot the Lord their God, and so He sold them into the hand of Sisera, commander of the army of Hazor, and into the hand of the Philistines, and into the hand of the king of Moab, and they fought against them.
 
 ## 1 Samuel 12:10
 
